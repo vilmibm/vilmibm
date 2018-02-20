@@ -4,7 +4,7 @@ When you first start out at GitHub we do goals for 30, 60, 90 to make sure you a
 
 In addition to this you'll collaborate with your manager to add specific, actionable contributions to the projects that you and your team will be working on over the next 3 months.
 
-## 30 Day, ${date} :star:
+## 30 Day, 2018/03/08 :star:
 
 ### Milestone
 - [ ] Get comfortable with communication tools: GitHub (issues and projects), Slack (chat).
@@ -17,12 +17,12 @@ In addition to this you'll collaborate with your manager to add specific, action
 ### Recurring
 - [ ] Keep your calendar up to date so others can send you meeting invites for trainings
 - [ ] Participate in [standups and iteration planning](https://github.com/github/gitcoin/blob/master/docs/how_we_work.md#our-agile-workflow)
-- [ ] Keep your work aligned with our team goals and ${Project board link}
+- [ ] Keep your work aligned with our team goals and [project board](https://github.com/orgs/github/projects/153)
 - [ ] Respond to pings within 1 business day
 - [ ] Have at least weekly 1:1s with your manager
 - [ ] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
 
-## 60 Day, ${date} :star2:
+## 60 Day, 2018/04/09 :star2:
 
 ### Milestone
 
@@ -32,14 +32,14 @@ In addition to this you'll collaborate with your manager to add specific, action
 ### Recurring
 - [ ] Keep your calendar up to date so others can send you meeting invites for trainings
 - [ ] Participate in [standups and team sync meetings](https://github.com/github/gitcoin/blob/master/docs/how_we_work.md#our-agile-workflow)
-- [ ] Keep your work aligned with our team goals and ${Project board link}
+- [ ] Keep your work aligned with our team goals and [project board](https://github.com/orgs/github/projects/153)
 - [ ] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
 
 ### Stretch Goals
 - [ ] If the opportunity presents itself, contribute something to [Team](https://team.githubapp.com/)
 - [ ] Participate in a [GitHub Open Source](https://team.githubapp.com/posts/29343) Day
 
-## 90 Day, ${date} :sparkles:
+## 90 Day, 2018/05/07 :sparkles:
 
 ### Milestone
 - [ ] Work with your manager to start establishing long term goals and document them in your repo
@@ -52,7 +52,7 @@ In addition to this you'll collaborate with your manager to add specific, action
 ### Recurring
 - [ ] Keep your calendar up to date so others can send you meeting invites for trainings
 - [ ] Participate in [standups and iteration planning](https://github.com/github/gitcoin/blob/master/docs/how_we_work.md#our-agile-workflow)
-- [ ] Keep your work aligned with our team goals and ${Project board link}
+- [ ] Keep your work aligned with our team goals and [project board](https://github.com/orgs/github/projects/153)
 - [ ] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
 
 ### Stretch Goals
