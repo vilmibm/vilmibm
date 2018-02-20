@@ -7,14 +7,14 @@ In addition to this you'll collaborate with your manager to add specific, action
 ## 30 Day, 2018/03/08 :star:
 
 ### Milestone
-- [ ] Get comfortable with communication tools: GitHub (issues and projects), Slack (chat).
+- [x] Get comfortable with communication tools: GitHub (issues and projects), Slack (chat).
 - [ ] Get comfortable with the [GitHub Flow®](https://guides.github.com/introduction/flow/) (early feature branch, PR, review, iteration, deploy, merge)
 - [ ] Deploy a branch to a production system and babysit it through merging
 - [ ] Code review at least two other people's PRs
-- [ ] Familiarize yourself with Slack and PagerDuty notifications so that you don't get pings that wake you up in the middle of the night but also so you don't miss PagerDuty pages!
+- [x] Familiarize yourself with Slack and PagerDuty notifications so that you don't get pings that wake you up in the middle of the night but also so you don't miss PagerDuty pages!
 - [ ] Use your GitHub provided kindle and [FlexEd debit card](https://githubber.com/article/benefits-and-policies/benefits/Learning-and-Development/Learning-and-Development-Benefit-Overview#flexed-debit-card) and read [The First 90 Days](https://www.amazon.com/First-Days-Updated-Expanded-Strategies-ebook/dp/B00B6U63ZE/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=)
-- [ ] Sign up for mentor match
-- [ ] Produce a stable, portable development environment on par with team members'
+- [x] Sign up for mentor match
+- [x] Produce a stable, portable development environment on par with team members'
 - [ ] Read Practical Object Oriented Design in Ruby cover to cover
 - [ ] Skim Kubernetes book
 - [ ] Skim Docker book
@@ -42,6 +42,7 @@ In addition to this you'll collaborate with your manager to add specific, action
 - [ ] See an appropriately significant feature for enterprise-web through its initial planning phase
 - [ ] Write at least two team post announcements
 - [ ] Attend a Ruby and/or Rails conference
+- [ ] Ensure that dev environment has maintained parity with osx environment
 
 
 ### Recurring
@@ -71,6 +72,7 @@ In addition to this you'll collaborate with your manager to add specific, action
 - [ ] Demo something for your team
 - [ ] Complete a significant feature for enterprise-web
 - [ ] Give a conference talk
+- [ ] Ensure that dev environment has maintained parity with osx environment
 
 ### Recurring
 - [ ] Keep your calendar up to date so others can send you meeting invites for trainings
