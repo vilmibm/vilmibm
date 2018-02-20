@@ -18,6 +18,7 @@ In addition to this you'll collaborate with your manager to add specific, action
 - [ ] Read Practical Object Oriented Design in Ruby cover to cover
 - [ ] Skim Kubernetes book
 - [ ] Skim Docker book
+- [ ] Read through some PRs from self serve team
 
 ### Recurring
 - [ ] Keep your calendar up to date so others can send you meeting invites for trainings
