@@ -16,18 +16,18 @@
 # composition sketch
 
 - `ContactRequest`
- - Either a replacement or renaming of our current `Contact` model
- - Backing model for the `/trial` and `/contact` forms
+  - Either a replacement or renaming of our current `Contact` model
+  - Backing model for the `/trial` and `/contact` forms
 - `EloquaForm`
- - has hardcoded field values, form ID stored as class instance variables
- - `self.build_from_contact_request` 
-   - Given an instance of `ContactRequest`, returns a filled-in `EloquaForm`.
- - `valid?`
-   - Ensures that any payload conforms to the field values set up in Eloqua. This should be used prior to submitting in case the data was fudged (perhaps from a repl or similar) prior to calling `submit`
- - `submit`
-   - Assuming `valid?` passes, submits this instance's payload to Eloqua. If successful, updates the associated `ContactRequest` with `submitted: true` or similar. If false, raises `EloquaPostException`
+  - has hardcoded field values, form ID stored as class instance variables
+  - `self.build_from_contact_request` 
+    - Given an instance of `ContactRequest`, returns a filled-in `EloquaForm`.
+  - `valid?`
+    - Ensures that any payload conforms to the field values set up in Eloqua. This should be used prior to submitting in case the data was fudged (perhaps from a repl or similar) prior to calling `submit`
+  - `submit`
+    - Assuming `valid?` passes, submits this instance's payload to Eloqua. If successful, updates the associated `ContactRequest` with `submitted: true` or similar. If false, raises `EloquaPostException`
 - eloqua submission job
- - Given some `ContactRequest` ID, creates and submits an `EloquaForm`.
- - Catches `EloquaPostException` and schedules retries as needed
+  - Given some `ContactRequest` ID, creates and submits an `EloquaForm`.
+  - Catches `EloquaPostException` and schedules retries as needed
 - `EloquaPostException` 
- - Raised when any REST POST to Eloqua fails.
+  - Raised when any REST POST to Eloqua fails.
