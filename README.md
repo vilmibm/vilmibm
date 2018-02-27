@@ -8,17 +8,17 @@ In addition to this you'll collaborate with your manager to add specific, action
 
 ### Milestone
 - [x] Get comfortable with communication tools: GitHub (issues and projects), Slack (chat).
-- [ ] Get comfortable with the [GitHub Flow®](https://guides.github.com/introduction/flow/) (early feature branch, PR, review, iteration, deploy, merge)
-- [ ] Deploy a branch to a production system and babysit it through merging
-- [ ] Code review at least two other people's PRs
+- [x] Get comfortable with the [GitHub Flow®](https://guides.github.com/introduction/flow/) (early feature branch, PR, review, iteration, deploy, merge)
+- [x] Deploy a branch to a production system and babysit it through merging
+- [x] Code review at least two other people's PRs
 - [x] Familiarize yourself with Slack and PagerDuty notifications so that you don't get pings that wake you up in the middle of the night but also so you don't miss PagerDuty pages!
-- [ ] Use your GitHub provided kindle and [FlexEd debit card](https://githubber.com/article/benefits-and-policies/benefits/Learning-and-Development/Learning-and-Development-Benefit-Overview#flexed-debit-card) and read [The First 90 Days](https://www.amazon.com/First-Days-Updated-Expanded-Strategies-ebook/dp/B00B6U63ZE/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=)
+- [x] Use your GitHub provided kindle and [FlexEd debit card](https://githubber.com/article/benefits-and-policies/benefits/Learning-and-Development/Learning-and-Development-Benefit-Overview#flexed-debit-card) and read [The First 90 Days](https://www.amazon.com/First-Days-Updated-Expanded-Strategies-ebook/dp/B00B6U63ZE/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=)
 - [x] Sign up for mentor match
 - [x] Produce a stable, portable development environment on par with team members'
 - [ ] Read Practical Object Oriented Design in Ruby cover to cover
 - [ ] Skim Kubernetes book
 - [ ] Skim Docker book
-- [ ] Read through some PRs from self serve team
+- [x] Read through some PRs from self serve team
 
 ### Recurring
 - [ ] Keep your calendar up to date so others can send you meeting invites for trainings
