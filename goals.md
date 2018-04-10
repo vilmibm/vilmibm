@@ -26,10 +26,10 @@ In addition to this you'll collaborate with your manager to add specific, action
 - [x] Keep your work aligned with our team goals and [project board](https://github.com/orgs/github/projects/153)
 - [x] Respond to pings within 1 business day
 - [x] Have at least weekly 1:1s with your manager
-- [ ] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
+- [x] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
 - [x] Share knowledge about github development on Linux as you gain it
 - [ ] Schedule occasional social meetings with distributed team
-- [ ] Pair with a team member at least once a week
+- [x] Pair with a team member at least once a week
 
 ## 60 Day, 2018/04/09 :star2:
 
@@ -38,26 +38,26 @@ In addition to this you'll collaborate with your manager to add specific, action
 - [ ] Work with your manager to start establishing long term goals and document them in your repo
 - [ ] Use your GitHub provided kindle and [FlexEd debit card](https://githubber.com/article/benefits-and-policies/benefits/Learning-and-Development/Learning-and-Development-Benefit-Overview#flexed-debit-card) and read [Five Dysfunctions of a Team](https://www.amazon.com/Five-Dysfunctions-Team-Enhanced-Leadership-ebook/dp/B006960LQW/ref=sr_1_1_twi_kin_2?ie=UTF8&qid=1484867047&sr=8-1&keywords=5+dysfunctions+of+a+team)
 - [ ] Read Eloquent Ruby cover to cover
-- [ ] Deploy at least two bugfixes for enterprise-web
-- [ ] See an appropriately significant feature for enterprise-web through its initial planning phase
+- [x] Deploy at least two bugfixes for enterprise-web
+- [x] See an appropriately significant feature for enterprise-web through its initial planning phase
 - [ ] Write at least two team post announcements
 - [ ] Attend a Ruby and/or Rails conference
-- [ ] Ensure that dev environment has maintained parity with osx environment
+- [x] Ensure that dev environment has maintained parity with osx environment
 
 
 ### Recurring
-- [ ] Keep your calendar up to date so others can send you meeting invites for trainings
-- [ ] Participate in [standups and team sync meetings](https://github.com/github/gitcoin/blob/master/docs/how_we_work.md#our-agile-workflow)
-- [ ] Keep your work aligned with our team goals and [project board](https://github.com/orgs/github/projects/153)
-- [ ] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
+- [x] Keep your calendar up to date so others can send you meeting invites for trainings
+- [x] Participate in [standups and team sync meetings](https://github.com/github/gitcoin/blob/master/docs/how_we_work.md#our-agile-workflow)
+- [x] Keep your work aligned with our team goals and [project board](https://github.com/orgs/github/projects/153)
+- [x] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
 - [ ] Schedule occasional social meetings with distributed team
-- [ ] Pair with a team member at least once a week
-- [ ] Attend mentor meetings
-- [ ] Foster community within interest groups
+- [x] Pair with a team member at least once a week
+- [x] Attend mentor meetings
+- [x] Foster community within interest groups
 
 ### Stretch Goals
 - [ ] If the opportunity presents itself, contribute something to [Team](https://team.githubapp.com/)
-- [ ] Participate in a [GitHub Open Source](https://team.githubapp.com/posts/29343) Day
+- [ ] Participate in a [GitHub Open Source](https://team.githubapp.com/posts/29343) Day or Hack Week
 - [ ] If the opportunity presents itself, contribute something to self-serve's code
 
 ## 90 Day, 2018/05/07 :sparkles:
@@ -69,7 +69,7 @@ In addition to this you'll collaborate with your manager to add specific, action
 - [ ] Watch the take home code review [training session](https://githubber.tv/github/reviewing-the-application-engineer-interview-take-home-exercise)
 - [ ] Get yourself added to the list of [reviewers](https://github.com/orgs/github-interviews/teams/app-eng-take-home-reviewers) for take home code submissions
 - [ ] Shadow someone during a final round phone or technical interview
-- [ ] Demo something for your team
+- [x] Demo something for your team
 - [ ] Complete a significant feature for enterprise-web
 - [ ] Give a conference talk
 - [ ] Ensure that dev environment has maintained parity with osx environment
