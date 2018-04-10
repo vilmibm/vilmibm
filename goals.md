@@ -71,7 +71,6 @@ In addition to this you'll collaborate with your manager to add specific, action
 - [ ] Shadow someone during a final round phone or technical interview
 - [x] Demo something for your team
 - [ ] Complete a significant feature for enterprise-web
-- [ ] Give a conference talk
 - [ ] Ensure that dev environment has maintained parity with osx environment
 
 ### Recurring
