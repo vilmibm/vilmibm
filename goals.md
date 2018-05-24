@@ -28,20 +28,19 @@ In addition to this you'll collaborate with your manager to add specific, action
 - [x] Have at least weekly 1:1s with your manager
 - [x] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
 - [x] Share knowledge about github development on Linux as you gain it
-- [ ] Schedule occasional social meetings with distributed team
+- [x] Schedule occasional social meetings with distributed team
 - [x] Pair with a team member at least once a week
 
 ## 60 Day, 2018/04/09 :star2:
 
 ### Milestone
 
-- [ ] Work with your manager to start establishing long term goals and document them in your repo
-- [ ] Use your GitHub provided kindle and [FlexEd debit card](https://githubber.com/article/benefits-and-policies/benefits/Learning-and-Development/Learning-and-Development-Benefit-Overview#flexed-debit-card) and read [Five Dysfunctions of a Team](https://www.amazon.com/Five-Dysfunctions-Team-Enhanced-Leadership-ebook/dp/B006960LQW/ref=sr_1_1_twi_kin_2?ie=UTF8&qid=1484867047&sr=8-1&keywords=5+dysfunctions+of+a+team)
-- [ ] Read Eloquent Ruby cover to cover
+- [x] Work with your manager to start establishing long term goals and document them in your repo
+- [x] Read Eloquent Ruby cover to cover
 - [x] Deploy at least two bugfixes for enterprise-web
 - [x] See an appropriately significant feature for enterprise-web through its initial planning phase
 - [ ] Write at least two team post announcements
-- [ ] Attend a Ruby and/or Rails conference
+- [x] Attend a Ruby and/or Rails conference
 - [x] Ensure that dev environment has maintained parity with osx environment
 
 
@@ -63,22 +62,22 @@ In addition to this you'll collaborate with your manager to add specific, action
 ## 90 Day, 2018/05/07 :sparkles:
 
 ### Milestone
-- [ ] Work with your manager to start establishing long term goals and document them in your repo
+- [x] Work with your manager to start establishing long term goals and document them in your repo
 - [ ] Add yourself to PagerDuty rotation for team
 - [ ] Attend one of the monthly [interview training sessions](https://github.com/github/talent-acquisition/issues?utf8=%E2%9C%93&q=is%3Aissue%20is%3Aopen%20interview%20training%20)
 - [ ] Watch the take home code review [training session](https://githubber.tv/github/reviewing-the-application-engineer-interview-take-home-exercise)
 - [ ] Get yourself added to the list of [reviewers](https://github.com/orgs/github-interviews/teams/app-eng-take-home-reviewers) for take home code submissions
 - [ ] Shadow someone during a final round phone or technical interview
 - [x] Demo something for your team
-- [ ] Complete a significant feature for enterprise-web
-- [ ] Ensure that dev environment has maintained parity with osx environment
+- [x] Complete a significant feature for enterprise-web
+- [x] Ensure that dev environment has maintained parity with osx environment
 
 ### Recurring
-- [ ] Keep your calendar up to date so others can send you meeting invites for trainings
-- [ ] Participate in [standups and iteration planning](https://github.com/github/gitcoin/blob/master/docs/how_we_work.md#our-agile-workflow)
-- [ ] Keep your work aligned with our team goals and [project board](https://github.com/orgs/github/projects/153)
-- [ ] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
-- [ ] Schedule occasional social meetings with distributed team
+- [x] Keep your calendar up to date so others can send you meeting invites for trainings
+- [x] Participate in [standups and iteration planning](https://github.com/github/gitcoin/blob/master/docs/how_we_work.md#our-agile-workflow)
+- [x] Keep your work aligned with our team goals and [project board](https://github.com/orgs/github/projects/153)
+- [x] Meet [Engineering Expectations](https://githubber.com/article/crafts/engineering/structure/engineering-levels) for your level, in Communication, Interaction and Relationships, Knowledge and Practices, Leadership, Operational Excellence, Problem Solving and Decision Making and Scope of Position.
+- [x] Schedule occasional social meetings with distributed team
 - [ ] Pair with a team member at least once a week
 
 ### Stretch Goals
