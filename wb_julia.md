@@ -13,7 +13,7 @@ having Kasia on board, and the work they're doing.
   though.
 - Split up on-call rotations. We are splitting up self-serve and whiteglove on-call rotations. I
   will be writing docs up for us this week for the new whiteglove rotation.
-- Ent Web docs. I documented everything in ent-web with screenshots and notes.
+- [Ent Web docs](https://github.com/github/gitcoin-whiteglove/blob/master/doc/entweb.md). I documented everything in ent-web with screenshots and notes.
 - Sales-ops project tracking doc: https://docs.google.com/spreadsheets/d/19VNPjUISnfiaj2rL1QZvqIsJBkFehx8M3vNcVDl69YQ/edit
 - Separate board just for tracking issues (unsure if this is a good idea, still): https://github.com/orgs/github/projects/835
 - team emoji :whiteglove:
