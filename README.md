@@ -8,22 +8,22 @@ my favorite food is mapo tofu
 
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of cyberpunk books.
 
-## Fri 18 Sep 2020 03:38:11 PM CDT
+## Fri 18 Sep 2020 03:45:01 PM CDT
 
-    They were like living anatomy charts
-    Not because our genetics are bad
-    Bypass those unreliable body parts
-    Like Weinraub on Gargotier’s patio
+    All right, then, where was Marly
+    a clam, a scallop, and a few tropical fish
+    Hello, Daizaburo, dear old colleague
+    with my hands pressed against my chest
     
-    Only my uncle stumbled into the trap
-    the sort who rode shotgun through Comanche country and had six kids without anesthetic
-    What we got, is two air masses m a scrap
-    Yeah, I'd go through a roll of fax paper every couple of days
+    the way they do, shy and cautious
+    stuffed a makeshift pad into her underwear
+    Bunny buzzed her on her way out and gave her 50 Beale
+    I am being well cared for
     
-    And then Cobb remembered their cover story
-    These data- haven people are professionals
-    Diana, you are the key to this story
-    Time to get going or Cynthia would
+    so touchingly proud of her wonderful gown
+    Kmuzu tended me con­stantly
+    said the shaykh's brother
+    she was out in a matter of moments
     
-    The fragment’s still hot enough to melt rock at its core
-    We're not the ones to talk on that score
+    She became pure glass
+    O Shaykh, I said, but I am unworthy
