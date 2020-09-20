@@ -8,22 +8,22 @@ my favorite food is mapo tofu
 
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of cyberpunk books.
 
-## Fri 18 Sep 2020 03:45:01 PM CDT
+## Sun 20 Sep 2020 03:45:01 PM CDT
 
-    All right, then, where was Marly
-    a clam, a scallop, and a few tropical fish
-    Hello, Daizaburo, dear old colleague
-    with my hands pressed against my chest
+    He was tired as they ascended slowly toward the surface
+    It was the colony's central factory
+    Let me ask you, that stuff Easy Money took off you
+    The soft shadows tended to clothe them with mystery
     
-    the way they do, shy and cautious
-    stuffed a makeshift pad into her underwear
-    Bunny buzzed her on her way out and gave her 50 Beale
-    I am being well cared for
+    the walls whitewashed to make it seem larger
+    Hed told Rydell how the computer had mapped his back and showed him exactly what it was going to look like when it was done
+    and now the man's eyes seemed to grow larger
+    Nothing, neither virus nor intelligence
     
-    so touchingly proud of her wonderful gown
-    Kmuzu tended me con­stantly
-    said the shaykh's brother
-    she was out in a matter of moments
+    And he thought, the logic of Underground
+    I can move the control mesh to wherever I like
+    but the pain came from somewhere deep underground
+    Death is desirable as our passage to paradise
     
-    She became pure glass
-    O Shaykh, I said, but I am unworthy
+    too deaf or past-it to know about the curfew
+    My eyes live again, seeing you O my nephew
