@@ -8,22 +8,22 @@ my favorite food is mapo tofu
 
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of cyberpunk books.
 
-## Sun 20 Sep 2020 03:45:01 PM CDT
+## Mon 21 Sep 2020 03:45:01 PM CDT
 
-    He was tired as they ascended slowly toward the surface
-    It was the colony's central factory
-    Let me ask you, that stuff Easy Money took off you
-    The soft shadows tended to clothe them with mystery
+    Try and run away from something in L
+    that Lumiere moment, the steam locomotive about to emerge from the screen
+    Like most port-equipped buildings in L
+    Griffith fumbled for his inhaler
     
-    the walls whitewashed to make it seem larger
-    Hed told Rydell how the computer had mapped his back and showed him exactly what it was going to look like when it was done
-    and now the man's eyes seemed to grow larger
-    Nothing, neither virus nor intelligence
+    but found it difficult
+    She accidentally dropped the virtual chalk
+    Down there the spread of lights through the faint glaze of some previous passenger's hair-oil
+    knowing she couldn’t let go of the controls to slap him away
     
-    And he thought, the logic of Underground
-    I can move the control mesh to wherever I like
-    but the pain came from somewhere deep underground
-    Death is desirable as our passage to paradise
+    We had to see whether you still had what it takes
+    It's death to set foot in the Sterilized Zone
+    The question echoed like madness in Gabe's head
+    You shouldn't take your baby into a bio-hazard zone
     
-    too deaf or past-it to know about the curfew
-    My eyes live again, seeing you O my nephew
+    Copperthwait took his hand and gave it a hard squeeze
+    Percy gave her and Rosa a hard squeeze
