@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 22 Sep 2020 12:45:03 PM CDT
+## Tue 22 Sep 2020 03:45:01 PM CDT
 
-    went on before us leaping and skipping
-    the dimensions of the rooms
-    by way of expressing her gratitude for my intercession
-    and to police and clean the roads and water-channels
+    informed him of a secret he possessed
+    Would it comfort, or would it wound you to have a similar painting
+    Naples, the Greek and Roman Neapolis
+    said Darcy, than the appearance of humility
     
-    In speaking of reflection
-    Kitty, for Heaven's sake
-    The facts as they stand are the data
-    thus leading, of course
+    of resistance to pressure and decay
+    it is not yet fixed, but if the Matter remain unmelted
+    and into minds when they begin to decay
+    Fairfax, said he, and look at them with Adele
     
-    as if something altogether monstrous
-    A calm, subdued triumph
-    The silence was broken by Quincey Morris
-    lest we forget; and deliberately institute
+    Harker having gone to bed--we discussed the attempts and discoveries of the day
+    It is marked by acceptance or rejection of something as reasonably probable or improbable
+    as well as she could
+    as a resolute rider would curb a rearing steed
     
-    It puzzled me to think why he was doing this
-    Poor creatures, they too had lost their paradise
+    not having observed their early insinuation
+    though he made no disguise of his emotion
