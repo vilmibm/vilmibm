@@ -6,24 +6,25 @@ i run a hermetic intentional community on a linux server if you want to be ssh f
 
 my favorite food is mapo tofu
 
-this readme regenerates once a day with a new randomized sonnet cut up from a bunch of cyberpunk books.
+this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
+_please do let me know if it produces anything objectionable_
 
-## Mon 21 Sep 2020 03:45:01 PM CDT
+## Tue 22 Sep 2020 12:45:03 PM CDT
 
-    Try and run away from something in L
-    that Lumiere moment, the steam locomotive about to emerge from the screen
-    Like most port-equipped buildings in L
-    Griffith fumbled for his inhaler
+    went on before us leaping and skipping
+    the dimensions of the rooms
+    by way of expressing her gratitude for my intercession
+    and to police and clean the roads and water-channels
     
-    but found it difficult
-    She accidentally dropped the virtual chalk
-    Down there the spread of lights through the faint glaze of some previous passenger's hair-oil
-    knowing she couldn’t let go of the controls to slap him away
+    In speaking of reflection
+    Kitty, for Heaven's sake
+    The facts as they stand are the data
+    thus leading, of course
     
-    We had to see whether you still had what it takes
-    It's death to set foot in the Sterilized Zone
-    The question echoed like madness in Gabe's head
-    You shouldn't take your baby into a bio-hazard zone
+    as if something altogether monstrous
+    A calm, subdued triumph
+    The silence was broken by Quincey Morris
+    lest we forget; and deliberately institute
     
-    Copperthwait took his hand and gave it a hard squeeze
-    Percy gave her and Rosa a hard squeeze
+    It puzzled me to think why he was doing this
+    Poor creatures, they too had lost their paradise
