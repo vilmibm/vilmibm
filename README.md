@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 22 Sep 2020 03:45:01 PM CDT
+## Wed 23 Sep 2020 03:45:01 PM CDT
 
-    informed him of a secret he possessed
-    Would it comfort, or would it wound you to have a similar painting
-    Naples, the Greek and Roman Neapolis
-    said Darcy, than the appearance of humility
+    and have never recovered the right course since
+    and little attempt is made to assign it any specific sense
+    and will show you through the entire institution and out again—which is not a detail
+    I dangers dared; I hindrance scorned
     
-    of resistance to pressure and decay
-    it is not yet fixed, but if the Matter remain unmelted
-    and into minds when they begin to decay
-    Fairfax, said he, and look at them with Adele
+    and incidents occurring in the lives
+    replied, that he had formerly seen him often
+    The silver moon yields to their execrations
+    most abundantly supplied with coffee and muffin
     
-    Harker having gone to bed--we discussed the attempts and discoveries of the day
-    It is marked by acceptance or rejection of something as reasonably probable or improbable
-    as well as she could
-    as a resolute rider would curb a rearing steed
+    we cannot escape the acquaintance now
+    I heaved them up, deluged the bed and its occupant
+    The young curate came in
+    No one would refuse me a kitten
     
-    not having observed their early insinuation
-    though he made no disguise of his emotion
+    or anything like it, has been advanced
+    In the moonlight opposite me were three young women
