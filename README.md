@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 24 Sep 2020 03:45:01 PM CDT
+## Fri 25 Sep 2020 03:45:01 PM CDT
 
-    Robert Brocklehurst is the treasurer
-    to perform and fulfil all the Works of the Lord
-    The story is told of a man in slight repute for intelligence
-    What did it matter what any one knew or ignored
+    beliefs, and what you may call principles
+    Are the others coming out
+    and superfluous Flegme in Man and Metals
+    and played a charivari with the ruler and desk
     
-    planted to begin with early Tulips
-    Sometimes I think I am in Northumberland
-    At the eastern end of Long Island Tulips
-    and pollutes the incense with a torch from the pyre
+    Her father was walking about the room
+    I know nothing, only that I was lying here
+    even if I'm only watching from the
+    with a much smaller and newer building under its lee
     
-    but it is really an exercise book
-    and the whole was treated as one organism
-    that he had left behind him his magical book
-    the mutilated one, he kept hidden in his bosom
+    vases of exotics bloomed on all sides
+    untying hard knots, reconciling discrepancies
+    and remains of food about on his back and sides
+    be itself based upon the natural tendencies
     
-    He was therefore content to strip her of her royal robes
-    The saints, in gorgeous crimson and blue robes
+    She again regarded me with a surprised stare
+    saying, What is this deed that ye have done
