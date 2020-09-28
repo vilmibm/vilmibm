@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 27 Sep 2020 03:45:01 PM CDT
+## Mon 28 Sep 2020 03:45:01 PM CDT
 
-    he exclaimed, reverently removing the newspaper covering and thrusting an old tintype into my hands
-    196 Danaeus commences his Dialogue of Witches with this observation
-    There were moments when ones past came back to one
-    I observed but two points in planning my departure--speed
+    But this night our feet must tread in thorny paths
+    q , r , may all be appropriate traits--just as
+    Modern travellers, for the same phenomenon has still been observed
+    The sorcerers in this case are represented as
     
-    without taking his eyes from Mina's face
-    Roland, after you have gone
-    a hundred thousand times more do I know that he must pass through the bitter waters to reach the sweet
-    The dark deeds of my outlawed race Will then like virtues shine
+    resolves on self-destruction
+    all was wintry and solitary as before
+    Mother certainly has been acquiring quite a few new things
+    The skill of German archaeologists has revealed what town-planning meant in a small town rebuilt in the Alexandrine period
     
-    To get on with the work--to stop the hole
-    This is an ancient and honorable custom
-    neither Jane, to whom I related the whole
-    sought to destroy the life of his defenceless victim
+    and leaving their disconcerted dupe with his robes converted into the poorest rags
+    in the name of all my family
+    Such views as these, so exceedingly artistic in themselves
+    He accordingly executed what he proposed
     
-    a story has been invented that he aspired to a miraculous way of disappearing from among men
-    almost tearing his hand from hers as he spoke
+    The next day a keen wind brought fresh and blinding falls
+    between two stone pillars crowned by stone balls
