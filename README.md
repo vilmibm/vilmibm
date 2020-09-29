@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 28 Sep 2020 03:45:01 PM CDT
+## Tue 29 Sep 2020 03:45:01 PM CDT
 
-    But this night our feet must tread in thorny paths
-    q , r , may all be appropriate traits--just as
-    Modern travellers, for the same phenomenon has still been observed
-    The sorcerers in this case are represented as
+    and therefore it is to be accounted supernatural
+    nearly three hundred years after the death of Christ
+    to be sure, replied her aunt
+    that the Czarina Catherine had not been reported to Lloyd's from anywhere
     
-    resolves on self-destruction
-    all was wintry and solitary as before
-    Mother certainly has been acquiring quite a few new things
-    The skill of German archaeologists has revealed what town-planning meant in a small town rebuilt in the Alexandrine period
+    He was the only direct heir to the crown of Scotland
+    and the astrologers, and the sorcerers
+    there the toilet-table
+    as a resolute rider would curb a rearing steed
     
-    and leaving their disconcerted dupe with his robes converted into the poorest rags
-    in the name of all my family
-    Such views as these, so exceedingly artistic in themselves
-    He accordingly executed what he proposed
+    ntense shock to move it to suggestion
+    I looked up; I was in somebody's arms
+    But you don’t stop now to debate that question
+    His flesh literally crept
     
-    The next day a keen wind brought fresh and blinding falls
-    between two stone pillars crowned by stone balls
+    is confirmed or weakened in his belief in their value
+    Reduced from the large plan by W
