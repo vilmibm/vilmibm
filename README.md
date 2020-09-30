@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 29 Sep 2020 03:45:01 PM CDT
+## Wed 30 Sep 2020 03:45:01 PM CDT
 
-    and therefore it is to be accounted supernatural
-    nearly three hundred years after the death of Christ
-    to be sure, replied her aunt
-    that the Czarina Catherine had not been reported to Lloyd's from anywhere
+    Having brought my eventide musings to this point
+    Again I could not but notice his prodigious strength
+    muslin, and cambric, and would shortly have dictated some very plentiful orders
+    and on the contrary observe the bare words at length
     
-    He was the only direct heir to the crown of Scotland
-    and the astrologers, and the sorcerers
-    there the toilet-table
-    as a resolute rider would curb a rearing steed
+    they form a more than interesting study
+    sir; and, in Heaven's name
+    of course, in every subject of study
+    This ship could outrun a Romulan interceptor
     
-    ntense shock to move it to suggestion
-    I looked up; I was in somebody's arms
-    But you don’t stop now to debate that question
-    His flesh literally crept
+    left to myself I abandoned myself
+    resulting in the slighter cases in faintness
+    I heard the visitors repair to their chambers
+    thus leading, of course
     
-    is confirmed or weakened in his belief in their value
-    Reduced from the large plan by W
+    The cloven halves were not broken from each other
+    under a circumstance that must be of all others the most afflicting to a parents mind
