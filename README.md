@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 01 Oct 2020 03:45:01 PM CDT
+## Fri 02 Oct 2020 03:45:01 PM CDT
 
-    Gregor's father staggered back to his seat
-    No, no, Shorty; a new trial— new — new
-    At this act the maiden raised herself on her seat
-    Memory having given her evidence of the hopes
+    Where these crossed was the mediaeval Mercato Vecchio
+    and over the snow the light of the sun flow in big yellow flood
+    who did not even turn round as we approached
+    who, with a quick movement
     
-    ’ The Frog-Footman repeated
-    the snake untwines all her folds amidst the snow
-    Jane could have no reserves from Elizabeth
-    Here traps will be laid for him—he will be lied to
+    in one respect, but with most danger in another
+    so I ran down at once to have a look at him
+    but rather credit for a well-constructed plot or a well-arranged climax
+    and had formed my opinion of Nero
     
-    and her light, streaming in through a window near
-    monotonous bends that were exactly alike
-    I saw a girl sitting on a stone bench near
-    fortunately or unfortunately as you like
+    And all that was most illustrious in intellect at this period belonged either to the one or the other
+    Experts required in factory inspection
+    But there was in it one river especially
+    His name is Mason, sir
     
-    it becomes an Animal Substance
-    was both a madwoman and a drunkard
+    he had cut off those that had familiar spirits
+    Peet, Stone and Bronze Ages in Italy Oxford
