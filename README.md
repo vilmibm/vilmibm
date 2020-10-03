@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 02 Oct 2020 03:45:01 PM CDT
+## Sat 03 Oct 2020 03:45:01 PM CDT
 
-    Where these crossed was the mediaeval Mercato Vecchio
-    and over the snow the light of the sun flow in big yellow flood
-    who did not even turn round as we approached
-    who, with a quick movement
+    The saints, in gorgeous crimson and blue robes
+    I owe all that I know of it to another
+    no madmans logic this time
+    The captain come, when told that he will be pay well
     
-    in one respect, but with most danger in another
-    so I ran down at once to have a look at him
-    but rather credit for a well-constructed plot or a well-arranged climax
-    and had formed my opinion of Nero
+    but my heart beat anxiously
+    66 Aquileia was set up in 181 B
+    Fairfax was summoned to give information respecting the resources of the house in shawls
+    Long ago I wished to leave The house where I was born
     
-    And all that was most illustrious in intellect at this period belonged either to the one or the other
-    Experts required in factory inspection
-    But there was in it one river especially
-    His name is Mason, sir
+    ‘Then it wasn’t very civil of you to offer it
+    it was not striking: I am sure I did not blush
+    The first step that he made into public life and the career for which he panted
+    He had calculated on these first objections
     
-    he had cut off those that had familiar spirits
-    Peet, Stone and Bronze Ages in Italy Oxford
+    And, deepening still the dream-like charm
+    You know nothing of the matter
