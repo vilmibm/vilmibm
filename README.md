@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 03 Oct 2020 03:45:01 PM CDT
+## Sun 04 Oct 2020 03:45:01 PM CDT
 
-    The saints, in gorgeous crimson and blue robes
-    I owe all that I know of it to another
-    no madmans logic this time
-    The captain come, when told that he will be pay well
+    while we were using them
+    but when I get at the dates I suppose I shall
+    7 to any date but some part of the Macedonian period
+    Then he went on:-- The letter to Hawkins--that I shall
     
-    but my heart beat anxiously
-    66 Aquileia was set up in 181 B
-    Fairfax was summoned to give information respecting the resources of the house in shawls
-    Long ago I wished to leave The house where I was born
+    -- Oh, it is hard to think of it
+    though the evidence is too slender to prove it
+    digests all which is adverse to the Stomach
+    and Trithemius, who was called in as singularly qualified to comfort him
     
-    ‘Then it wasn’t very civil of you to offer it
-    it was not striking: I am sure I did not blush
-    The first step that he made into public life and the career for which he panted
-    He had calculated on these first objections
+    Oh, very well, he said
+    and walk away with him into the shrubbery
+    or like a burning Light
+    I make for the wicket leading to the shrubbery
     
-    And, deepening still the dream-like charm
-    You know nothing of the matter
+    A grand piano stood massively in a corner
+    but, when he came to be hanged
