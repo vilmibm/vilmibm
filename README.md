@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 04 Oct 2020 03:45:01 PM CDT
+## Mon 05 Oct 2020 03:45:01 PM CDT
 
-    while we were using them
-    but when I get at the dates I suppose I shall
-    7 to any date but some part of the Macedonian period
-    Then he went on:-- The letter to Hawkins--that I shall
+    because most mechanical
+    grain by grain; but she would taste of no other dish
+    Besides, there is that peculiar voice of hers
+    and by that time most likely Captain Carter would be at Meryton again
     
-    -- Oh, it is hard to think of it
-    though the evidence is too slender to prove it
-    digests all which is adverse to the Stomach
-    and Trithemius, who was called in as singularly qualified to comfort him
+    the dining-room tables wheeled away
+    for when I had seen the view I explored further
+    all this bad dreaming seems to have passed away
+    since its effects upon habits of thought are much deeper than those of conscious study
     
-    Oh, very well, he said
-    and walk away with him into the shrubbery
-    or like a burning Light
-    I make for the wicket leading to the shrubbery
+    holding the necromancer by the coat
+    I have heard, the inventor of a burnt rum punch
+    When, lorn and loveless
+    but the doctor took no notice
     
-    A grand piano stood massively in a corner
-    but, when he came to be hanged
+    -- Sacred to the memory of George Canon
+    Eliza, who was headstrong and selfish
