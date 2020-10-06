@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 05 Oct 2020 03:45:01 PM CDT
+## Tue 06 Oct 2020 03:45:01 PM CDT
 
-    because most mechanical
-    grain by grain; but she would taste of no other dish
-    Besides, there is that peculiar voice of hers
-    and by that time most likely Captain Carter would be at Meryton again
+    He went on with his singing
+    With such a fervent zeal
+    Here was a new card turned up
+    I told her how anxious I was about Jonathan
     
-    the dining-room tables wheeled away
-    for when I had seen the view I explored further
-    all this bad dreaming seems to have passed away
-    since its effects upon habits of thought are much deeper than those of conscious study
+    --yes: she believed he was playing billiards with Miss Ingram
+    and get the tin-pot along by hook or by crook
+    Thus, the State does not allow children to work all their time in a factory until they are thirteen years of age
+    ' My Robert believes he was a wine-merchant
     
-    holding the necromancer by the coat
-    I have heard, the inventor of a burnt rum punch
-    When, lorn and loveless
-    but the doctor took no notice
+    I am ready to go to India
+    the head-quarters of which are at Belfast
+    They owed the restoration of Lydia
+    at all times excluding the light of the sun
     
-    -- Sacred to the memory of George Canon
-    Eliza, who was headstrong and selfish
+    all the rest were dark
+    since Oates armed against himself a very formidable party
