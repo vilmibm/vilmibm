@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 06 Oct 2020 03:45:01 PM CDT
+## Wed 07 Oct 2020 03:45:01 PM CDT
 
-    He went on with his singing
-    With such a fervent zeal
-    Here was a new card turned up
-    I told her how anxious I was about Jonathan
+    And she proceeded to prepare the meal
+    He hears how feeble Pleasure dies
+    A says, It will probably rain to-morrow
+    it has in between no sense that is to say music
     
-    --yes: she believed he was playing billiards with Miss Ingram
-    and get the tin-pot along by hook or by crook
-    Thus, the State does not allow children to work all their time in a factory until they are thirteen years of age
-    ' My Robert believes he was a wine-merchant
+    she again fell to caressing Carlo
+    24 The next two paragraphs repeat
+    and when, after bending to caress Carlo
+    I'm prepared to go to considerable lengths
     
-    I am ready to go to India
-    the head-quarters of which are at Belfast
-    They owed the restoration of Lydia
-    at all times excluding the light of the sun
+    And to be kept back on such a motive
+    and the earth be stretched a covering over both
+    received at first an absolute negative
+    who extended his care and hospitality to both
     
-    all the rest were dark
-    since Oates armed against himself a very formidable party
+    A great awe came on all as they realised that the ship
+    thus ever comes to me
