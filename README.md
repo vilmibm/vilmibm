@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 07 Oct 2020 03:45:01 PM CDT
+## Thu 08 Oct 2020 03:45:01 PM CDT
 
-    And she proceeded to prepare the meal
-    He hears how feeble Pleasure dies
-    A says, It will probably rain to-morrow
-    it has in between no sense that is to say music
+    It was impossible to imagine
+    The keen wind still carried the howling of the dogs
+    to make room for the tray which Leah now brought
+    As he further applies the meaning to other dogs
     
-    she again fell to caressing Carlo
-    24 The next two paragraphs repeat
-    and when, after bending to caress Carlo
-    I'm prepared to go to considerable lengths
+    of the great Light of Heaven
+    for all my faults when you have read all my budget of news
+    His method of proceeding is by varying conditions one by one so far as possible
+    when stories of this sort are among the daily news
     
-    And to be kept back on such a motive
-    and the earth be stretched a covering over both
-    received at first an absolute negative
-    who extended his care and hospitality to both
+    What a love--what a miracle I was
+    and she instantly gave her companion a nudge
+    But afterwards the common opinion was
+    which I had no doubt was the parsonage
     
-    A great awe came on all as they realised that the ship
-    thus ever comes to me
+    Did you speak, my own
+    A nd procure a pure help for me in need
