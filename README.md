@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 08 Oct 2020 03:45:01 PM CDT
+## Fri 09 Oct 2020 03:45:01 PM CDT
 
-    It was impossible to imagine
-    The keen wind still carried the howling of the dogs
-    to make room for the tray which Leah now brought
-    As he further applies the meaning to other dogs
+    Three times he went over it
+    Logical, however, is used in a third sense
+    to defend him from enemies
+    and leave her to reap the fruits of her own heinous offense
     
-    of the great Light of Heaven
-    for all my faults when you have read all my budget of news
-    His method of proceeding is by varying conditions one by one so far as possible
-    when stories of this sort are among the daily news
+    aggravated murder on a great scale
+    Elizabeth coloured and laughed as she replied
+    King, architect to the excavations scale
+    on other coffins, so that they might give light sufficient to work by
     
-    What a love--what a miracle I was
-    and she instantly gave her companion a nudge
-    But afterwards the common opinion was
-    which I had no doubt was the parsonage
+    If He can look me in the face again
+    What saves us is efficiency--the devotion to efficiency
+    Its blocks are narrower than those in any Italian town
+    but between an interest in an activity just as it flows on from moment to moment
     
-    Did you speak, my own
-    A nd procure a pure help for me in need
+    it is a terrible task that we undertake
+    that one Creature had obtained power to operate in the other
