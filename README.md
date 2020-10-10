@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 09 Oct 2020 03:45:01 PM CDT
+## Sat 10 Oct 2020 03:45:01 PM CDT
 
-    Three times he went over it
-    Logical, however, is used in a third sense
-    to defend him from enemies
-    and leave her to reap the fruits of her own heinous offense
+    There he and grisly wolves prowl'd side by side
+    it appeared she wished to finish a paragraph
+    by some exertion of politeness on their side
+    for I had to drink up all the water in my carafe
     
-    aggravated murder on a great scale
-    Elizabeth coloured and laughed as she replied
-    King, architect to the excavations scale
-    on other coffins, so that they might give light sufficient to work by
+    I before proved to you the absurdity of a single woman of your age proposing to accompany abroad a single man of mine
+    Lydia returned with Mrs
+    closing his eyes in acceptance of his sister's certainty that that was quite impossible
+    Tarquin, in contempt of his interference
     
-    If He can look me in the face again
-    What saves us is efficiency--the devotion to efficiency
-    Its blocks are narrower than those in any Italian town
-    but between an interest in an activity just as it flows on from moment to moment
+    he said: Doctor, won't you be very good to me and let me have a little more sugar
+    Darcy had brought with him a Colonel Fitzwilliam
+    and begged the Mouse to tell them something more
+    and said with some discomposure to Sir William
     
-    it is a terrible task that we undertake
-    that one Creature had obtained power to operate in the other
+    for I haven't heard from Jonathan for a whole month
+    As he took the cup from my hand
