@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 10 Oct 2020 03:45:01 PM CDT
+## Sun 11 Oct 2020 03:45:01 PM CDT
 
-    There he and grisly wolves prowl'd side by side
-    it appeared she wished to finish a paragraph
-    by some exertion of politeness on their side
-    for I had to drink up all the water in my carafe
+    and, making terms with the sovereign pontiff
+    All Meryton seemed striving to blacken the man who
+    subdued, yet emphatic voice
+    Bennet, delighted to speak to Lady Catherine
     
-    I before proved to you the absurdity of a single woman of your age proposing to accompany abroad a single man of mine
-    Lydia returned with Mrs
-    closing his eyes in acceptance of his sister's certainty that that was quite impossible
-    Tarquin, in contempt of his interference
+    The whole twenty-four years were now expired
+    The Count, even if he takes the form of a bat
+    , and planted perhaps with some regard to an actual overflow of population in contemporary Rome
+    and I could see that the noise was made by a great bat
     
-    he said: Doctor, won't you be very good to me and let me have a little more sugar
-    Darcy had brought with him a Colonel Fitzwilliam
-    and begged the Mouse to tell them something more
-    and said with some discomposure to Sir William
+    I began to feel slightly uneasy
+    and the divine command was no sooner obeyed
+    complying with the rules is very easy
+    Reproduced by permission of the author of Your Garden and Mine Illustration
     
-    for I haven't heard from Jonathan for a whole month
-    As he took the cup from my hand
+    the things that make one doubt if they be mad or sane
+    and energy exercised
