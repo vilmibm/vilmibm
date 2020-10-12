@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 11 Oct 2020 03:45:01 PM CDT
+## Mon 12 Oct 2020 03:45:01 PM CDT
 
-    and, making terms with the sovereign pontiff
-    All Meryton seemed striving to blacken the man who
-    subdued, yet emphatic voice
-    Bennet, delighted to speak to Lady Catherine
+    --she understands what she has to do
+    He was therefore content to strip her of her royal robes
+    In talking over their route the evening before
+    also an easel for painting and a pair of globes
     
-    The whole twenty-four years were now expired
-    The Count, even if he takes the form of a bat
-    , and planted perhaps with some regard to an actual overflow of population in contemporary Rome
-    and I could see that the noise was made by a great bat
+    And I, of all the wedding guests
+    so I was determined he should know it
+    A show at tick and loosen loosen it so to speak sat
+    I went into my own room to get the papers from my bag
     
-    I began to feel slightly uneasy
-    and the divine command was no sooner obeyed
-    complying with the rules is very easy
-    Reproduced by permission of the author of Your Garden and Mine Illustration
+    27 Compare the quotation from Bain on p
+    the writer of his Life
+    and it extended even to Britain p
+    seen peeping from the skirt of her dress
     
-    the things that make one doubt if they be mad or sane
-    and energy exercised
+    and amongst the rest there were notes to be written to all their friends at Lambton
+    as though to ensure that every whiff of air that might get in would be laden with the garlic smell
