@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 12 Oct 2020 03:45:01 PM CDT
+## Tue 13 Oct 2020 03:45:01 PM CDT
 
-    --she understands what she has to do
-    He was therefore content to strip her of her royal robes
-    In talking over their route the evening before
-    also an easel for painting and a pair of globes
+    Malcolm meanwhile, as he approached to the castle of Dunsinnan
+    no man being injured by the breach
+    Then he have no place where he can move and hide
+    With such kinds of histories of their parties and good jokes
     
-    And I, of all the wedding guests
-    so I was determined he should know it
-    A show at tick and loosen loosen it so to speak sat
-    I went into my own room to get the papers from my bag
+    How he died, God knows
+    in addition they are frequently treacherous
+    yes, I saw it; both the shire and the town
+    It is not good that she run a risk so great
     
-    27 Compare the quotation from Bain on p
-    the writer of his Life
-    and it extended even to Britain p
-    seen peeping from the skirt of her dress
+    coloured binding around his jacket
+    Well, said he, if you had committed a murder
+    if he is anything like what Mina says
+    The moment Miss Scatcherd withdrew after afternoon school
     
-    and amongst the rest there were notes to be written to all their friends at Lambton
-    as though to ensure that every whiff of air that might get in would be laden with the garlic smell
+    Flushed cheeks usually mean heightened temperature
+    After the first charge
