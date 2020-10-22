@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 13 Oct 2020 03:45:01 PM CDT
+## Thu 22 Oct 2020 03:45:01 PM PDT
 
-    Malcolm meanwhile, as he approached to the castle of Dunsinnan
-    no man being injured by the breach
-    Then he have no place where he can move and hide
-    With such kinds of histories of their parties and good jokes
+    of these detestable slaves of the Diuel
+    and are blind to the full brightness of the orb
+    ‘You insult me by talking such nonsense
+    Never the glorious view to greet Of hill and dale
     
-    How he died, God knows
-    in addition they are frequently treacherous
-    yes, I saw it; both the shire and the town
-    It is not good that she run a risk so great
+    Rule of Acquisition two twenty nine
+    and in a way that made me shudder
+    that they may repent and be converted
+    to beg that the carriage might be sent for them in the course of the day
     
-    coloured binding around his jacket
-    Well, said he, if you had committed a murder
-    if he is anything like what Mina says
-    The moment Miss Scatcherd withdrew after afternoon school
+    however, only another instance of his cunning
+    I have given the last memento of my sister Emily
+    One of these facts, the weight of the atmosphere
+    which is, perhaps, less frequented than the other parts
     
-    Flushed cheeks usually mean heightened temperature
-    After the first charge
+    we are scarcely less eager to meet her again
+    on which reflection would be long indulged
