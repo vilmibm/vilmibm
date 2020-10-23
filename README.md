@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 22 Oct 2020 03:45:01 PM PDT
+## Fri 23 Oct 2020 03:45:01 PM PDT
 
-    of these detestable slaves of the Diuel
-    and are blind to the full brightness of the orb
-    ‘You insult me by talking such nonsense
-    Never the glorious view to greet Of hill and dale
+    and till we know that they are not married
+    First he took from his bag a mass of what looked like thin
+    sir, that you are going shortly to be married
+    we can confine him to his coffin and destroy him
     
-    Rule of Acquisition two twenty nine
-    and in a way that made me shudder
-    that they may repent and be converted
-    to beg that the carriage might be sent for them in the course of the day
+    when the door was closed he said
+    I never heard you speak ill of a human being in your life
+    I asked if Georgiana would accompany her
+    I got it from an old man in Syria
     
-    however, only another instance of his cunning
-    I have given the last memento of my sister Emily
-    One of these facts, the weight of the atmosphere
-    which is, perhaps, less frequented than the other parts
+    At length the tiara became the purchase of an ambitious family
+    or, as we call it, The Suspension of Howls
+    A woman who could betray me for such a rival was not worth contending for
+    the irrelevant from what points to a conclusion
     
-    we are scarcely less eager to meet her again
-    on which reflection would be long indulged
+    Gratefully, cheerily Enjoy them as they fly
+    ‘in this way:-- Up above the world you fly
