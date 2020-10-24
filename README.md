@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 23 Oct 2020 03:45:01 PM PDT
+## Sat 24 Oct 2020 03:45:01 PM PDT
 
-    and till we know that they are not married
-    First he took from his bag a mass of what looked like thin
-    sir, that you are going shortly to be married
-    we can confine him to his coffin and destroy him
+    and, making terms with the sovereign pontiff
+    level with my ears, and the creaking of wood on wood
+    Even the man who contends that God is not shows all this wondrous reliance in the unseen force within his garden
+    and bade him alight, and follow him into that wood
     
-    when the door was closed he said
-    I never heard you speak ill of a human being in your life
-    I asked if Georgiana would accompany her
-    I got it from an old man in Syria
+    tangible and intangible
+    I obeyed him, and walked down to the traveller
+    de Ville of London, telling him to receive
+    The whole consisted in the art of the juggler
     
-    At length the tiara became the purchase of an ambitious family
-    or, as we call it, The Suspension of Howls
-    A woman who could betray me for such a rival was not worth contending for
-    the irrelevant from what points to a conclusion
+    but he soon afterwards said
+    --I began to fear as I wrote in this book that I was getting too diffuse
+    Holding my hand in both his own
+    Quoting an authority in Santa Barbara
     
-    Gratefully, cheerily Enjoy them as they fly
-    ‘in this way:-- Up above the world you fly
+    Inquiry was made into the origin of the scourge
+    the deluded individual gives to every gesture and motion of limb and eye an explanation that forwards the deception
