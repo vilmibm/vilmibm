@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 24 Oct 2020 03:45:01 PM PDT
+## Sun 25 Oct 2020 03:45:01 PM PDT
 
-    and, making terms with the sovereign pontiff
-    level with my ears, and the creaking of wood on wood
-    Even the man who contends that God is not shows all this wondrous reliance in the unseen force within his garden
-    and bade him alight, and follow him into that wood
+    He needs to utilize the features of the local environment which are understood to help clarify and enlarge his conceptions of the larger geographical scene to which they belong
+    his aunt would address him on his weakest side
+    and the tears rained down his cheeks
+    spoke of him in terms of the highest admiration
     
-    tangible and intangible
-    I obeyed him, and walked down to the traveller
-    de Ville of London, telling him to receive
-    The whole consisted in the art of the juggler
+    She wrote again when the visit was paid
+    The students gathered up the mutilated parts of his body
+    and it was in vain for him to resist them
+    and behind them the younger children crouched in groups
     
-    but he soon afterwards said
-    --I began to fear as I wrote in this book that I was getting too diffuse
-    Holding my hand in both his own
-    Quoting an authority in Santa Barbara
+    listened to the clash of unknown armies
+    This Oil hath in it a great fatness
+    You remember I told you I had been struck at the distance by certain attempts at ornamentation
+    women is almost confined to London
     
-    Inquiry was made into the origin of the scourge
-    the deluded individual gives to every gesture and motion of limb and eye an explanation that forwards the deception
+    learned shorthand and French in the evenings so that she might be able to get a better position later on
+    of which I hope you will approve
