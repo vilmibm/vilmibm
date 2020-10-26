@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 25 Oct 2020 03:45:01 PM PDT
+## Mon 26 Oct 2020 03:45:01 PM PDT
 
-    He needs to utilize the features of the local environment which are understood to help clarify and enlarge his conceptions of the larger geographical scene to which they belong
-    his aunt would address him on his weakest side
-    and the tears rained down his cheeks
-    spoke of him in terms of the highest admiration
+    1 1 This mode of thinking in its contrast with thoughtful inquiry receives special notice in the next chapter
+    like praying on a very tumultuous scale
+    But then, each from his own side
+    the mutilated one, he kept hidden in his bosom
     
-    She wrote again when the visit was paid
-    The students gathered up the mutilated parts of his body
-    and it was in vain for him to resist them
-    and behind them the younger children crouched in groups
+    He opened it, and for an instant his face fell
+    Bright was the lustre of her eyes
+    of whom twenty-one were excellent examples of humanity
+    and provokes a desire to hunt and fight at Venus sports
     
-    listened to the clash of unknown armies
-    This Oil hath in it a great fatness
-    You remember I told you I had been struck at the distance by certain attempts at ornamentation
-    women is almost confined to London
+    almost all of which belong to places within one hundred miles of New York City
+    but what do missionaries care for rhetoric
+    Elizabeth tried to be diverted by them
+    ’ said the Queen, turning purple
     
-    learned shorthand and French in the evenings so that she might be able to get a better position later on
-    of which I hope you will approve
+    As things are at present
+    ------------------------------------------------------------------------ CHAPTER II The Little Dead Mouse It would seem impossible for any one to escape from the Death-Chamber
