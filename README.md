@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 26 Oct 2020 03:45:01 PM PDT
+## Tue 27 Oct 2020 03:45:01 PM PDT
 
-    1 1 This mode of thinking in its contrast with thoughtful inquiry receives special notice in the next chapter
-    like praying on a very tumultuous scale
-    But then, each from his own side
-    the mutilated one, he kept hidden in his bosom
+    A little monkey goes like a donkey
+    the things that make one doubt if they be mad or sane
+    weeks, and months pass by
+    he became instantly the prey of an abject funk
     
-    He opened it, and for an instant his face fell
-    Bright was the lustre of her eyes
-    of whom twenty-one were excellent examples of humanity
-    and provokes a desire to hunt and fight at Venus sports
+    the high temperature maintained in the mills
+    and the duchess of Gloucester as accessory
+    a strong sense of the rugged charm of the hills
+    Does not Sophie sleep with Adele in the nursery
     
-    almost all of which belong to places within one hundred miles of New York City
-    but what do missionaries care for rhetoric
-    Elizabeth tried to be diverted by them
-    ’ said the Queen, turning purple
+    Let the fool gape and shudder--the man knows
+    Morris was looking steadily at the window
+    and the other doctor who attended her knows
+    I shall not mind any flapping outside the window
     
-    As things are at present
-    ------------------------------------------------------------------------ CHAPTER II The Little Dead Mouse It would seem impossible for any one to escape from the Death-Chamber
+    ye could tell what they said
+    who, with minds perfectly disengaged and free
