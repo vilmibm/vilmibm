@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 27 Oct 2020 03:45:01 PM PDT
+## Wed 28 Oct 2020 03:45:01 PM PDT
 
-    A little monkey goes like a donkey
-    the things that make one doubt if they be mad or sane
-    weeks, and months pass by
-    he became instantly the prey of an abject funk
+    helped perhaps by his mysterious glamour
+    and laid quietly side by side under one slab
+    during which my own heart beat like a trip hammer
+    about fifteen or sixteen
     
-    the high temperature maintained in the mills
-    and the duchess of Gloucester as accessory
-    a strong sense of the rugged charm of the hills
-    Does not Sophie sleep with Adele in the nursery
+    i a felt difficulty; ii its location and definition
+    that he should shortly have a maruellous good thing happen to him
+    lights are not ponderous and incalculable
+    And for a moment it seemed to me as if I also were buried in a vast grave full of unspeakable secrets
     
-    Let the fool gape and shudder--the man knows
-    Morris was looking steadily at the window
-    and the other doctor who attended her knows
-    I shall not mind any flapping outside the window
+    and somewhere far off an early cock crew
+    and alarm the inhabitants of the globe with the sight of devouring flames
+    * * * * * On 14 July was somewhat anxious about crew
+    What sweet madness has seized me
     
-    ye could tell what they said
-    who, with minds perfectly disengaged and free
+    though I could see no stars and only by a vague
+    V I awoke suddenly as though something had awakened me
