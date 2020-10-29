@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 28 Oct 2020 03:45:01 PM PDT
+## Thu 29 Oct 2020 03:45:01 PM PDT
 
-    helped perhaps by his mysterious glamour
-    and laid quietly side by side under one slab
-    during which my own heart beat like a trip hammer
-    about fifteen or sixteen
+    ‘Now tell me, Pat, what’s that in the window
+    He was no less in favour afterwards with Charles the Ninth
+    and leaving the Count's room by the window
+    swung to her anchor without a flutter of the sails
     
-    i a felt difficulty; ii its location and definition
-    that he should shortly have a maruellous good thing happen to him
-    lights are not ponderous and incalculable
-    And for a moment it seemed to me as if I also were buried in a vast grave full of unspeakable secrets
+    He became almost speechless for a minute
+    even in the dark, easy enough
+    and that now we had got into the thunderous one
+    Samsa sat upright there in their marriage bed and had to make an effort to get over the shock caused by the cleaner before they could grasp what she was saying
     
-    and somewhere far off an early cock crew
-    and alarm the inhabitants of the globe with the sight of devouring flames
-    * * * * * On 14 July was somewhat anxious about crew
-    What sweet madness has seized me
+    Behold, and prove the change
+    He was no sooner recovered
+    What we have not yet mastered
+    there was a constant source of vexation and regret
     
-    though I could see no stars and only by a vague
-    V I awoke suddenly as though something had awakened me
+    and delivers us out of manifold Dangers
+    Brighton, and a whole campful of soldiers
