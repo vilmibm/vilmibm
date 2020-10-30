@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 29 Oct 2020 03:45:01 PM PDT
+## Fri 30 Oct 2020 03:45:01 PM PDT
 
-    ‘Now tell me, Pat, what’s that in the window
-    He was no less in favour afterwards with Charles the Ninth
-    and leaving the Count's room by the window
-    swung to her anchor without a flutter of the sails
+    to see if you are substance or shadow
+    that she could hardly reply with tolerable civility to the polite inquiries which he directly afterwards approached to make
+    only threw her face into deeper shadow
+    but the attribute of stainless truth was gone from his idea
     
-    He became almost speechless for a minute
-    even in the dark, easy enough
-    and that now we had got into the thunderous one
-    Samsa sat upright there in their marriage bed and had to make an effort to get over the shock caused by the cleaner before they could grasp what she was saying
+    societies which are all still alive
+    and at one time appointed one Bartholomew
+    I've been doing my best to keep him alive
+    Alike, while I have holiday
     
-    Behold, and prove the change
-    He was no sooner recovered
-    What we have not yet mastered
-    there was a constant source of vexation and regret
+    He lost his elder brother a few years since
+    ’ said the Mouse, getting up and walking away
+    What sudden eagerness is this you evince
+    I am sure I shall break mine
     
-    and delivers us out of manifold Dangers
-    Brighton, and a whole campful of soldiers
+    with no harsh wind, no forgetting duty
+    Before many minutes had passed a pack of them poured
