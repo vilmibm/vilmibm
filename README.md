@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 30 Oct 2020 03:45:01 PM PDT
+## Sat 31 Oct 2020 03:45:01 PM PDT
 
-    to see if you are substance or shadow
-    that she could hardly reply with tolerable civility to the polite inquiries which he directly afterwards approached to make
-    only threw her face into deeper shadow
-    but the attribute of stainless truth was gone from his idea
+    and everybody was pleased to know how much they had always disliked Mr
+    I saw the outline of a form under the clothes
+    however, in believing the housekeeper
+    I was tired with the heavy walking and sat down to rest
     
-    societies which are all still alive
-    and at one time appointed one Bartholomew
-    I've been doing my best to keep him alive
-    Alike, while I have holiday
+    made my conscience recoil from the arrangement
+    Quincey Morris said nothing about his intention
+    Nature: I will seek her breast and ask repose
+    I did so, not at first aware what was his intention
     
-    He lost his elder brother a few years since
-    ’ said the Mouse, getting up and walking away
-    What sudden eagerness is this you evince
-    I am sure I shall break mine
+    I took a book--some Arabian tales
+    She said Good morning
+    and subsisted entirely on fruits and herbs
+    by means of the spiritual Air
     
-    with no harsh wind, no forgetting duty
-    Before many minutes had passed a pack of them poured
+    How long has she been such a favourite
+    and where they were now to spend a few days
