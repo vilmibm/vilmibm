@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 31 Oct 2020 03:45:01 PM PDT
+## Sun 01 Nov 2020 03:45:01 PM PST
 
-    and everybody was pleased to know how much they had always disliked Mr
-    I saw the outline of a form under the clothes
-    however, in believing the housekeeper
-    I was tired with the heavy walking and sat down to rest
+    It is, however, as a sorcerer
+    however incapable of such coarseness of expression herself
+    in short, of all the arts of a sorcerer
+    and far extenuated, therefore the Tincture Spirit can the more abundantly pass thorough and possess them
     
-    made my conscience recoil from the arrangement
-    Quincey Morris said nothing about his intention
-    Nature: I will seek her breast and ask repose
-    I did so, not at first aware what was his intention
+    This violence is all most repulsive
+    and which tend to create mechanical routine
+    would have been held tolerably comprehensive
+    take out with me to India a girl of nineteen
     
-    I took a book--some Arabian tales
-    She said Good morning
-    and subsisted entirely on fruits and herbs
-    by means of the spiritual Air
+    It was short, and thus conceived
+    or something of that sort
+    to witness the subjugation of that vigorous spirit to a corporeal infirmity
+    as subtle and tenacious as those of burning pitch
     
-    How long has she been such a favourite
-    and where they were now to spend a few days
+    tree two more bundles of acute angles sat with their legs drawn up
+    -- But Madam Mina told me you were ill
