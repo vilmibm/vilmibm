@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 02 Nov 2020 03:45:01 PM PST
+## Tue 03 Nov 2020 03:45:01 PM PST
 
-    Hewitt Illustration: PLATE 37 Vernon Court
-    and whom she loved; and that sacred bell going Toll
-    Mid the unknown sea, of life I no blest isle have found
-    however, to any conversation
+    In the night he may lie hidden somewhere
+    without it, it would be difficult to proceed
+    as indeed the greatest have been everywhere
+    It shows no shade, in come little wood cuts and blessing and nearly not that not with a wild bought in
     
-    he said, whispering mysteriously
-    all her apprehension of meeting its owner returned
-    which usually hug the shore so closely
-    he flung himself in the fire without being burned
+    In these two latter, however
+    He sought wisdom in its retreats of fairest promise
+    There wasn't much people about that day
+    Reed probably considered she had kept this promise
     
-    had long admitted women as members
-    This, in fact, marked the extent of her weakness
-    which she read by the dim glare of the embers
-    He really ought to have expected things to have changed
+    The stems of myrtle grew and flourished
+    vainly fancying that each shaft launched hit the mark
+    A change, a final change includes potatoes
+    I found the rules of the establishment were too strict
     
-    that the flowers were of medicinal value
-    General Secretary, W
+    reigned most eminently the sabbath of magic and sorcery
+    It is much to do, and
