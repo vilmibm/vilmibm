@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 05 Nov 2020 03:45:01 PM PST
+## Fri 06 Nov 2020 03:45:01 PM PST
 
-    There on the bed, seemingly in a swoon
-    So, resting on a heathy bank
-    I know you will do him such ample justice
-    These things serve to shew of what importance he was in his own eyes
+    When some modern scholars call the men of the Terremare by the name Italici'
+    He boasts that his exposition is founded on an exact observation of the judicial proceedings which had taken place under his eye in the duchy of Lorraine
+    would not be likely to abandon their just rights
+    Trained assistants female begin at £85 a year
     
-    the place is not in effect a real town
-    Is it strange that when Arpad and his legions swept through the Hungarian fatherland he found us here when he reached the frontier
-    During Gregor's short periods in town
-    and the place as bare as a stubble-field
+    SAUVETERRE-DE-GUYENNE
+    and whom she loved; and that sacred bell going Toll
+    The French, who were so infinitely indebted to her achievements
+    Shall we ask him why a man of sense and education
     
-    inasmuch as it supposed the creator of the world to be subject to the influence of the stars
-    Each of the others was similarly equipped
-    We went at once into our Plan of Campaign
-    Do you know why I asked her to get the manuscript
+    and give you to understand
+    Fines for late attendance range as a rule from 1 d
+    ’ ‘Not a bit,’ said the Caterpillar
+    Tell me, pray,' said I
     
-    who come in and help at times of special pressure
-    So I said as gently as I could
+    Thus let me serve Thee from my heart
+    for even at the moment I wondered what we were to do
