@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 06 Nov 2020 03:45:01 PM PST
+## Sat 07 Nov 2020 03:45:01 PM PST
 
-    When some modern scholars call the men of the Terremare by the name Italici'
-    He boasts that his exposition is founded on an exact observation of the judicial proceedings which had taken place under his eye in the duchy of Lorraine
-    would not be likely to abandon their just rights
-    Trained assistants female begin at £85 a year
+    and corporal by the Mineral
+    in which was preserved the real head of Medusa
+    A change, a final change includes potatoes
+    I could hear the beating of her naked hands against the door
     
-    SAUVETERRE-DE-GUYENNE
-    and whom she loved; and that sacred bell going Toll
-    The French, who were so infinitely indebted to her achievements
-    Shall we ask him why a man of sense and education
+    The solo over, a duet followed
+    He imposed upon himself
+    and walked a little quicker
+    Do you know why I asked her to get the manuscript
     
-    and give you to understand
-    Fines for late attendance range as a rule from 1 d
-    ’ ‘Not a bit,’ said the Caterpillar
-    Tell me, pray,' said I
+    in his presence I thoroughly lived
+    You keep watch all night
+    Yes, I knew the character of this landscape
+    While however he was engaged in these sacred offices
     
-    Thus let me serve Thee from my heart
-    for even at the moment I wondered what we were to do
+    At Fundu we could not hear of any such boat
+    stream, crept the little begrimed steamboat
