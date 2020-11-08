@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 07 Nov 2020 03:45:01 PM PST
+## Sun 08 Nov 2020 03:45:01 PM PST
 
-    and corporal by the Mineral
-    in which was preserved the real head of Medusa
-    A change, a final change includes potatoes
-    I could hear the beating of her naked hands against the door
+    he attended to Lucy, whilst I applied digital pressure to my own incision
+    and to fret over unavoidable evils
+    and within the circlet of a band of gems
+    b Definite Hygienic Regulations
     
-    The solo over, a duet followed
-    He imposed upon himself
-    and walked a little quicker
-    Do you know why I asked her to get the manuscript
+    It was then well on in the afternoon
+    for tis yet unfix'd and volatile
+    he bound me by vow to keep the creature
+    Teachers who have heard that they should avoid matters foreign to pupils' experience
     
-    in his presence I thoroughly lived
-    You keep watch all night
-    Yes, I knew the character of this landscape
-    While however he was engaged in these sacred offices
+    in a different way, by another
+    with a little house in it about four feet high
+    This good lady is followed by another
+    and the percentage of new trials granted is high
     
-    At Fundu we could not hear of any such boat
-    stream, crept the little begrimed steamboat
+    There was some sense of freedom in the vast expanse
+    at which it will be interesting to glance
