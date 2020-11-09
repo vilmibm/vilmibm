@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 08 Nov 2020 03:45:01 PM PST
+## Mon 09 Nov 2020 03:45:01 PM PST
 
-    he attended to Lucy, whilst I applied digital pressure to my own incision
-    and to fret over unavoidable evils
-    and within the circlet of a band of gems
-    b Definite Hygienic Regulations
+    the Sulphur is then fixd which is therein
+    all the evil things in the world will have full sway
+    that if any thing should yet remain therein
+    though there is a period of time which I remember mistily
     
-    It was then well on in the afternoon
-    for tis yet unfix'd and volatile
-    he bound me by vow to keep the creature
-    Teachers who have heard that they should avoid matters foreign to pupils' experience
+    to-morrow I will write the other half
+    her disk was blood-red and half overcast
+    and we put a white one in by mistake
+    My tears collect, and fall unfelt
     
-    in a different way, by another
-    with a little house in it about four feet high
-    This good lady is followed by another
-    and the percentage of new trials granted is high
+    The space of a minute having elapsed
+    and in this early example of what Lydia's infamy must produce
+    until the seventh or eighth month has elapsed
+    Maybe not poison, but a small intestinal bug
     
-    There was some sense of freedom in the vast expanse
-    at which it will be interesting to glance
+    or shades of night, Have wrapt the parent orb away
+    musical laugh, but as hard as though the sound never could have come through the softness of human lips
