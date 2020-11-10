@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 09 Nov 2020 03:45:01 PM PST
+## Tue 10 Nov 2020 03:45:01 PM PST
 
-    the Sulphur is then fixd which is therein
-    all the evil things in the world will have full sway
-    that if any thing should yet remain therein
-    though there is a period of time which I remember mistily
+    like that and not more like that than the same resemblance and not more like that than no middle space in cutting
+    she had no point to which interest could attach
+    You can hardly doubt the purport of my discourse
+    -- The truest love that ever heart Felt at its kindled core
     
-    to-morrow I will write the other half
-    her disk was blood-red and half overcast
-    and we put a white one in by mistake
-    My tears collect, and fall unfelt
+    Bennet had no more to say
+    I can never submit to do that--yet how are we to get on
+    as in the present case
+    I can only trust in God and wait till the fog clears
     
-    The space of a minute having elapsed
-    and in this early example of what Lydia's infamy must produce
-    until the seventh or eighth month has elapsed
-    Maybe not poison, but a small intestinal bug
+    that they might fix on an auspicious day for celebrating her coronation
+    Early this morning, one crew took us for a Government boat
+    We had better go into the avenue
+    where he remained six days under the same figure
     
-    or shades of night, Have wrapt the parent orb away
-    musical laugh, but as hard as though the sound never could have come through the softness of human lips
+    He will now come on to Bukovina
+    , in days that are only half historic
