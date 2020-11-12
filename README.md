@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 11 Nov 2020 03:45:01 PM PST
+## Thu 12 Nov 2020 03:45:01 PM PST
 
-    so that it was almost impossible to breathe in it
-    with short jackets and round hats and home-made trousers
-    Then before the appealing fixity of her gaze
-    which he shall have presently
+    put this Matter so ground into a Pot
+    He next turned in pursuit of the adulterer
+    or I’ll have you executed on the spot
+    called on me one day and made inquiries
     
-    but the door did not yield
-    The place was shown to be very like the last time
-    I am afraid, she continued
-    I read to him the notes which I had made at the time
+    It was too far to return to dinner
+    -- I'll be quiet, Doctor
+    It was a discoloured face--it was a savage face
+    She immediately picked it up - using a rag
     
-    Fairfax turned out to be what she appeared
-    all of whom lived about this time
-    beyond which the beck rushed down a waterfall
-    the Elements have already brought forth the Spirit perfect into the world by the Nutriment
+    They were presently put to the torture
+    which makes a breach and difference
+    I see the necessity of departure
+    ol the multitude of partisans who insisted on their immediate release
     
-    It is the beginning of the Vegetable Book
-    and seemed reading in a little black book
+    From the height where we were it was possible to see a great distance
+    --she corrected herself with beautiful generosity
