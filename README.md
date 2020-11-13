@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 12 Nov 2020 03:45:01 PM PST
+## Fri 13 Nov 2020 03:45:01 PM PST
 
-    put this Matter so ground into a Pot
-    He next turned in pursuit of the adulterer
-    or I’ll have you executed on the spot
-    called on me one day and made inquiries
+    and derided them again
+    A purse was not green
+    and then, unwilling to let the subject drop
+    where she worked all day
     
-    It was too far to return to dinner
-    -- I'll be quiet, Doctor
-    It was a discoloured face--it was a savage face
-    She immediately picked it up - using a rag
+    Darcy, she moved again towards the gate
+    whose only principle of action was caprice
+    or interest the fancy
+    such as we have met in Pre-Macedonian Greece
     
-    They were presently put to the torture
-    which makes a breach and difference
-    I see the necessity of departure
-    ol the multitude of partisans who insisted on their immediate release
+    the residence of the kings of Poland
+    This he finally handed to Lord Godalming
+    was lord protector of the realm of England
+    I could walk the matted floor as softly as a cat
     
-    From the height where we were it was possible to see a great distance
-    --she corrected herself with beautiful generosity
+    but I did not say anything
+    and be entreated to be pacified that he hath manifested this
