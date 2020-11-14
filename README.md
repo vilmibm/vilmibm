@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 13 Nov 2020 03:45:01 PM PST
+## Sat 14 Nov 2020 03:45:01 PM PST
 
-    and derided them again
-    A purse was not green
-    and then, unwilling to let the subject drop
-    where she worked all day
+    y themselves, passing through the woods and fields
+    But his mother was to be punished still more for what she had done
+    People do not die of little trifling colds
+    Near by, on Huntting Lane
     
-    Darcy, she moved again towards the gate
-    whose only principle of action was caprice
-    or interest the fancy
-    such as we have met in Pre-Macedonian Greece
+    has twice been served out to the girls during the past fortnight
+    They were of course all intending to be surprised
+    But not that she can ne'er return To share our earthly woe
+    in coloring and setting most perfectly devised
     
-    the residence of the kings of Poland
-    This he finally handed to Lord Godalming
-    was lord protector of the realm of England
-    I could walk the matted floor as softly as a cat
+    they merit severe reproof
+    The power to dismiss at a moment’s notice is not merely reserved for grave offences
+    One of the jurors had a pencil that squeaked
+    But the town-plans which we shall meet in the following chapters show very much the same outlines as those of the camp or of the farm plots
     
-    but I did not say anything
-    and be entreated to be pacified that he hath manifested this
+    The officials can, but will not
+    women only are employed
