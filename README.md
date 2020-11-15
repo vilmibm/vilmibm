@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 14 Nov 2020 03:45:01 PM PST
+## Sun 15 Nov 2020 03:45:01 PM PST
 
-    y themselves, passing through the woods and fields
-    But his mother was to be punished still more for what she had done
-    People do not die of little trifling colds
-    Near by, on Huntting Lane
+    Then the horror overcame me
+    and millions are in silent revolt against their lot
+    This steamboat was exactly like a decked scow
+    the charm of the hour lay in its approaching dimness
     
-    has twice been served out to the girls during the past fortnight
-    They were of course all intending to be surprised
-    But not that she can ne'er return To share our earthly woe
-    in coloring and setting most perfectly devised
+    What brings thee here Beneath these sullen skies
+    From these repeated explanations Gregor learned
+    an imaginary scene of retirement
+    the ----shire was to leave Meryton in a week or fortnights time
     
-    they merit severe reproof
-    The power to dismiss at a moment’s notice is not merely reserved for grave offences
-    One of the jurors had a pencil that squeaked
-    But the town-plans which we shall meet in the following chapters show very much the same outlines as those of the camp or of the farm plots
+    for she was a most determined talker
+    The scale suggested by the Acts is very low
+    particularly Cromwel said
+    I then sat with my doll on my knee till the fire got low
     
-    The officials can, but will not
-    women only are employed
+    however, it only grinned a little wider
+    as is also the garden at Edgecombe
