@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 15 Nov 2020 03:45:01 PM PST
+## Mon 16 Nov 2020 03:45:01 PM PST
 
-    Then the horror overcame me
-    and millions are in silent revolt against their lot
-    This steamboat was exactly like a decked scow
-    the charm of the hour lay in its approaching dimness
+    He pressed his hand firmer on my head
+    with whom spite and ill-will had the predominance
+    wraith-like apparel it contained
+    perswading them withall to be of good cheare
     
-    What brings thee here Beneath these sullen skies
-    From these repeated explanations Gregor learned
-    an imaginary scene of retirement
-    the ----shire was to leave Meryton in a week or fortnights time
+    emaciated, pallid wanderer
+    and then pursued the course which Merlin had prescribed
+    We repaired to the Coliseum
+    fated to last as long as the marble it inscribed
     
-    for she was a most determined talker
-    The scale suggested by the Acts is very low
-    particularly Cromwel said
-    I then sat with my doll on my knee till the fire got low
+    but we cant take in a vagrant to lodge
+    Dee had a long conference with the emperor
+    -- Ierne, round our sheltered hall Novembers gusts unheeded call
+    Yet underneath this unrippled surface was a tremendous tragic depth
     
-    however, it only grinned a little wider
-    as is also the garden at Edgecombe
+    n he was baptized, he continued with Philip
+    Her mind was less difficult to develop
