@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 17 Nov 2020 03:45:01 PM PST
+## Wed 18 Nov 2020 03:45:01 PM PST
 
-    they always contrived to learn some from their aunt
-    ’ the Rabbit hastily interrupted
-    the God is sufficient for the protection of his rights
-    and endeavours to articulate
+    I will go out of doors and feel it
+    in addition they are frequently treacherous
+    That must be why you're losing so badly
+    have not influence to cure me of my faults
     
-    and with an adjoining flower garden
-    righteous blood, shed shamelessly
-    so either way I’ll get into the garden
-    the rectangular street-plan has been regarded by soldiers as useful in defending the streets of a town
+    Indeed I do, was the reply
+    without concealed speeches
+    --It is impossible to give any estimate of the value of either music or painting as a means of livelihood
+    and wondered what unseen spirit had been sitting for weeks by my heart watching its workings and taking record of every pulse
     
-    Not valuing now the root whence it sprang
-    81 In Roman times Florence was a colonia'
-    Just at this moment the parlour-bell rang
-    and then he went on:-- We are in Transylvania
+    it must be admitted that there has been
+    even such as I had noticed in the howling sorrow of these savages in the bush
+    I was not so sleepy as I should have been
+    and the gentlemen did nothing but eat and admire
     
-    His heels leaped together over the little doorstep
-    some have been established complete
+    Thank God there is the other copy in the safe
+    so now he is intent on being safe
