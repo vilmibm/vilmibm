@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 18 Nov 2020 03:45:01 PM PST
+## Thu 19 Nov 2020 03:45:01 PM PST
 
-    I will go out of doors and feel it
-    in addition they are frequently treacherous
-    That must be why you're losing so badly
-    have not influence to cure me of my faults
+    perhaps none of them is appropriate
+    and they both sat down
+    I have to stay here and play the idiot
+    You never shall go: you have not consented
     
-    Indeed I do, was the reply
-    without concealed speeches
-    --It is impossible to give any estimate of the value of either music or painting as a means of livelihood
-    and wondered what unseen spirit had been sitting for weeks by my heart watching its workings and taking record of every pulse
+    46, but train was an hour late
+    He could have settled her with a well-planted blow
+    I could hear his voice in the hall
+    or wreathed snow, And whisper when the wild winds blow
     
-    it must be admitted that there has been
-    even such as I had noticed in the howling sorrow of these savages in the bush
-    I was not so sleepy as I should have been
-    and the gentlemen did nothing but eat and admire
+    I should think she had as good a chance of happiness as if she were to be studying his character for a twelvemonth
+    that they who are good-natured when children
+    Then you would drink a great deal more than you ought
+    and glide through the dazzled ranks of the village children
     
-    Thank God there is the other copy in the safe
-    so now he is intent on being safe
+    For the most part they are described to us as of a stature and appearance
+    the latter must be a series of tacks
