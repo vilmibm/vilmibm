@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 19 Nov 2020 03:45:01 PM PST
+## Fri 20 Nov 2020 03:45:01 PM PST
 
-    perhaps none of them is appropriate
-    and they both sat down
-    I have to stay here and play the idiot
-    You never shall go: you have not consented
+    I, in my turn, scrutinised the paper
+    the night grew dark; rain came driving fast on the gale
+    But I don’t mind it a bit—only the paper
+    considering everything why is there no restraint
     
-    46, but train was an hour late
-    He could have settled her with a well-planted blow
-    I could hear his voice in the hall
-    or wreathed snow, And whisper when the wild winds blow
+    both of you, than friend John here
+    these were ornamented all over with diamonds
+    I instantly resolved on setting off for this place
+    As we went along, Kitty and I drew up the blinds
     
-    I should think she had as good a chance of happiness as if she were to be studying his character for a twelvemonth
-    that they who are good-natured when children
-    Then you would drink a great deal more than you ought
-    and glide through the dazzled ranks of the village children
+    Seward ; this was said with a leer of inexpressible cunning
+    The superintendent of elections was the night keeper
+    and makes their eyes white
+    together with the mode and the amount of its operation
     
-    For the most part they are described to us as of a stature and appearance
-    the latter must be a series of tacks
+    and it all seems like a horrible tragedy
+    The muscular hand broke from my custody
