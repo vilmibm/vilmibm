@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 20 Nov 2020 03:45:01 PM PST
+## Sat 21 Nov 2020 03:45:01 PM PST
 
-    I, in my turn, scrutinised the paper
-    the night grew dark; rain came driving fast on the gale
-    But I don’t mind it a bit—only the paper
-    considering everything why is there no restraint
+    Again and again he said
+    so he began, as quickly as possible and with frequent anxious glances at his father
+    so that the initiate might fashion a shape for any divinity or any demon
+    I'm prepared to go to considerable lengths
     
-    both of you, than friend John here
-    these were ornamented all over with diamonds
-    I instantly resolved on setting off for this place
-    As we went along, Kitty and I drew up the blinds
+    As for me, my own affairs are regulate
+    and pretended there was nobody in the coach
+    and endeavours to articulate
+    like any other English school-girl
     
-    Seward ; this was said with a leer of inexpressible cunning
-    The superintendent of elections was the night keeper
-    and makes their eyes white
-    together with the mode and the amount of its operation
+    m, looks as if it had been through the wars
+    Old Lord Ingram's estates were chiefly entailed
+    Most of the books were locked up behind glass doors
+    No; but it must be done soon
     
-    and it all seems like a horrible tragedy
-    The muscular hand broke from my custody
+    he took it down, and withdrawing to his accustomed window recess
+    Lady Lucas herself has often said so
