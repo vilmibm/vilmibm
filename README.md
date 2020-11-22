@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 21 Nov 2020 03:45:01 PM PST
+## Sun 22 Nov 2020 03:45:01 PM PST
 
-    Again and again he said
-    so he began, as quickly as possible and with frequent anxious glances at his father
-    so that the initiate might fashion a shape for any divinity or any demon
-    I'm prepared to go to considerable lengths
+    then you will, without a moments delay
+    the window-curtain half hides me
+    most full, most exquisite
+    12 An ingenious method in use in some Welsh towns deserves notice
     
-    As for me, my own affairs are regulate
-    and pretended there was nobody in the coach
-    and endeavours to articulate
-    like any other English school-girl
+    All the time of the burial he was
+    He's made a little frame
+    hands behind him, pipe in the corner of his mouth
+    and even, in extreme cases
     
-    m, looks as if it had been through the wars
-    Old Lord Ingram's estates were chiefly entailed
-    Most of the books were locked up behind glass doors
-    No; but it must be done soon
+    when I had asked to see the clergyman
+    when he published a Prophetical Almanac
+    which apply equally to men and women
+    I know how much you dislike him
     
-    he took it down, and withdrawing to his accustomed window recess
-    Lady Lucas herself has often said so
+    that if any thing should yet remain therein
+    CINCINNATI, OHIO 133 134 SHADYSIDE
