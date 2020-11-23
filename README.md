@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 22 Nov 2020 03:45:01 PM PST
+## Mon 23 Nov 2020 03:45:01 PM PST
 
-    then you will, without a moments delay
-    the window-curtain half hides me
-    most full, most exquisite
-    12 An ingenious method in use in some Welsh towns deserves notice
+    Bingley was good-looking and gentlemanlike
+    Yet, I'll not give my inward faith My honour's NAME to spare
+    For, had she live one more day
+    would he sign the paper
     
-    All the time of the burial he was
-    He's made a little frame
-    hands behind him, pipe in the corner of his mouth
-    and even, in extreme cases
+    or whatever it was, might be the means of that manifest loss of blood
+    The host himself brought my breakfast into the parlour
+    is described in the romance as having been born in 1491
+    strengthen the Fire yet more
     
-    when I had asked to see the clergyman
-    when he published a Prophetical Almanac
-    which apply equally to men and women
-    I know how much you dislike him
+    Adele brought her stool to my feet
+    to throw the shutter open and let off that Martini-Henry
+    Here comes Madam Mina
+    and no hotter, either a very little hotter
     
-    that if any thing should yet remain therein
-    CINCINNATI, OHIO 133 134 SHADYSIDE
+    I knew now well enough where to find the monster I sought
+    ample, and far-stretching highway which gave space for the ceremonies and the processions
