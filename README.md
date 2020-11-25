@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 24 Nov 2020 03:45:01 PM PST
+## Wed 25 Nov 2020 03:45:01 PM PST
 
-    and that brow professes to say
-    That depends on circumstances
-    had come to my cage with the burning paper spill
-    and vied with each other in reciting the miraculous phenomena which marked every step in her progress
+    Not meeting any sufficient response
+    he went on, is acutely sensible to her charms
+    I am all obedience, was the response
+    Witches also claimed the faculty of raising storms
     
-    They were presently put to the torture
-    to mere school traditions
-    I see the necessity of departure
-    Tom, with a cheery laugh
+    and he limped badly on his two rows of legs
+    prayed for them, that they might receive the Holy Ghost
+    She saw herself the object of attention
+    The Director of Companies was our captain and our host
     
-    Actually, I don't like jumja sticks
-    and Elizabeth, agitated and confused
-    By what applications shall I try to fix
-    Lizzy, cried her mother
+    Though our kind uncle has done something towards clearing him
+    which you may easily try
+    -- Back, back, to your own place
+    and when you know what it is I propose to do you will know
     
-    I get unreasonably angry with John sometimes
-    What makes you so venturesome and hardy
+    They do feed themselves
+    no piteous cry or agonised entreaty
