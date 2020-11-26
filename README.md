@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 25 Nov 2020 03:45:01 PM PST
+## Thu 26 Nov 2020 03:45:01 PM PST
 
-    Not meeting any sufficient response
-    he went on, is acutely sensible to her charms
-    I am all obedience, was the response
-    Witches also claimed the faculty of raising storms
+    gigantic in size, splendid with sculpture
+    The party did not supply much conversation
+    and the driver said in excellent German
+    we shall decide on some definite cause of action
     
-    and he limped badly on his two rows of legs
-    prayed for them, that they might receive the Holy Ghost
-    She saw herself the object of attention
-    The Director of Companies was our captain and our host
+    she was an exact, clever manager
+    which Colours they gained out of the starry Heaven by the operation of the Elements
+    and I took my place opposite the manager
+    should seek to enforce a standard of healthiness
     
-    Though our kind uncle has done something towards clearing him
-    which you may easily try
-    -- Back, back, to your own place
-    and when you know what it is I propose to do you will know
+    I mastered the rising hysteria
+    that she then spent her fury on your wedding apparel
+    I got it from an old man in Syria
+    and then up a great winding stair
     
-    They do feed themselves
-    no piteous cry or agonised entreaty
+    Many also of these teachers have had considerable experience in other schools before entering the one in which they are at present engaged
+    it was quite different from lying on the floor
