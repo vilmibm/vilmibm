@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 27 Nov 2020 03:45:01 PM PST
+## Sat 28 Nov 2020 03:45:01 PM PST
 
-    for it tells in its way the story of his race
-    twice the extent of mediaeval London
-    I wish these girls to be the children of Grace
-    he take hundreds of years to get so far as London
+    The money was raised
+    it means a regular notion of exercise
+    above all things give thanks unto God day and night without ceasing
+    as he might think fit to adopt and to exercise
     
-    whether perennials or annuals
-    has to begin a second spell of work at home
-    choose your most delicate camel-hair pencils
-    I felt like the messenger-pigeon flying home
+    once more I was stowed away in the coach
+    After amusing himself some time with their curiosity
+    Then I descended from the side of the coach
+    ’ said the Queen, who had meanwhile been examining the roses
     
-    No more presents were exchanged after that
-    like the ghost of Samuel in the sacred story
-    Why did you select him—a man with a jaw like that
-    Because it is a part of the terrible story
+    Accordingly, when she retired at night
+    While the Panther received knife and fork with a growl
+    like a king speaking
+    too, a man-eater, and he never cease to prowl
     
-    nothing happened to interrupt the quiet course of Adele's studies
-    worse than a legion of such as we imagine
+    asked Eliza, who had approached me unnoticed
+    but the supreme dream of the alchemist
