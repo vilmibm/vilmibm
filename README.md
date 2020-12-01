@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 30 Nov 2020 03:45:01 PM PST
+## Tue 01 Dec 2020 03:45:01 PM PST
 
-    I shall tell Colonel Forster it will be quite a shame if he does not
-    and properly so; for had we not all become intimately acquainted with Law
-    He had, however, bolted the stable door
-    but in the East on the contrary it is only valued in proportion to its rarity
+    Your uncle is as much surprised as I am--and nothing but the belief of your being a party concerned would have allowed him to act as he has done
+    and he ran with his favouring wind through fogs and all till he brought up blindfold at Galatz
+    True, we did not know whence
+    The whist party soon afterwards breaking up
     
-    while Hopkins seemed to assail a few only here and there
-    the way he used to in old days before I went to school
-    and, having passed through many vicissitudes
-    but then I was so little accustomed to grandeur
+    Mercury the art of persuasive speech
+    luckily the salt water had not got into it
+    is said to have retained the power of speech
+    remarking, ‘I really must be getting home
     
-    we go forth to our terrible enterprise
-    the streets, so far as they have yet been uncovered
-    Like them we shall travel towards the sunrise
-    wrote a book called New England Rarities Discovered
+    Pervades and broods above
+    I have a canoe and three black fellows waiting not very far
+    A widow in a wise veil and more garments shows that shadows are even
+    As to the tall, curly-haired man
     
-    I fancy it is the pattern that keeps her so still
-    Dull is thine ear, unheard by thee The still
+    and that the Longbourn estate is just as much entailed as ever
+    and, having accustomed his mind to the wildest reveries
