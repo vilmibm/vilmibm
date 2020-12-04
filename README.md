@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 03 Dec 2020 03:45:01 PM PST
+## Fri 04 Dec 2020 03:45:01 PM PST
 
-    but he said nothing, and she continued
-    in colloquial language--do we know its true worth
-    Then after a short silence he continued
-    at which also I am practising very hard
+    --and pray, when am I to wish you joy
+    for I have learn all at once so much that again I am dazzle--dazzle more than ever
+    resembling squares very slightly askew
+    It is ablaze with color from May to October
     
-    every eye was in search of the Parsonage
-    This reverend divine comes to a sorcerer
-    costs and expenses, including legal fees
-    generally regarded him as a sorcerer
+    On a line with central Connecticut
+    The best mental habit involves a balance between paucity and redundancy of suggestions
+    He said nothing, but put the key in his pocket
+    or almost alone, keep Roman streets in modern use
     
-    he is known everywhere that men have been
-    though now and again were scions who were held by their coevals to have had dealings with the Evil One
-    Reed; for it was her nature to wound me cruelly
-    The essence of the general is application
+    The space of a minute having elapsed
+    A collection of textile samples lay spread out on the table - Samsa was a travelling salesman - and above it there hung a picture that he had recently cut out of an illustrated magazine and housed in a nice
+    until the seventh or eighth month has elapsed
+    at a great clock whose case was of oak curiously carved
     
-    found fault with the arrangement of the furniture
-    to be sure they have finer furniture
+    and before she could strike into another path
+    An hour or two sufficed to sketch my own portrait in crayons
