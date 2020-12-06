@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 05 Dec 2020 03:45:01 PM PST
+## Sun 06 Dec 2020 03:45:01 PM PST
 
-    and had three thousand dollars in the bank
-    The ten minutes John had given seemed very long
-    As the man was of considerable rank
-    the fading fires just showed her coming up the long
+    and from eighteen to that period he studied in foreign countries
+    this would have been the hour when I should most keenly have regretted the separation
+    One of these facts, the weight of the atmosphere
+    and when the gaslight sprang up under Quincey's match
     
-    material being typical when
-    and know how good you are and how your husband suffer
-    more especially as the time was now come when
-    Miss Adele, a ward he had
+    I cannot do it, because it is wrong
+    which lay at anchor out in the river harbour
+    and when she woke she was fairly well and strong
+    with all sail set, and gained the safety of the harbour
     
-    I saw he was prepared for a long and trying opposition
-    and those were obliged to hold themselves fortunate
-    that it become good Gold within and without
-    and every moment the dance was more passionate
+    particularly of their astronomy
+    When that occurred, will be discussed in Chapter VI
+    it was not on her side a scheme of infamy
+    you genuine daughter of Paris
     
-    As the Count leaned over me and his hands touched me
-    neither meat nor drink had passed my lips that day
+    Alice could hear him sighing as if his heart would break
+    when there is a sure index to it if men will but take the trouble to look
