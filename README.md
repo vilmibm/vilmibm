@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 06 Dec 2020 03:45:01 PM PST
+## Mon 07 Dec 2020 03:45:01 PM PST
 
-    and from eighteen to that period he studied in foreign countries
-    this would have been the hour when I should most keenly have regretted the separation
-    One of these facts, the weight of the atmosphere
-    and when the gaslight sprang up under Quincey's match
+    so wily, and we must follow with wile
+    it is like a sort of awful nightmare
+    but he himself, I doubted not
+    aged forty years, whose mother too had been a lead worker
     
-    I cannot do it, because it is wrong
-    which lay at anchor out in the river harbour
-    and when she woke she was fairly well and strong
-    with all sail set, and gained the safety of the harbour
+    how dense and grim Disasters gather nigh
+    It is a continuation of the others
+    highly aggrieved, ran back into the living room where
+    some may hate, and some may scorn
     
-    particularly of their astronomy
-    When that occurred, will be discussed in Chapter VI
-    it was not on her side a scheme of infamy
-    you genuine daughter of Paris
+    to the gates of the town from which they came
+    and it defines the ideal mental condition
+    It was half-past two oclock when the knock came
+    whose banks were rotting into mud
     
-    Alice could hear him sighing as if his heart would break
-    when there is a sure index to it if men will but take the trouble to look
+    She then hastened away to her mother
+    There are no yellow stars on the mountain The bluebells have long died away From the brink of the moss-bedded fountain-- From the side of the wintry brae
