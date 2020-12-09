@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 08 Dec 2020 03:45:01 PM PST
+## Wed 09 Dec 2020 03:45:01 PM PST
 
-    98 a more judicious author than Pliny
-    Samsa were struck, almost simultaneously
-    Sugar any sugar, anger every anger
-    and the net of doom was closing round me more closely
+    a story has been invented that he aspired to a miraculous way of disappearing from among men
+    not at all like the pretty clean town I came from
+    Some one has evidently been telling tales
+    namely, at the beginning or at the end of the resort to general intellectual procedure
     
-    There is one point on which I want your advice
-    they were even making the effort to carry him where he wanted to go
-    You won't let me install the cloaking device
-    and said, You cannot have a right to such very strong local attachment
+    Oh, Jane, this is bitter
+    while he transacted business with the housekeeper
+    In like manner there appertains unto Supernatural things
+    I find, in settling accounts with the housekeeper
     
-    But it was far otherwise with the Greeks
-    The undertaker had certainly done his work well
-    The man, who seemed a decent fellow enough
-    But before I go on, tell me what you mean by your Well
+    first to be archbishop of Ravenna
+    the distant roll of wheels announced the coming coach
+    This morning, your employer did suggest a possible reason for your failure to appear
+    and bewildered with the noise and motion of the coach
     
-    discovering secrets, restoring stolen goods
-    had made the best display he could of his goods
+    None the less, the advice to discriminate what is observed from what is inferred is sound practical advice
+    I brought up in the middle of the stream
