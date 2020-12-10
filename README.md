@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 09 Dec 2020 03:45:01 PM PST
+## Thu 10 Dec 2020 03:45:01 PM PST
 
-    a story has been invented that he aspired to a miraculous way of disappearing from among men
-    not at all like the pretty clean town I came from
-    Some one has evidently been telling tales
-    namely, at the beginning or at the end of the resort to general intellectual procedure
+    who inherited it from his grandfather
+    Without a word he went and locked the door
+    33 is taken, was issued in vol
+    Seeing a respectably-dressed person
     
-    Oh, Jane, this is bitter
-    while he transacted business with the housekeeper
-    In like manner there appertains unto Supernatural things
-    I find, in settling accounts with the housekeeper
+    Half the time now I am awfully lazy
+    All Shorty had to do was to sign a paper
+    are fitted to hold your respective places in the moving world
+    so that the last Matter of the Flax which is Paper
     
-    first to be archbishop of Ravenna
-    the distant roll of wheels announced the coming coach
-    This morning, your employer did suggest a possible reason for your failure to appear
-    and bewildered with the noise and motion of the coach
+    I now give it to you
+    and, manifestly for her husband's sake
+    and c orderliness, consecutiveness
+    the protective agencies supplied by the workers themselves in the shape of trade unions altogether wanting
     
-    None the less, the advice to discriminate what is observed from what is inferred is sound practical advice
-    I brought up in the middle of the stream
+    You knew that, when you avoided the coroner
+    were consigned over to the gardener
