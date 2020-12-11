@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 10 Dec 2020 03:45:01 PM PST
+## Fri 11 Dec 2020 03:45:01 PM PST
 
-    who inherited it from his grandfather
-    Without a word he went and locked the door
-    33 is taken, was issued in vol
-    Seeing a respectably-dressed person
+    guard me as well alone as with any one present
+    18, so that I shall have no fear to-night
+    He considered it necessary to sigh
+    He was active in his observations on the subject
     
-    Half the time now I am awfully lazy
-    All Shorty had to do was to sign a paper
-    are fitted to hold your respective places in the moving world
-    so that the last Matter of the Flax which is Paper
+    crawling up and down his cell on his hands and knees
+    into which the sand-points stretch like grey fingers
+    so to make sure, I said interrogatively
+    the miserable wretch slided from between his fingers
     
-    I now give it to you
-    and, manifestly for her husband's sake
-    and c orderliness, consecutiveness
-    the protective agencies supplied by the workers themselves in the shape of trade unions altogether wanting
+    and no pleasure excite them agreeably
+    Now for five years they have had the same manager
+    We will go round the Park every day
+    He had great reputation as an astrologer
     
-    You knew that, when you avoided the coroner
-    were consigned over to the gardener
+    Imagine him here--the very end of the world
+    therefore there, is none so poor in this world
