@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 11 Dec 2020 03:45:01 PM PST
+## Sat 12 Dec 2020 03:45:01 PM PST
 
-    guard me as well alone as with any one present
-    18, so that I shall have no fear to-night
-    He considered it necessary to sigh
-    He was active in his observations on the subject
+    Rochester's visit it seemed spellbound
+    this high red pouder will then begin to flux
+    when somebody said in my ear
+    and my frankness was congealed beneath it
     
-    crawling up and down his cell on his hands and knees
-    into which the sand-points stretch like grey fingers
-    so to make sure, I said interrogatively
-    the miserable wretch slided from between his fingers
+    you will take cold to a dead certainty
+    But, apart from the provisions mentioned above
+    At Ridgeland Farm, in Westchester County
+    Quite apart from the considerations urged above
     
-    and no pleasure excite them agreeably
-    Now for five years they have had the same manager
-    We will go round the Park every day
-    He had great reputation as an astrologer
+    We went at once into our Plan of Campaign
+    and yet requires constantly to be redrawn
+    and have had much sorrow and much mental pain
+    To get convictions every vice employs
     
-    Imagine him here--the very end of the world
-    therefore there, is none so poor in this world
+    Mother cried out in a fright
+    I thought I would push his analogy to its utmost logically
