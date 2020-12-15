@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 14 Dec 2020 03:45:01 PM PST
+## Tue 15 Dec 2020 03:45:01 PM PST
 
-    I saw I had strayed far from the village
-    ' Certainly he fidgeted on his chair a good deal
-    What an excellent father you have
-    By following up this clue we may learn a good deal
+    And we'll need a way to replace them quickly if the Jem'Hadar try to blast their way through
+    I held on to a hollow I saw deeply furrowing the brown moorside
+    in his present fractious mood
+    And prayed to have my sins forgiven
     
-    did the china cups and bright teapot look
-    I daresay I was not very well at that time
-    he looks an old man—I wonder how I look
-    Something of vengeance I had tasted for the first time
+    and indebted for its virtue to certain conjunctions and aspects of the planets
+    the stream was heard to salute him with the words Hail
+    you must be admired, you must be courted
+    hair-dressing, the flock trade
     
-    it will help me to bear up
-    and a valiant man besides in present danger
-    and leave the next generation to purchase
-    we are to be informed by a special messenger
+    I don't remember any of the names
+    which he supposed a regular part of the business
+    There is an Idyll of Theocritus under the same name
+    and of his being gone into the regulars
     
-    but not the artistic spirit par excellence
-    I must not decide on my own performance
+    and admitted to that world to come
+    she sat down again and tried to conceal
