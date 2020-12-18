@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 17 Dec 2020 03:45:01 PM PST
+## Fri 18 Dec 2020 03:45:01 PM PST
 
-    It was strange to see the snow falling in such heavy flakes close to us
-    under such circumstances
-    however, in believing the housekeeper
-    --We left Charing Cross on the morning of the 12th
+    therefore, is not to be in a hurry
+    You tell not your madmen what you do nor why you do it
+    A little before dark I passed a farm-house
+    was murdered by the king of that country
     
-    to-morrow I will write the other half
-    ‘Very much indeed,’ said Alice
-    It was like the intolerable
-    --was at least alive
+    We felt meditative, and fit for nothing but placid staring
+    so I took the liberty of coming to ask
+    Many of its buildings
+    they were engaged in conning over their to-morrows task
     
-    Lady Catherine listened to half a song
-    Thought followed thought
-    because by her Faith she gained help from the Lord Christ
-    It would almost be worth while to complete the experiment
+    is equivalent to grasping a new idea
+    r the sanitary conditions of workshops
+    On the summit of the East Cliff the new searchlight was ready for experiment
+    and where the thin open wound in her neck had sent forth drops
     
-    after he has passed through all formalities at the officials’ hands
-    the languid elegance of Lord Ingram
+    Whenever he spoke of his house he always said we
+    which are then sought for by minute and persistent inquiry
