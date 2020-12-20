@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 19 Dec 2020 03:45:01 PM PST
+## Sun 20 Dec 2020 03:45:01 PM PST
 
-    many--perhaps most--of the towns to which it was applied were coloniae' manned by time-expired soldiers
-    Ah, I doubt not that in old time
-    and we come together to see our pretty miss
-    I again move the introduction of a new topic
+    whose society I took pleasure in
+    If you did, it would be in such a grave
+    but wasted no time with that - he knew full well
+    The account of his connection with the Pemberley family was exactly what he had related himself
     
-    for never did green bay tree so flourish
-    I should have considered it as part of my duty
-    was fronted by at least thirteen insulae'
-    as if a man had anything to do with beauty
+    It was really a very handsome thought
+    inexplicable, and altogether bewildering
+    ' For the moment that was the dominant thought
+    Glamour urged him on
     
-    because, in the very first letter I wrote to apprise them of the union--having already begun to experience extreme disgust of its consequences
-    Sons, & Candy, the house agents
-    We do not approach any problem with a wholly naïve or virgin mind
-    for, though dilatory in undertaking business
+    The preceding composition refers
+    What other tie yet holds me fast To the divorced
+    She has not told Lucy
+    No standard appears to be recognized or enforced
     
-    and the sun as I write is hidden in thick clouds
-    hides the face of heaven with murky clouds
+    The path just admitted three
+    one with and another without moisture
