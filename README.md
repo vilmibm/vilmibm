@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 20 Dec 2020 03:45:01 PM PST
+## Mon 21 Dec 2020 03:45:01 PM PST
 
-    whose society I took pleasure in
-    If you did, it would be in such a grave
-    but wasted no time with that - he knew full well
-    The account of his connection with the Pemberley family was exactly what he had related himself
+    to carry my point in going to Brighton
+    repeated three or four times how much they were grieved
+    CHAPTER XX I had forgotten to draw my curtain
+    and the more the seniors inculcated and believed
     
-    It was really a very handsome thought
-    inexplicable, and altogether bewildering
-    ' For the moment that was the dominant thought
-    Glamour urged him on
+    His is the exaction of the apostle
+    a Gift which God bestows upon his Friends
+    and introduced to secretary Cecil
+    There were strong men there
     
-    The preceding composition refers
-    What other tie yet holds me fast To the divorced
-    She has not told Lucy
-    No standard appears to be recognized or enforced
+    they deal with it, and know not what they have
+    Gone, disappeared; swept off without leaving a whisper or a shadow behind
+    If we had not used it that blessed child would have
+    By no other circumstance had I will to decide my choice
     
-    The path just admitted three
-    one with and another without moisture
+    but whatever mood the apparition evinced
+    but by forethought could be guarded against
