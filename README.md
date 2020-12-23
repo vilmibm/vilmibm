@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 22 Dec 2020 03:45:01 PM PST
+## Wed 23 Dec 2020 03:45:01 PM PST
 
-    although a dying one
-    we had, as usual, separated ourselves from the others
-    But then, you see, I can't choose
-    and was managed entirely by the employers
+    where she was welcomed by her two friends with many professions of pleasure
+    and, when they no longer possessed the earth in chief
+    but now all appointments are thrown open to competition
+    landed custom-house clerks to levy toll in what looked like a God-forsaken wilderness
     
-    Look sharp now, no slouching
-    I felt as if an awful charm was framing round and gathering over me
-    The two men might be Dr
-    She stopped and wanted to insist upon my taking my shoes
+    things present act as signs or tokens of things not yet experienced
+    which sent, through the odour of lily and rose
+    called Ashover, in the county of Derby
+    also more or less flattering fake portraits of yourself and family
     
-    till the parent herself denies her offspring
-    which leads me to perform what I look on as a point of duty
-    yet clear; and therein was my only chance--barring
-    was invariably alluded to as that scoundrel
+    Thus in Preston the mortality was 220
+    on which the words ‘EAT ME’ were beautifully marked in currants
+    marked with all the colours of a rainbow
+    and Jane saw nothing of him
     
-    which set on a Furnace
-    if it shall overcome all Enemies
+    no one pitied her solitude or isolation
+    --Oh, about number Three--I needn't tell you of number Three
