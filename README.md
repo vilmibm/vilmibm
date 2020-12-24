@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 23 Dec 2020 03:45:01 PM PST
+## Thu 24 Dec 2020 03:45:01 PM PST
 
-    where she was welcomed by her two friends with many professions of pleasure
-    and, when they no longer possessed the earth in chief
-    but now all appointments are thrown open to competition
-    landed custom-house clerks to levy toll in what looked like a God-forsaken wilderness
+    his sons, calculate their horoscopes
+    Allowing for the common demands of the game
+    And that wild sound rose oer the cry Wrung out by passions agony
+    A summary of the case by Miss Eliza Orme LL
     
-    things present act as signs or tokens of things not yet experienced
-    which sent, through the odour of lily and rose
-    called Ashover, in the county of Derby
-    also more or less flattering fake portraits of yourself and family
+    for the first time since I have lived in it
+    She complains of difficulty in breathing satisfactorily at times
+    leaning on the window to stare out of it
+    or admit his society in town
     
-    Thus in Preston the mortality was 220
-    on which the words ‘EAT ME’ were beautifully marked in currants
-    marked with all the colours of a rainbow
-    and Jane saw nothing of him
+    Robert Brocklehurst is the treasurer
+    for they lead a direct way to Hell without leave
+    observation is directed less to the facts that bear upon a practical aim and more upon what bears upon a problem as such
+    and no sooner had he and his companion taken leave
     
-    no one pitied her solitude or isolation
-    --Oh, about number Three--I needn't tell you of number Three
+    I never thought at the time how strange it all was
+    What a love--what a miracle I was
