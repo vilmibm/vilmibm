@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 24 Dec 2020 03:45:01 PM PST
+## Fri 25 Dec 2020 03:45:01 PM PST
 
-    his sons, calculate their horoscopes
-    Allowing for the common demands of the game
-    And that wild sound rose oer the cry Wrung out by passions agony
-    A summary of the case by Miss Eliza Orme LL
+    withdrew there as to a place of refuge
+    which will not be yours till after your mothers decease
+    He looked over them gravely
+    He would not explain himself
     
-    for the first time since I have lived in it
-    She complains of difficulty in breathing satisfactorily at times
-    leaning on the window to stare out of it
-    or admit his society in town
+    and you must need to eat and rest
+    Each of the others was similarly equipped
+    keep us together somewhere under the shelter of his protection
+    fain find nourishment for some less fiendish feeling than that of sombre indignation
     
-    Robert Brocklehurst is the treasurer
-    for they lead a direct way to Hell without leave
-    observation is directed less to the facts that bear upon a practical aim and more upon what bears upon a problem as such
-    and no sooner had he and his companion taken leave
+    but I fear that no weapon wrought alone by man's hand would have any effect on him
+    and our privileges in this outdoor life that we lead
+    and there were all the servants and all the articles of plate which Mr
+    Hitherto I have hated to be helped--to be led
     
-    I never thought at the time how strange it all was
-    What a love--what a miracle I was
+    latterly she had begun to relent a little
+    but according to others for thirty
