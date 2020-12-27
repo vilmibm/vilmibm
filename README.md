@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 26 Dec 2020 03:45:01 PM PST
+## Sun 27 Dec 2020 03:45:01 PM PST
 
-    but I carry the rosary about my neck
-    of which we can form no idea
-    The expression sounded wonderfully odd
-    Give the party three drops in the beginning of the Fit
+    The heavy door slips from his fingers-- It shuts
+    But I do mind, he answered
+    is mentioned, towards the latter part of the fifteenth century
+    The question of plant life in relation to climate is a very large one and one about which it is hard to generalize without close study in the various parts of the country
     
-    Ladies, said he, turning to his family
-    Lydia's voice was heard in the vestibule
-    Bennet could hardly comprehend it
-    where golden California Poppies make way for you to pass
+    and Albertus easily gained his suit of the king
+    Then may I weep and sue
+    and an eager and exacting glance fastened on his face
+    Be wise, and help us
     
-    take me out of this and save my soul from guilt
-    he's so stubborn; and I'm sure he isn't well
-    my elbow, resting on a corner of the quilt
-    yes--it would be much better to wait till Jane was well
+    induce you to marry Miss Oliver
+    Rivets had rolled into the grove of death
+    It was an extra leaker with a see spoon
+    You want to hear more
     
-    I was loaded with general opprobrium
-    the great crowd in the auditorium
+    whether it was happy or not with her
+    biography, history, and science began to be handled by women
