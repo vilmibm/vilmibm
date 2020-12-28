@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 27 Dec 2020 03:45:01 PM PST
+## Mon 28 Dec 2020 03:45:01 PM PST
 
-    The heavy door slips from his fingers-- It shuts
-    But I do mind, he answered
-    is mentioned, towards the latter part of the fifteenth century
-    The question of plant life in relation to climate is a very large one and one about which it is hard to generalize without close study in the various parts of the country
+    I am only taking one change of dress
+    ‘I took to the law, And argued each case with my wife
+    My first impulse was to rise and fasten the bolt
+    he left the room, fatigued with the raptures of his wife
     
-    and Albertus easily gained his suit of the king
-    Then may I weep and sue
-    and an eager and exacting glance fastened on his face
-    Be wise, and help us
+    that official will protect the expert
+    ***** POEMS BY ELLIS BELL FAITH AND DESPONDENCY
+    He was held for a holy and devout man
+    It was in The Times and The Courier
     
-    induce you to marry Miss Oliver
-    Rivets had rolled into the grove of death
-    It was an extra leaker with a see spoon
-    You want to hear more
+    Miss Bennet's lovely face confirmed his views
+    Perhaps by and by I may observe that private balls are much pleasanter than public ones
+    Bessie said she was sure you would not refuse
+    Her tour to the Lakes was now the object of her happiest thoughts
     
-    whether it was happy or not with her
-    biography, history, and science began to be handled by women
+    for a week; and as Dawson does not object to the barouche-box
+    and attaching some name to each distinguished element
