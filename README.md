@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 28 Dec 2020 03:45:01 PM PST
+## Tue 29 Dec 2020 03:45:01 PM PST
 
-    I am only taking one change of dress
-    ‘I took to the law, And argued each case with my wife
-    My first impulse was to rise and fasten the bolt
-    he left the room, fatigued with the raptures of his wife
+    the long, sharp, canine teeth showed out strangely
+    ’ and ran the faster, while more and more faintly came
+    nothing a particular color strangely
+    The day of his and Lydia's departure soon came
     
-    that official will protect the expert
-    ***** POEMS BY ELLIS BELL FAITH AND DESPONDENCY
-    He was held for a holy and devout man
-    It was in The Times and The Courier
+    00 THE SEASONS IN A FLOWER GARDEN
+    I asked Robartes the meaning of this
+    When they caught fire from mine
+    His main concern was for the loud noise he was bound to make
     
-    Miss Bennet's lovely face confirmed his views
-    Perhaps by and by I may observe that private balls are much pleasanter than public ones
-    Bessie said she was sure you would not refuse
-    Her tour to the Lakes was now the object of her happiest thoughts
+    Now I have performed the part of a good host
+    He is rich, is he not
+    and you are but mortal woman
+    z His pursuers might follow
     
-    for a week; and as Dawson does not object to the barouche-box
-    and attaching some name to each distinguished element
+    shines never clear, And oft in clouds is wholly lost
+    whose name has unfortunately been lost
