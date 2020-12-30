@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 29 Dec 2020 03:45:01 PM PST
+## Wed 30 Dec 2020 03:45:01 PM PST
 
-    the long, sharp, canine teeth showed out strangely
-    ’ and ran the faster, while more and more faintly came
-    nothing a particular color strangely
-    The day of his and Lydia's departure soon came
+    to wash them, then take a Silver Syringe
+    For other token do not seek
+    gemmed with sparkles of a more lurid tinge
+    for cooperation touches them on many sides
     
-    00 THE SEASONS IN A FLOWER GARDEN
-    I asked Robartes the meaning of this
-    When they caught fire from mine
-    His main concern was for the loud noise he was bound to make
+    The manager thinks you ought to be hanged
+    and with them subdued the people of Spaine fronting upon his marches
+    calmed down, convinced and finally won over
+    and were then allowed to crawl away and rest
     
-    Now I have performed the part of a good host
-    He is rich, is he not
-    and you are but mortal woman
-    z His pursuers might follow
+    and deeply to imbue them with sentiments of religion
+    with no harsh wind, no forgetting duty
+    was simply the logical result of his care
+    The letters were upside down to me from where I sat
     
-    shines never clear, And oft in clouds is wholly lost
-    whose name has unfortunately been lost
+    so he bowed his head and moistening his lips with his tongue
+    I addressed some phrases to her in her own tongue
