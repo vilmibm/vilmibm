@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 30 Dec 2020 03:45:01 PM PST
+## Thu 31 Dec 2020 03:45:01 PM PST
 
-    to wash them, then take a Silver Syringe
-    For other token do not seek
-    gemmed with sparkles of a more lurid tinge
-    for cooperation touches them on many sides
+    Sidenote: Hence, the one taught must take the initiative Teaching and learning are correlative or corresponding processes
+    and the same tribunal fails not to sit daily
+    339-349; Ballu, Ruines de Timgad Paris
+    she looked at the others
     
-    The manager thinks you ought to be hanged
-    and with them subdued the people of Spaine fronting upon his marches
-    calmed down, convinced and finally won over
-    and were then allowed to crawl away and rest
+    I touched the heath: it was dry
+    Let me hear from you at once
+    he was again put under confinement
+    It was evident then that my surmise had been correct
     
-    and deeply to imbue them with sentiments of religion
-    with no harsh wind, no forgetting duty
-    was simply the logical result of his care
-    The letters were upside down to me from where I sat
+    You shall, I trust, rest here with me awhile
+    The host himself brought my breakfast into the parlour
+    We were silent for a while
+    Kitty was too much afraid of him to talk
     
-    so he bowed his head and moistening his lips with his tongue
-    I addressed some phrases to her in her own tongue
+    Thus occupied, and mutually entertained
+    This preservative she had now obtained
