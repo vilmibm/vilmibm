@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 31 Dec 2020 03:45:01 PM PST
+## Fri 01 Jan 2021 03:45:01 PM PST
 
-    Sidenote: Hence, the one taught must take the initiative Teaching and learning are correlative or corresponding processes
-    and the same tribunal fails not to sit daily
-    339-349; Ballu, Ruines de Timgad Paris
-    she looked at the others
+    are not either your father or your mother dead
+    Then we go on for long
+    added: except that the poor fellow is dead
+    for since her marriage would so shortly give the proper termination to the elopement
     
-    I touched the heath: it was dry
-    Let me hear from you at once
-    he was again put under confinement
-    It was evident then that my surmise had been correct
+    other disciplinary fines from 6 d
+    She would not even wish for a renewal of his attentions
+    Thus for standing on a chair the fine is 6 d
+    The emperor goes to war with the Moguls
     
-    You shall, I trust, rest here with me awhile
-    The host himself brought my breakfast into the parlour
-    We were silent for a while
-    Kitty was too much afraid of him to talk
+    He is said to have been of the finest symmetrical form
+    I am sure I do the Finest no injustice
+    and,' said she, they looked at my dress and mama's
+    Bingley followed his advice
     
-    Thus occupied, and mutually entertained
-    This preservative she had now obtained
+    though it be but the regard of working people
+    a watch-tower of the Roman people
