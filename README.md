@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 01 Jan 2021 03:45:01 PM PST
+## Sat 02 Jan 2021 03:45:01 PM PST
 
-    are not either your father or your mother dead
-    Then we go on for long
-    added: except that the poor fellow is dead
-    for since her marriage would so shortly give the proper termination to the elopement
+    who fully concurred with the views of the writer
+    and they could not have passed me without my noticing
+    Well, what else be they tombstones for
+    Certainly glittering is handsome and convincing
     
-    other disciplinary fines from 6 d
-    She would not even wish for a renewal of his attentions
-    Thus for standing on a chair the fine is 6 d
-    The emperor goes to war with the Moguls
+    could not contain the vehemence of his rage
+    No jury in the world could convict on such theories
+    remote from the scene of this cruel outrage
+    and the demons prevail
     
-    He is said to have been of the finest symmetrical form
-    I am sure I do the Finest no injustice
-    and,' said she, they looked at my dress and mama's
-    Bingley followed his advice
+    all the learning and arts that were then known
+    I must be responsible for the circumstance
+    emptied his glass with great resolution
+    Did you ever hear Darcy mention the circumstance
     
-    though it be but the regard of working people
-    a watch-tower of the Roman people
+    he had also the highest opinion of him
+    She does not know how precious time is
