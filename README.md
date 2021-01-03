@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 02 Jan 2021 03:45:01 PM PST
+## Sun 03 Jan 2021 03:45:01 PM PST
 
-    who fully concurred with the views of the writer
-    and they could not have passed me without my noticing
-    Well, what else be they tombstones for
-    Certainly glittering is handsome and convincing
+    It was Eliezer and Rebecca
+    for it seemed as if my tongue pronounced words without my will consenting to their utterance
+    or by menaces do they secure their purpose
+    He laid his hand on my arm
     
-    could not contain the vehemence of his rage
-    No jury in the world could convict on such theories
-    remote from the scene of this cruel outrage
-    and the demons prevail
+    31, 81 , we hear of streets radiating fan-fashion from a common centre
+    ’ ‘All right,’ said the Cat
+    Anne would have been a delightful performer
+    is replaced by something of another period
     
-    all the learning and arts that were then known
-    I must be responsible for the circumstance
-    emptied his glass with great resolution
-    Did you ever hear Darcy mention the circumstance
+    ’ shouted the Queen in a voice of thunder
+    merely making a deep gash above the forehead
+    but he was no longer gory and sullied
+    mild, intelligent, and benign-looking forehead
     
-    he had also the highest opinion of him
-    She does not know how precious time is
+    It is best to avoid contact with this species
+    but I was not taught to correct my temper
