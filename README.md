@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 03 Jan 2021 03:45:01 PM PST
+## Mon 04 Jan 2021 03:45:01 PM PST
 
-    It was Eliezer and Rebecca
-    for it seemed as if my tongue pronounced words without my will consenting to their utterance
-    or by menaces do they secure their purpose
-    He laid his hand on my arm
+    Then why not Alaska likewise some day
+    And before my dreaming eyes Still the learned volumes lay
+    and though a day seldom passed in which Elizabeth did not account for it clearly
+    but if efficiently carried out it should do something to shorten the working hours of those for whom it is specially designed--children and young persons
     
-    31, 81 , we hear of streets radiating fan-fashion from a common centre
-    ’ ‘All right,’ said the Cat
-    Anne would have been a delightful performer
-    is replaced by something of another period
+    till your Matter come over as red as Bloud
+    He has been so unlucky as to lose your friendship
+    It is good for us to resort to the house of those that mourn
+    but it is not directed and trained
     
-    ’ shouted the Queen in a voice of thunder
-    merely making a deep gash above the forehead
-    but he was no longer gory and sullied
-    mild, intelligent, and benign-looking forehead
+    Legislation cannot be long deferred
+    And they, perchance, heard vows of mine
+    but likewise you will find it thus
+    We desire neither the slow mind nor yet the hasty
     
-    It is best to avoid contact with this species
-    but I was not taught to correct my temper
+    g of the gold, as some of the sovereigns fell on the flagging
+    resembling an immense snake uncoiled
