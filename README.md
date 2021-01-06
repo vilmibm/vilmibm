@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 05 Jan 2021 03:45:01 PM PST
+## Wed 06 Jan 2021 03:45:01 PM PST
 
-    The prejudices of mankind on a subject so nearly concerned with their dearest interests and affections must inevitably be powerful and obstinate
-    the haymakers were at work all along the road
-    the Saturn will become a powder or lump
-    I was following the windings of an unknown road
+    He gave many flies to one spider and many spiders to one bird
+    to me it seemed as though the mist itself had screamed
+    There is a story of necromancy which unfortunately makes too prominent a figure in the history of the court and character of king James the First
+    His mother was not far away in front of him and seemed
     
-    Those Cardassian pigs didn't kill your brother
-    the last sacrament is being administered
-    Again, to think is to relate things to one another definitely
-    they bequeath an awful legacy of sickness to their children--an amount of suffering which is almost disproportionate to their own
+    Let me see--how IS it to be managed
+    you will say,--That man had nearly made me his mistress
+    de Ville of London, telling him to receive
+    each bed containing one large clump of German Iris
     
-    ‘Is that the reason so many tea-things are put out here
-    Please, Ma’am, is this New Zealand or Australia
-    and am only concerned that their living together before the marriage took place should be so generally known
-    part from her authoritative manner
+    Toil through the hottest day
+    and draping the low shores in diaphanous folds
+    and that He will deign to watch over my husband and those dear to us both
+    It may be much eventually
     
-    and enquire of Baalzebub
-    Apollonius met the procession
+    It was a journey of only twenty-four miles
+    Several members made the claim that the officers had defaulted with property of the association
