@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 06 Jan 2021 03:45:01 PM PST
+## Thu 07 Jan 2021 03:45:01 PM PST
 
-    He gave many flies to one spider and many spiders to one bird
-    to me it seemed as though the mist itself had screamed
-    There is a story of necromancy which unfortunately makes too prominent a figure in the history of the court and character of king James the First
-    His mother was not far away in front of him and seemed
+    It showed no variation but of tint
+    and what he said I am ashamed to write
+    Let leagues and years prevail To turn thee from the path of crime
+    perhaps, or more, the case reaches the Court of Appeals
     
-    Let me see--how IS it to be managed
-    you will say,--That man had nearly made me his mistress
-    de Ville of London, telling him to receive
-    each bed containing one large clump of German Iris
+    Nordau and Lombroso would so classify him
+    the stock and equipment needed
+    Down on the first floor the retail bakery is so immaculately clean that you would be willing to defy anyone to find one speck of dust in the place
+    he said aloud, in dreams when I sleep by the Ganges
     
-    Toil through the hottest day
-    and draping the low shores in diaphanous folds
-    and that He will deign to watch over my husband and those dear to us both
-    It may be much eventually
+    ring, or cord by which to attach a flag
+    Be sure that is the only tie he seriously acknowledges between you and him
+    it was a name graven on a tablet
+    It may well be doubted however whether the presence of this clergyman did not operate unfavourably to the persons suspected
     
-    It was a journey of only twenty-four miles
-    Several members made the claim that the officers had defaulted with property of the association
+    82 He was a distinguished orator and poet
+    But Erichtho, the witch of the poet
