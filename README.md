@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 07 Jan 2021 03:45:01 PM PST
+## Fri 08 Jan 2021 03:45:01 PM PST
 
-    It showed no variation but of tint
-    and what he said I am ashamed to write
-    Let leagues and years prevail To turn thee from the path of crime
-    perhaps, or more, the case reaches the Court of Appeals
+    Somehow I felt glad that Jonathan was not on the sea last night
+    we naturally use the words weigh
+    so much the better--my position was all the freer
+    Illustration: PLATE 143 Kimberly Crest Illustration
     
-    Nordau and Lombroso would so classify him
-    the stock and equipment needed
-    Down on the first floor the retail bakery is so immaculately clean that you would be willing to defy anyone to find one speck of dust in the place
-    he said aloud, in dreams when I sleep by the Ganges
+    Fully impressed with this conception
+    I had no hesitation in complying with
+    Besides, there is that peculiar voice of hers
+    as the Appearance of Spirits
     
-    ring, or cord by which to attach a flag
-    Be sure that is the only tie he seriously acknowledges between you and him
-    it was a name graven on a tablet
-    It may well be doubted however whether the presence of this clergyman did not operate unfavourably to the persons suspected
+    Of seraph's song, and demon's moan
+    I give rein to them, and they go on so patient
+    because it can in no wise help nor advantage you
+    ’ ‘I’d rather finish my tea
     
-    82 He was a distinguished orator and poet
-    But Erichtho, the witch of the poet
+    yes--I will not forget that
+    and forty sheep, and six vessels of wine
