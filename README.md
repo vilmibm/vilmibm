@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 08 Jan 2021 03:45:01 PM PST
+## Sat 09 Jan 2021 03:45:01 PM PST
 
-    Somehow I felt glad that Jonathan was not on the sea last night
-    we naturally use the words weigh
-    so much the better--my position was all the freer
-    Illustration: PLATE 143 Kimberly Crest Illustration
+    I saw a trace of white over the moor
+    she soon stopped speaking and helped Gregor's sister to get the chest of drawers out with what strength she had
+    Jane, said Diana, during your walk on the moor
+    and justified the vocation even of hewers of wood and drawers of water in God's service--I
     
-    Fully impressed with this conception
-    I had no hesitation in complying with
-    Besides, there is that peculiar voice of hers
-    as the Appearance of Spirits
+    Father, Mother , said his sister
+    and is supposed to have committed suicide
+    Half-past one, time for dinner
+    she lay reclined on a sofa by the fireside
     
-    Of seraph's song, and demon's moan
-    I give rein to them, and they go on so patient
-    because it can in no wise help nor advantage you
-    ’ ‘I’d rather finish my tea
+    unwillingly sheathing their talons
+    then the maidens shine not to the eyes that are filled
+    a voice cried to me from the crimson figures
+    He was of middle size and of ordinary build
     
-    yes--I will not forget that
-    and forty sheep, and six vessels of wine
+    61, plan 2; the evidence seems adequate though not wholly decisive
+    and thus was unable to have warm food
