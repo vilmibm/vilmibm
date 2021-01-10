@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 09 Jan 2021 03:45:01 PM PST
+## Sun 10 Jan 2021 03:45:01 PM PST
 
-    I saw a trace of white over the moor
-    she soon stopped speaking and helped Gregor's sister to get the chest of drawers out with what strength she had
-    Jane, said Diana, during your walk on the moor
-    and justified the vocation even of hewers of wood and drawers of water in God's service--I
+    The stones are big and roughly cut
+    A cake, a real salve made of mutton and liquor
+    however innocently, to be polluted by so vile an impostor
+    There was also a legacy of one thousand pounds
     
-    Father, Mother , said his sister
-    and is supposed to have committed suicide
-    Half-past one, time for dinner
-    she lay reclined on a sofa by the fireside
+    We had to recognise that our game was up
+    I tottered, and on regaining my equilibrium retired back a step or two from his chair
+    as we see it to-day, is very modern
+    and if he had the fortune he ought to have
     
-    unwillingly sheathing their talons
-    then the maidens shine not to the eyes that are filled
-    a voice cried to me from the crimson figures
-    He was of middle size and of ordinary build
+    and fetch me a pair of gloves and a fan
+    the blood still gushed through his fingers
+    if a defect in the electronic work is discovered and reported to you within 90 days of receipt of the work
+    a large pigeon had flown into her face
     
-    61, plan 2; the evidence seems adequate though not wholly decisive
-    and thus was unable to have warm food
+    The streets which preserve Roman lines are marked in black
+    so dark-green as to be almost black
