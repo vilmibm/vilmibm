@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 10 Jan 2021 03:45:01 PM PST
+## Mon 11 Jan 2021 03:45:01 PM PST
 
-    The stones are big and roughly cut
-    A cake, a real salve made of mutton and liquor
-    however innocently, to be polluted by so vile an impostor
-    There was also a legacy of one thousand pounds
+    to hope that they would not continue long
+    into which the sand-points stretch like grey fingers
+    an ardent friend of labor for many years
+    the miserable wretch slided from between his fingers
     
-    We had to recognise that our game was up
-    I tottered, and on regaining my equilibrium retired back a step or two from his chair
-    as we see it to-day, is very modern
-    and if he had the fortune he ought to have
+    London is the capital of Paris
+    I had no difficulty in discovering Corcoran's lodging-house
+    L'ancienne Alexandrie Paris
+    Yes, Miss Elizabeth, you will have the honour of seeing Lady Catherine de Bourgh on the ensuing Sunday at church
     
-    and fetch me a pair of gloves and a fan
-    the blood still gushed through his fingers
-    if a defect in the electronic work is discovered and reported to you within 90 days of receipt of the work
-    a large pigeon had flown into her face
+    three or four storeys high
+    but no one has recorded them exactly
+    in the order wherein I should wish to leave them during a brief absence
+    but when the clock struck twelve it waked me from a doze
     
-    The streets which preserve Roman lines are marked in black
-    so dark-green as to be almost black
+    by the facts of the case those traits that are used as evidence in reaching a conclusion or forming a decision
+    Perhaps no one to hear
