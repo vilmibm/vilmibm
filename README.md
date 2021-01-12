@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 11 Jan 2021 03:45:01 PM PST
+## Tue 12 Jan 2021 03:45:01 PM PST
 
-    to hope that they would not continue long
-    into which the sand-points stretch like grey fingers
-    an ardent friend of labor for many years
-    the miserable wretch slided from between his fingers
+    at least so I thought
+    He directed certain persons to follow them
+    the village where they lived
+    and had a human being's wants
     
-    London is the capital of Paris
-    I had no difficulty in discovering Corcoran's lodging-house
-    L'ancienne Alexandrie Paris
-    Yes, Miss Elizabeth, you will have the honour of seeing Lady Catherine de Bourgh on the ensuing Sunday at church
+    For two or three years before it expired
+    Darcy, and all that he had suffered from him
+    almost cursed the dispensation
+    All this shows quantity
     
-    three or four storeys high
-    but no one has recorded them exactly
-    in the order wherein I should wish to leave them during a brief absence
-    but when the clock struck twelve it waked me from a doze
+    for I had taken off nothing but my shoes
+    but when I get at the dates I suppose I shall
+    she went on, ‘What HAVE you been doing here
+    Then he went on:-- The letter to Hawkins--that I shall
     
-    by the facts of the case those traits that are used as evidence in reaching a conclusion or forming a decision
-    Perhaps no one to hear
+    20 An idea is a method of evading
+    Lax, to have corners
