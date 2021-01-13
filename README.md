@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 12 Jan 2021 03:45:01 PM PST
+## Wed 13 Jan 2021 03:45:01 PM PST
 
-    at least so I thought
-    He directed certain persons to follow them
-    the village where they lived
-    and had a human being's wants
+    She looked at him meaningly as she spoke
+    I declare she talked to me once like something mad
+    Then, he looked at me as keenly as he spoke
+    Now, sir, proceed; what did you do when you found she was mad
     
-    For two or three years before it expired
-    Darcy, and all that he had suffered from him
-    almost cursed the dispensation
-    All this shows quantity
+    She answered him with cold civility
+    and have a hearing with those who regard Nature
+    there was hope in such good counsel
+    Two offenses of a very different nature
     
-    for I had taken off nothing but my shoes
-    but when I get at the dates I suppose I shall
-    she went on, ‘What HAVE you been doing here
-    Then he went on:-- The letter to Hawkins--that I shall
+    I'm fear'd you have some ill plans agate
+    but I say it in kindness--I gave what you gave
+    tell me what I wish to know
+    and his attachment to her must be imaginary
     
-    20 An idea is a method of evading
-    Lax, to have corners
+    When the ship's store used to be the chemist shop
+    yet the drawings are
