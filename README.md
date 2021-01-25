@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 14 Jan 2021 03:45:01 PM PST
+## Mon 25 Jan 2021 03:45:01 PM PST
 
-    ’ Alice said very politely
-    and whom she loved; and that sacred bell going Toll
-    I descended the slippery steps of oak
-    narrow, sable-clad shape standing erect on the rug
+    It sounds good to me
+    and millions are in silent revolt against their lot
+    it is because I am insane--quite insane
+    Girt in with fertile solitude
     
-    his right hand gripped her by the back of the neck
-    Bruce Cotten From a photograph by Art View Co
-    I will myself put the diamond chain round your neck
-    attempting to prize off the lid with his great Kukri knife
+    has been therefore given to the fair sex
+    Again he went into the grounds of the deserted house
+    stood near these three streets fig
+    and consequently such early bloomers as Tulips
     
-    Elizabeth was now to see Mr
-    Take the Sky-coloured Sulphur extracted out of Silver
-    and of a very faithful disposition
-    which I do not at all anticipate
+    He took the purse, poured the hoard into his palm
+    I have never experienced the third degree
+    yet clear; and therein was my only chance--barring
+    Does it not furnish further proof of the fourth degree
     
-    a pause, awkward as such pauses must always be
-    to discover the name of your admirer
+    e: happiness in pleasure--I mean in heartless
+    How very thin, and how very bloodless
