@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 25 Jan 2021 03:45:01 PM PST
+## Tue 26 Jan 2021 03:45:01 PM PST
 
-    It sounds good to me
-    and millions are in silent revolt against their lot
-    it is because I am insane--quite insane
-    Girt in with fertile solitude
+    to say Yes,' that you might have the pleasure of despising my taste
+    I felt sure that he must go by the Danube mouth
+    Miss Bingley was very deeply mortified by Darcy's marriage
+    and was doubtless by morning far down the river mouth
     
-    has been therefore given to the fair sex
-    Again he went into the grounds of the deserted house
-    stood near these three streets fig
-    and consequently such early bloomers as Tulips
+    because there was a snag in the fairway
+    This account then is what he has received from Mr
+    capering wildly about
+    In a very few hours I arrived in a city that always makes me think of a whited sepulchre
     
-    He took the purse, poured the hoard into his palm
-    I have never experienced the third degree
-    yet clear; and therein was my only chance--barring
-    Does it not furnish further proof of the fourth degree
+    I yet lingered half-an-hour longer
+    something new--a fresh sap and sense--stole into my frame
+    which proved to be the addendum to the log
+    too vehement; the sovereign hand that created your frame
     
-    e: happiness in pleasure--I mean in heartless
-    How very thin, and how very bloodless
+    so the opponents of direct and useful activities confuse occupation with labor
+    who reveals to him the secrets of the past history of the earth
