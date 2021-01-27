@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 26 Jan 2021 03:45:01 PM PST
+## Wed 27 Jan 2021 03:45:01 PM PST
 
-    to say Yes,' that you might have the pleasure of despising my taste
-    I felt sure that he must go by the Danube mouth
-    Miss Bingley was very deeply mortified by Darcy's marriage
-    and was doubtless by morning far down the river mouth
+    and though I am a defective being
+    I had cherished the hope of one day seeing him
+    The greatest improvement for the time being
+    It had even become very unpleasant for him
     
-    because there was a snag in the fairway
-    This account then is what he has received from Mr
-    capering wildly about
-    In a very few hours I arrived in a city that always makes me think of a whited sepulchre
+    fated to last as long as the marble it inscribed
+    Adjacent land has been purchased so that the building itself may be added to
+    so that He may not enter
+    the owner of the Project Gutenberg-tm trademark
     
-    I yet lingered half-an-hour longer
-    something new--a fresh sap and sense--stole into my frame
-    which proved to be the addendum to the log
-    too vehement; the sovereign hand that created your frame
+    He has to live in the midst of the incomprehensible
+    The factor of external pressure is so strong with most adults that the educative value of the pursuit--its reflex influence upon intelligence and character--however genuine
+    he had, alas, already looked into the cup
+    How is a factory inspector to see that every person who works overtime gets his 400 feet
     
-    so the opponents of direct and useful activities confuse occupation with labor
-    who reveals to him the secrets of the past history of the earth
+    and was received with distinction by sir John Check
+    but also that very Spirit which is found in the last Matter
