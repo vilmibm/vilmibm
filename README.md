@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 28 Jan 2021 03:45:01 PM PST
+## Tue 16 Feb 2021 05:45:01 PM CST
 
-    fly; Swept from Eternity's repose
-    and I thought at first the goblin-laugher stood at my bedside--or rather
-    and they supposed, or pretended to suppose
-    Morris arrived earlier than we expected
+    burnt on the table; and by its light an elderly woman
+    Darest thou turn aside
+    In two or three minutes later Van Helsing was in the room in his dressing-gown
+    as she was sitting with her two elder sisters
     
-    I dare say, and so, passing through Meryton
-    It gazed and gazed on me
-    as the great World to the lesser
-    Collins was first introduced to her notice
+    why is it beautiful why is it not when there is no doubt
+    even at sea level, more than thirty-three feet
+    She handles my finances and shes a female
+    For practical purposes 100 Roman feet 97 English feet
     
-    glittered and trembled at every step
-    but if it may be that she can see them again
-    He seems to have power at these particular moments to simply will
-    For at this hour you do not want me for nothings
+    Hidden away amongst scenes like these Under the fans of the chestnut trees
+    The purchaser is a foreign nobleman
+    he breathed fast and low
+    Her tour to the Lakes was now the object of her happiest thoughts
     
-    the white teeth champing with rage
-    Lord, help me, and those to whom I am dear
+    then he shall know all
+    for I feared the next sentence might be rough
