@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 16 Feb 2021 05:45:01 PM CST
+## Wed 17 Feb 2021 05:45:01 PM CST
 
-    burnt on the table; and by its light an elderly woman
-    Darest thou turn aside
-    In two or three minutes later Van Helsing was in the room in his dressing-gown
-    as she was sitting with her two elder sisters
+    he have still the aids of necromancy
+    It shows that there is no mistake
+    each became possessed of a competency
+    and the results were equally towns springing up full-grown in southern Europe and
     
-    why is it beautiful why is it not when there is no doubt
-    even at sea level, more than thirty-three feet
-    She handles my finances and shes a female
-    For practical purposes 100 Roman feet 97 English feet
+    --There is something very pompous in his style
+    made it impossible for him to move
+    What can possess him to come home in that style
+    and if I were determined to get a rich husband
     
-    Hidden away amongst scenes like these Under the fans of the chestnut trees
-    The purchaser is a foreign nobleman
-    he breathed fast and low
-    Her tour to the Lakes was now the object of her happiest thoughts
+    To be sure of this, I test by placing a cup of ice on the tumbler while the bubbles are still forming outside
+    had surely dropped the required suggestion on my pillow
+    Kurtz got the tribe to follow him
+    Your dog is quicker to recognise his friends than you are
     
-    then he shall know all
-    for I feared the next sentence might be rough
+    and all day, like cigarette girls at a bullfight
+    but not one of them could close his eyes
