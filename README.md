@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 17 Feb 2021 05:45:01 PM CST
+## Thu 18 Feb 2021 05:45:01 PM CST
 
-    he have still the aids of necromancy
-    It shows that there is no mistake
-    each became possessed of a competency
-    and the results were equally towns springing up full-grown in southern Europe and
+    Grete, who had not taken her eyes from the corpse
+    Now let us to-day put all our affairs in order
+    Can you guess what he used for a trap
+    When I went away, I felt that it would soon happen
     
-    --There is something very pompous in his style
-    made it impossible for him to move
-    What can possess him to come home in that style
-    and if I were determined to get a rich husband
+    whistling through the crevices of our bedroom windows all night long
+    Eventually, though, Gregor realised that he had no choice as he saw
+    We can know now what was in the Count's mind
+    There must be no chances
     
-    To be sure of this, I test by placing a cup of ice on the tumbler while the bubbles are still forming outside
-    had surely dropped the required suggestion on my pillow
-    Kurtz got the tribe to follow him
-    Your dog is quicker to recognise his friends than you are
+    that the world, and men for whom His Son die
+    So we shall, if we have not yet catch him and destroy him
+    I had some fear--or hope--that here I should die
+    That Providence may ne'er intend The trembling heart to bear
     
-    and all day, like cigarette girls at a bullfight
-    but not one of them could close his eyes
+    A complete act of thought involves both--it involves
+    The spectators buzzed it among themselves
