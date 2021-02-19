@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 18 Feb 2021 05:45:01 PM CST
+## Fri 19 Feb 2021 05:45:01 PM CST
 
-    Grete, who had not taken her eyes from the corpse
-    Now let us to-day put all our affairs in order
-    Can you guess what he used for a trap
-    When I went away, I felt that it would soon happen
+    it was too late to enter into particulars that night
+    and who had not thought her handsome enough to dance with
+    unless some one changes his mind
+    which everybody here is of course familiar with
     
-    whistling through the crevices of our bedroom windows all night long
-    Eventually, though, Gregor realised that he had no choice as he saw
-    We can know now what was in the Count's mind
-    There must be no chances
+    They advised him still to call upon God
+    not positively rainy
+    so I said that he must clear out some of them
+    the most exalted and the most contemptible
     
-    that the world, and men for whom His Son die
-    So we shall, if we have not yet catch him and destroy him
-    I had some fear--or hope--that here I should die
-    That Providence may ne'er intend The trembling heart to bear
+    a rustling wing stirs
+    he is about the sanest lunatic I ever saw
+    ‘It’s really dreadful
+    and was succeeded by Edwy at the early age of seventeen
     
-    A complete act of thought involves both--it involves
-    The spectators buzzed it among themselves
+    Well, as to the visit
+    it is too bad that you should be quite alone
