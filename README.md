@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 19 Feb 2021 05:45:01 PM CST
+## Sat 20 Feb 2021 05:45:02 PM CST
 
-    it was too late to enter into particulars that night
-    and who had not thought her handsome enough to dance with
-    unless some one changes his mind
-    which everybody here is of course familiar with
+    swayed gently in all directions
+    and set the other half again to multiply
+    they were all sent to one of the windows to admire the view
+    at last, in obedience to his will she made reply
     
-    They advised him still to call upon God
-    not positively rainy
-    so I said that he must clear out some of them
-    the most exalted and the most contemptible
+    thy hand is chill: I've felt its icy clasp
+    He was in a panic of superstitious fear
+    upon a Furnace in sifted Ashes
+    upon these occasions a man should not yield to fear
     
-    a rustling wing stirs
-    he is about the sanest lunatic I ever saw
-    ‘It’s really dreadful
-    and was succeeded by Edwy at the early age of seventeen
+    -- Yes, it is necessary--necessary--necessary
+    and let it dissolve: when any thing is dissolved
+    seemed most improbable
+    Take it out, and see how much is yet to be dissolved
     
-    Well, as to the visit
-    it is too bad that you should be quite alone
+    There was nothing more
+    It is therefore of the highest concernment that great care should be taken of the understanding
