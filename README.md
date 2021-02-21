@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 20 Feb 2021 05:45:02 PM CST
+## Sun 21 Feb 2021 05:45:01 PM CST
 
-    swayed gently in all directions
-    and set the other half again to multiply
-    they were all sent to one of the windows to admire the view
-    at last, in obedience to his will she made reply
+    The saints, in gorgeous crimson and blue robes
+    Then I looked around for the Count
+    and finally proceeded to the infliction of death on its sole authority
+    Rochester, as he sat in his damask-covered chair
     
-    thy hand is chill: I've felt its icy clasp
-    He was in a panic of superstitious fear
-    upon a Furnace in sifted Ashes
-    upon these occasions a man should not yield to fear
+    till they were at the door of the carriage
+    They felt their abstraction and their unlimited nature
+    Collins has made you an offer of marriage
+    observation becomes scientific in nature
     
-    -- Yes, it is necessary--necessary--necessary
-    and let it dissolve: when any thing is dissolved
-    seemed most improbable
-    Take it out, and see how much is yet to be dissolved
+    They were, so I accepted his retainer
+    I soon had them in my memory
+    I see her incline her head towards him
+    Few Greek cities have been systematically uncovered
     
-    There was nothing more
-    It is therefore of the highest concernment that great care should be taken of the understanding
+    but conceives the natural tendency of individuals to be averse
+    condemning, loathing all the universe
