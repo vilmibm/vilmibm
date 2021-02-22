@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 21 Feb 2021 05:45:01 PM CST
+## Mon 22 Feb 2021 05:45:01 PM CST
 
-    The saints, in gorgeous crimson and blue robes
-    Then I looked around for the Count
-    and finally proceeded to the infliction of death on its sole authority
-    Rochester, as he sat in his damask-covered chair
+    If he does go, the change will be doleful
+    Repentance, and true Humility
+    blindly unjust, or fiendishly ungrateful
+    ' he then gets two nuts in recompense for his infant piety
     
-    till they were at the door of the carriage
-    They felt their abstraction and their unlimited nature
-    Collins has made you an offer of marriage
-    observation becomes scientific in nature
+    One day, early in the morning while a heavy rain struck the windowpanes
+    which everybody here is of course familiar with
+    the beating of winter rain against the panes
+    an occupation of which she was fond
     
-    They were, so I accepted his retainer
-    I soon had them in my memory
-    I see her incline her head towards him
-    Few Greek cities have been systematically uncovered
+    now on the new facts that frame the problem
+    but merely as suggesting it
+    And at last, in its curved and imperceptible fall
+    no doubt, drawn from the later chapters of Ezekiel
     
-    but conceives the natural tendency of individuals to be averse
-    condemning, loathing all the universe
+    shines never clear, And oft in clouds is wholly lost
+    every day, like a new holocaust
