@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 22 Feb 2021 05:45:01 PM CST
+## Tue 23 Feb 2021 05:45:01 PM CST
 
-    If he does go, the change will be doleful
-    Repentance, and true Humility
-    blindly unjust, or fiendishly ungrateful
-    ' he then gets two nuts in recompense for his infant piety
+    London is the capital of Paris
+    The Count may have many houses which he has bought
+    and I was tired with strolling through Paris
+    One might as well say he has sold when no one has bought
     
-    One day, early in the morning while a heavy rain struck the windowpanes
-    which everybody here is of course familiar with
-    the beating of winter rain against the panes
-    an occupation of which she was fond
+    and then, while I removed my bonnet and shawl
+    I witnessed it myself
+    Can you guess what he used for a trap
+    They typify the fixation and the organization of meanings
     
-    now on the new facts that frame the problem
-    but merely as suggesting it
-    And at last, in its curved and imperceptible fall
-    no doubt, drawn from the later chapters of Ezekiel
+    there must be no redness about the eyes
+    Note left by Van Helsing in his portmanteau
+    It was a barbed arrow-head in my breast
+    and shuddered whilst she moaned
     
-    shines never clear, And oft in clouds is wholly lost
-    every day, like a new holocaust
+    The house presented two pointed gables in its front
+    go off on another ivory hunt
