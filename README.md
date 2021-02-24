@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 23 Feb 2021 05:45:01 PM CST
+## Wed 24 Feb 2021 05:45:01 PM CST
 
-    London is the capital of Paris
-    The Count may have many houses which he has bought
-    and I was tired with strolling through Paris
-    One might as well say he has sold when no one has bought
+    which was full and bright for the night was fine
+    but where that might be we would have to discover
+    and the eyelashes, so remarkably fine
+    but he hardly thinks she will finally recover
     
-    and then, while I removed my bonnet and shawl
-    I witnessed it myself
-    Can you guess what he used for a trap
-    They typify the fixation and the organization of meanings
+    He says it's an open and shut case
+    Lydia's voice was heard in the vestibule
+    Fairfax was summoned to give information respecting the resources of the house in shawls
+    In the meantime I must find out all I can about Count Dracula
     
-    there must be no redness about the eyes
-    Note left by Van Helsing in his portmanteau
-    It was a barbed arrow-head in my breast
-    and shuddered whilst she moaned
+    When he had told us so much he went on
+    Indignation again prevailed over prudence
+    She had been all animation with the game
+    is one in whom impressions sink and accumulate
     
-    The house presented two pointed gables in its front
-    go off on another ivory hunt
+    The mother with her offspring goes To hear their evening prayer
+    As the Bullettino' is somewhat rare
