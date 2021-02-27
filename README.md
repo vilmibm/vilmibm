@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 26 Feb 2021 05:45:01 PM CST
+## Sat 27 Feb 2021 05:45:01 PM CST
 
-    large woman, with strongly-marked features
-    Although under oath to tell all
-    more complex in range
-    And though its halls are fair within-- Oh
+    No one took the trouble to grunt even
+    To the traditional cat in a strange garret
+    for initiative, or for order even
+    and a helper amongst Indian women
     
-    that they may not putrefie or stink
-    he made them the more tractable and obedient to his will
-    1 The premises are called grounds
-    A being whose very presence blest Like gladsome summer-day
+    But two miles more, and then we rest
+    She hastily put down the bottle
+    that he was prevailed on to think as they thought
+    Beneath my searching eye All mist and darkness melt away
     
-    to be made useful, to be kept humble
-    and she might be amused in seeing how hopeless Miss Bingley's designs on him were
-    who was worshipped in the likeness of a ram
-    ‘Everything’s got a moral
+    vases of exotics bloomed on all sides
+    straightforward, and definite regulation
+    350 304 50 4 2 477 7 61 0 11 British
+    Shop Hours Regulation Act
     
-    when we are tempted to repudiate their follies
-    Dee continually soothed him
+    Here comes Madam Mina
+    A most delightful place
