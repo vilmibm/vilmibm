@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 27 Feb 2021 05:45:01 PM CST
+## Sun 28 Feb 2021 05:45:01 PM CST
 
-    No one took the trouble to grunt even
-    To the traditional cat in a strange garret
-    for initiative, or for order even
-    and a helper amongst Indian women
+    A colored loss, why is there no leisure
+    Now, I'm coming with you and that's final
+    Waked by the lightsome touch of pleasure
+    Grace Poole--you have guessed it
     
-    But two miles more, and then we rest
-    She hastily put down the bottle
-    that he was prevailed on to think as they thought
-    Beneath my searching eye All mist and darkness melt away
+    No, ma'am; she was sorry to have to do it
+    sometimes she would come up in the interval to seek her thimble or her scissors
+    as the great Psalmist says
+    He steered with no end of a swagger while you were by
     
-    vases of exotics bloomed on all sides
-    straightforward, and definite regulation
-    350 304 50 4 2 477 7 61 0 11 British
-    Shop Hours Regulation Act
+    still, such as she was
+    by moonlight, and tracked her into a place of graves
+    and wilfully refused the benefite thereof
+    to creep, to walk, and so on
     
-    Here comes Madam Mina
-    A most delightful place
+    the lips were swelled and dark
+    The problem is to reduce the apparent anomalies to instances of well-established laws
