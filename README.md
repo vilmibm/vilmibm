@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 28 Feb 2021 05:45:01 PM CST
+## Mon 01 Mar 2021 05:45:01 PM CST
 
-    A colored loss, why is there no leisure
-    Now, I'm coming with you and that's final
-    Waked by the lightsome touch of pleasure
-    Grace Poole--you have guessed it
+    John is a good man, said Diana
+    and addressing her nurse
+    He was sleeping soundly
+    stamped their feet, nodded their horned heads
     
-    No, ma'am; she was sorry to have to do it
-    sometimes she would come up in the interval to seek her thimble or her scissors
-    as the great Psalmist says
-    He steered with no end of a swagger while you were by
+    which were never suspected to be such
+    not themselves primarily intellectual
+    I regarded and accepted it as such
+    Bennet's schemes for this day were ineffectual
     
-    still, such as she was
-    by moonlight, and tracked her into a place of graves
-    and wilfully refused the benefite thereof
-    to creep, to walk, and so on
+    she said, as he walked up and down the street
+    ’ said the Hatter, with an anxious look at the Queen
+    you must last of all take notice and observe
+    as a vigorous and healthy body is on the qui vive for nutriment
     
-    the lips were swelled and dark
-    The problem is to reduce the apparent anomalies to instances of well-established laws
+    She glanced over it, and handed it to Mary
+    But she is too much like her brother--very
