@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 01 Mar 2021 05:45:01 PM CST
+## Tue 02 Mar 2021 05:45:01 PM CST
 
-    John is a good man, said Diana
-    and addressing her nurse
-    He was sleeping soundly
-    stamped their feet, nodded their horned heads
+    Lydia has no brothers to step forward
+    the union will melt away as if by magic
+    I don't understand,' he groaned
+    and this brings us again within the sphere of magic
     
-    which were never suspected to be such
-    not themselves primarily intellectual
-    I regarded and accepted it as such
-    Bennet's schemes for this day were ineffectual
+    I strove to fulfil every duty
+    The faint figure behind seemed to shake the pattern
+    in the discharge of what he believed his duty
+    as I have described those three Principles of Saturn
     
-    she said, as he walked up and down the street
-    ’ said the Hatter, with an anxious look at the Queen
-    you must last of all take notice and observe
-    as a vigorous and healthy body is on the qui vive for nutriment
+    His elocution consisted of main strength
+    A neglected gap was all the gate it had
+    such as lack of training and muscular strength
+    but as she cannot possibly get in before then
     
-    She glanced over it, and handed it to Mary
-    But she is too much like her brother--very
+    In outline it was an irregular eight-sided area of 100 acres
+    If the work is trying for adults
