@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 02 Mar 2021 05:45:01 PM CST
+## Wed 03 Mar 2021 05:45:01 PM CST
 
-    Lydia has no brothers to step forward
-    the union will melt away as if by magic
-    I don't understand,' he groaned
-    and this brings us again within the sphere of magic
+    does it take a matter of a quarter of a million and a quarter of a year to show it
+    You think it a faithful portrait undoubtedly
+    You shall walk up the pyramids of Egypt
+    Elizabeth quietly answered Undoubtedly
     
-    I strove to fulfil every duty
-    The faint figure behind seemed to shake the pattern
-    in the discharge of what he believed his duty
-    as I have described those three Principles of Saturn
+    I feel sure it will work you more misery if you listen to it
+    This however did not satisfy the lady
+    I, I, no, not really
+    Afterwards he was consulted by the same lady
     
-    His elocution consisted of main strength
-    A neglected gap was all the gate it had
-    such as lack of training and muscular strength
-    but as she cannot possibly get in before then
+    No change appeared on the face of the rock
+    they supposed themselves to partake of his attributes
+    Van Helsing roughly put the facts before us first
+    Opposite us were Lord Godalming
     
-    In outline it was an irregular eight-sided area of 100 acres
-    If the work is trying for adults
+    the soothsayer, who was sent for by Balak
+    Vablen, 1854, 158 , is clearly of much later date
