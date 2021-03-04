@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 03 Mar 2021 05:45:01 PM CST
+## Thu 04 Mar 2021 05:45:01 PM CST
 
-    does it take a matter of a quarter of a million and a quarter of a year to show it
-    You think it a faithful portrait undoubtedly
-    You shall walk up the pyramids of Egypt
-    Elizabeth quietly answered Undoubtedly
+    so as to have robbed them of sober sense
+    small, yet too large to be filled with my scanty wardrobe
+    and reduced the answer to shillings and pence
+    and their blunt-clawed feet as they leaped
     
-    I feel sure it will work you more misery if you listen to it
-    This however did not satisfy the lady
-    I, I, no, not really
-    Afterwards he was consulted by the same lady
+    and flew away in the form of a crow
+    and knowing how most completely to blindfold and lead astray his prepared dupes
+    extract from every deed and every phrase the spirit of interest and approval which had formerly communicated a certain austere charm to his language and manner
+    if asleep, would start up into life and alacrity
     
-    No change appeared on the face of the rock
-    they supposed themselves to partake of his attributes
-    Van Helsing roughly put the facts before us first
-    Opposite us were Lord Godalming
+    that he may be awake whilst they sleep
+    and earlier there are Tulips and Daffodils by the thousands
+    where they were engaged to drink tea
+    He is up there,' he replied
     
-    the soothsayer, who was sent for by Balak
-    Vablen, 1854, 158 , is clearly of much later date
+    Ashby, Director of the British School at Rome
+    for the gracefulness of his figure
