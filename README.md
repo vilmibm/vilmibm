@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 05 Mar 2021 03:45:01 PM CST
+## Sat 06 Mar 2021 03:45:01 PM CST
 
-    I will remand the order I despatched to my banker
-    I tried to walk again
-    and we will not linger over it
-    in my soul, which may destroy me
+    so I must e'en leave you to your sorrows
+    and the second thing is to find my way into that lovely garden
+    and how she would feel with all their simple sorrows
+    Kurtz was dead, and the station had been burnt--and so on--and so on
     
-    and then two small ones within the larger
-    I hope you saw her petticoat
-    ‘Well, I should like to be a LITTLE larger
-    Why don't you tremble
+    Who was it but one of my own race who as Voivode crossed the Danube and beat the Turk on his own ground
+    whereby it becomes a coagulated Ice
+    SUNDERLAND: Paper Mill Workers Union
+    even to the sore head that animal is afflicted with more or less occasionally
     
-    what is put into her mouth by her relentless persecutors
-    but absolutely unused to society
-    there might be a way to get back to our own time
-    arises indirectly out of his activity
+    146; and in London, where there is also none
+    The horror-stricken visitors looked at the calm
+    But, now that I’m perfectly sure I have none
+    and even Sir William did not look perfectly calm
     
-    both of whom were appeased with the coin of the realm
-    said to his servants
+    the quaintness of these retreats in the day
+    I am blest; It turns my darkest night to day
