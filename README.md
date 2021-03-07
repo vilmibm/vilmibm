@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 06 Mar 2021 03:45:01 PM CST
+## Sun 07 Mar 2021 03:45:01 PM CST
 
-    so I must e'en leave you to your sorrows
-    and the second thing is to find my way into that lovely garden
-    and how she would feel with all their simple sorrows
-    Kurtz was dead, and the station had been burnt--and so on--and so on
+    that, so far from venturing to offer him more
+    then they, too, became agitated
+    your glorious eyes Were gazing down in mine
+    this which resignation influences and restrains
     
-    Who was it but one of my own race who as Voivode crossed the Danube and beat the Turk on his own ground
-    whereby it becomes a coagulated Ice
-    SUNDERLAND: Paper Mill Workers Union
-    even to the sore head that animal is afflicted with more or less occasionally
+    It is a proof of your own attachment to Hertfordshire
+    I wonder what happened to the ship
+    Perhaps I may gain more knowledge out of the folly of this madman than I shall from the teaching of the most wise
+    It was all his own courage
     
-    146; and in London, where there is also none
-    The horror-stricken visitors looked at the calm
-    But, now that I’m perfectly sure I have none
-    and even Sir William did not look perfectly calm
+    as the heat of the Sun at Midsummer
+    if they continue in the true calling upon
+    but has less effect on that of midsummer
+    allowing her to prattle as she liked
     
-    the quaintness of these retreats in the day
-    I am blest; It turns my darkest night to day
+    as if it were an unexpected liberty
+    it is not like such words as Liberty
