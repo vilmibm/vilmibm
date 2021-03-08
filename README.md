@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 07 Mar 2021 03:45:01 PM CST
+## Mon 08 Mar 2021 03:45:01 PM CST
 
-    that, so far from venturing to offer him more
-    then they, too, became agitated
-    your glorious eyes Were gazing down in mine
-    this which resignation influences and restrains
+    This gave me a fright
+    She make no entry into her little diary
+    497; Cagnat, Année Épigr
+    He is now reading his wife's typescript of my diary
     
-    It is a proof of your own attachment to Hertfordshire
-    I wonder what happened to the ship
-    Perhaps I may gain more knowledge out of the folly of this madman than I shall from the teaching of the most wise
-    It was all his own courage
+    Who for such dainties would not stoop
+    If that repose seem woe
+    I must now mention a circumstance which I would wish to forget myself
+    It will be a change for me to visit you now and then
     
-    as the heat of the Sun at Midsummer
-    if they continue in the true calling upon
-    but has less effect on that of midsummer
-    allowing her to prattle as she liked
+    He next turned in pursuit of the adulterer
+    I never saw a lunatic in such a paroxysm of rage before
+    --Do not fail to be at Hillingham to-night
+    Just opening into sight
     
-    as if it were an unexpected liberty
-    it is not like such words as Liberty
+    Yet, pitying God, abridge the time Of anguish
+    Fixed there by the keenest of all anguish
