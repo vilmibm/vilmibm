@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 08 Mar 2021 03:45:01 PM CST
+## Tue 09 Mar 2021 03:45:01 PM CST
 
-    This gave me a fright
-    She make no entry into her little diary
-    497; Cagnat, Année Épigr
-    He is now reading his wife's typescript of my diary
+    thou mayst reply, Walk on the common sod
+    I know my magic power To drive thy griefs away
+    he fetched a basin of water from the washstand
+    Thornfield belonged to you
     
-    Who for such dainties would not stoop
-    If that repose seem woe
-    I must now mention a circumstance which I would wish to forget myself
-    It will be a change for me to visit you now and then
+    that they trouble themselves in such matter
+    with the thermometer at twenty-five degrees
+    bt embodying much older matter
+    but they all looked so grave that she did not dare to laugh
     
-    He next turned in pursuit of the adulterer
-    I never saw a lunatic in such a paroxysm of rage before
-    --Do not fail to be at Hillingham to-night
-    Just opening into sight
+    Finally, the securing of external results is an aim that lends itself naturally to the mechanics of school administration--to examinations
+    interrupted their testimony with exclaiming that they saw the ghosts of the murdered wives present who had promised them they would come
+    when the children themselves are occupied only with transitory physical excitations
+    and the woman with helmeted head and tawny cheeks rushed out to the very brink of the stream
     
-    Yet, pitying God, abridge the time Of anguish
-    Fixed there by the keenest of all anguish
+    You make me feel as I have not felt these twelve months
+    You have been resident in my house three months
