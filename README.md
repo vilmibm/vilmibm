@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 09 Mar 2021 03:45:01 PM CST
+## Wed 10 Mar 2021 03:45:01 PM CST
 
-    thou mayst reply, Walk on the common sod
-    I know my magic power To drive thy griefs away
-    he fetched a basin of water from the washstand
-    Thornfield belonged to you
+    And lights your room like day
+    I shall not wait for any opportunity
+    but when we had lit our cigars he said-- Lord----
+    have been a girl of good natural capacity
     
-    that they trouble themselves in such matter
-    with the thermometer at twenty-five degrees
-    bt embodying much older matter
-    but they all looked so grave that she did not dare to laugh
+    and finally he was brought to trial
+    Will He accept a mutilated sacrifice
+    is Madame Pierrot: she comes from Lisle
+    If so, then certainly I delight in sacrifice
     
-    Finally, the securing of external results is an aim that lends itself naturally to the mechanics of school administration--to examinations
-    interrupted their testimony with exclaiming that they saw the ghosts of the murdered wives present who had promised them they would come
-    when the children themselves are occupied only with transitory physical excitations
-    and the woman with helmeted head and tawny cheeks rushed out to the very brink of the stream
+    I have no method; and sometimes I say
+    they had, even in relatively modern days
+    2 divided what it was judicious to say
+    she seemed brighter and better than she had been for days
     
-    You make me feel as I have not felt these twelve months
-    You have been resident in my house three months
+    but he threw a large stone into the midst of their ranks
+    which may seem purposely to ask for your thanks
