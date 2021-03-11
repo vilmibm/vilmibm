@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 10 Mar 2021 03:45:01 PM CST
+## Thu 11 Mar 2021 03:45:01 PM CST
 
-    And lights your room like day
-    I shall not wait for any opportunity
-    but when we had lit our cigars he said-- Lord----
-    have been a girl of good natural capacity
+    shows a rectangular town-plan in a city which speedily became one among the three or four largest and wealthiest cities in the Empire
+    I--I have mourned so long in silence--in silence
+    I feel like a novice lumbering through a bog in a mist
+    You certainly shall not go till you have told me all
     
-    and finally he was brought to trial
-    Will He accept a mutilated sacrifice
-    is Madame Pierrot: she comes from Lisle
-    If so, then certainly I delight in sacrifice
+    who delighted in mischief
+    Rochester had flung herself from the battlements
+    remote from the scene of this cruel outrage
+    Of course, a fool, what with sheer fright and fine sentiments
     
-    I have no method; and sometimes I say
-    they had, even in relatively modern days
-    2 divided what it was judicious to say
-    she seemed brighter and better than she had been for days
+    While Mary is adjusting her ideas
+    they are oblong and the oblongs are very long and narrow
+    which introduce favorable ideas
+    Women need to be less rigidly conscientious in these matters
     
-    but he threw a large stone into the midst of their ranks
-    which may seem purposely to ask for your thanks
+    had to meditate upon Charlotte's degree of contentment
+    he told the king that the ground they had chosen for his tower
