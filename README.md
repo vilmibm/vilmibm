@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 12 Mar 2021 03:45:01 PM CST
+## Sat 13 Mar 2021 03:45:01 PM CST
 
-    let me tell you that this case of our dear miss is one that may be--mind
-    The keen wind still carried the howling of the dogs
-    spread out over considerable undulating land with winding gravel paths and stone stairs connecting the various parts
-    As he further applies the meaning to other dogs
+    Chance laid them somewhat apart
+    Does not Sophie sleep with Adele in the nursery
+    Except where there is a system of principles capable of being elaborated by theoretical reasoning
+    could only say something indistinctly of his concern
     
-    Can I have your thumbprint here
-    and beginning-- Day set on Norhams castled steep
-    which must likewise continue three days and nights
-    and the wedding table was spread
+    if I continued to make similar improvement two months longer
+    Phillips was very glad for his compliance
+    and awoke of my own accord
+    and our privileges in this outdoor life that we lead
     
-    Mate getting very impatient with them
-    and whispered, like a voice that one hears in a dream
-    before I attempted to embody them
-    as one looks who has been waked out of a bad dream
+    -- First, she dreamed of little Alice herself
+    religious energy, and because your upward gaze at me now is the very sublime of faith
+    men of little book-learning are often able to put to effective use every ounce of knowledge they possess
+    There was a deliberate voluptuousness which was both thrilling and repulsive
     
-    ’ cried Alice, with a sudden burst of tears
-    but it was a subject on which Mrs
+    I beg your pardon; one knows exactly what to think
+    There are weeks when the garden is all pink
