@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 13 Mar 2021 03:45:01 PM CST
+## Sun 14 Mar 2021 03:45:01 PM CDT
 
-    Chance laid them somewhat apart
-    Does not Sophie sleep with Adele in the nursery
-    Except where there is a system of principles capable of being elaborated by theoretical reasoning
-    could only say something indistinctly of his concern
+    his agent and some of his tenants were arrived
+    I wished you were at home
+    Chapter 51 Their sister's wedding day arrived
+    The Particulars Clause
     
-    if I continued to make similar improvement two months longer
-    Phillips was very glad for his compliance
-    and awoke of my own accord
-    and our privileges in this outdoor life that we lead
+    PLATE 52 The centre section Illustration
+    I scoffed, as the chill chains on the damp flagstones rung
+    not, I declare, the convulsion of the soul
+    Lucy's father, had the same habit
     
-    -- First, she dreamed of little Alice herself
-    religious energy, and because your upward gaze at me now is the very sublime of faith
-    men of little book-learning are often able to put to effective use every ounce of knowledge they possess
-    There was a deliberate voluptuousness which was both thrilling and repulsive
+    But I didn't clear out
+    the two ladies in front
+    But we must suppose that it had
+    I always had smaller lobes than the rest of the boys
     
-    I beg your pardon; one knows exactly what to think
-    There are weeks when the garden is all pink
+    He had tied a bit of white worsted round his neck--Why
+    and though she demurred at first--I know why
