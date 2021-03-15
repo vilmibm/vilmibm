@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 14 Mar 2021 03:45:01 PM CDT
+## Mon 15 Mar 2021 03:45:01 PM CDT
 
-    his agent and some of his tenants were arrived
-    I wished you were at home
-    Chapter 51 Their sister's wedding day arrived
-    The Particulars Clause
+    in the interests of both teachers and taught
+    to see you again the dupe of Miss Bingley's pretended regard
+    poure it on again as hath been taught
+    and turned to the bed
     
-    PLATE 52 The centre section Illustration
-    I scoffed, as the chill chains on the damp flagstones rung
-    not, I declare, the convulsion of the soul
-    Lucy's father, had the same habit
+    and expressed admiration of his figure
+    whether in the house or abroad I could not at first tell
+    stately, and finely developed in figure
+    older than the systematic town-planning of the Greek lands
     
-    But I didn't clear out
-    the two ladies in front
-    But we must suppose that it had
-    I always had smaller lobes than the rest of the boys
+    Brocklehurst; it is akin to falsehood
+    and are buried in the gulf of oblivion
+    and within the circlet of a band of gems
+    became a municipium under Hadrian
     
-    He had tied a bit of white worsted round his neck--Why
-    and though she demurred at first--I know why
+    and is, only a child
+    always sticking their ugly noses in other peoples business
