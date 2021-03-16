@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 15 Mar 2021 03:45:01 PM CDT
+## Tue 16 Mar 2021 03:45:01 PM CDT
 
-    in the interests of both teachers and taught
-    to see you again the dupe of Miss Bingley's pretended regard
-    poure it on again as hath been taught
-    and turned to the bed
+    It does not do to trust people too much
+    r the sanitary conditions of workshops
+    but I don't think the poor girl liked the task much
+    The generation of Tin in and above the Earth
     
-    and expressed admiration of his figure
-    whether in the house or abroad I could not at first tell
-    stately, and finely developed in figure
-    older than the systematic town-planning of the Greek lands
+    and events perpetually occurred
+    One good screech will do more for you than all your rifles
+    and taking up another ring and more tape
+    He really did want to open the door
     
-    Brocklehurst; it is akin to falsehood
-    and are buried in the gulf of oblivion
-    and within the circlet of a band of gems
-    became a municipium under Hadrian
+    lying in the plain close to the harbour
+    Tis sweet to think that thou hast been
+    which broadens out as it comes near the harbour
+    we had another meal, consisting of a small mug of coffee
     
-    and is, only a child
-    always sticking their ugly noses in other peoples business
+    Never did I imagine such wrath and fury
+    Keeping my cab at the gate
