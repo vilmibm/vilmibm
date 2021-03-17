@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 16 Mar 2021 03:45:01 PM CDT
+## Wed 17 Mar 2021 03:45:01 PM CDT
 
-    It does not do to trust people too much
-    r the sanitary conditions of workshops
-    but I don't think the poor girl liked the task much
-    The generation of Tin in and above the Earth
+    but each was given in simple good faith
+    Oh, this last hour, approaching in such horror
+    all which is only to be obtained by Faith
+    who, astonished and confused
     
-    and events perpetually occurred
-    One good screech will do more for you than all your rifles
-    and taking up another ring and more tape
-    He really did want to open the door
+    as sure as ferrets are ferrets
+    and they had recourse to the stake and the faggot
+    We sat down and waited for the jury
+    Engagement is almost always for the run of a single piece only
     
-    lying in the plain close to the harbour
-    Tis sweet to think that thou hast been
-    which broadens out as it comes near the harbour
-    we had another meal, consisting of a small mug of coffee
+    Here then is a Corsair-song
+    so it did not enlarge
+    as we read of in the annals of witchcraft
+    Matchbox-makers of Shoreditch and Bow
     
-    Never did I imagine such wrath and fury
-    Keeping my cab at the gate
+    I had scarce tied the strings of the portfolio
+    left to myself I abandoned myself
