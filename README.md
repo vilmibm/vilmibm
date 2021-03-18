@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 17 Mar 2021 03:45:01 PM CDT
+## Thu 18 Mar 2021 03:45:01 PM CDT
 
-    but each was given in simple good faith
-    Oh, this last hour, approaching in such horror
-    all which is only to be obtained by Faith
-    who, astonished and confused
+    and that as to the wolves we must submit
+    to terrify men of wisdom and penetration
+    even if they would have courage to submit
+    What was the use of a whole time to send and not send if there was to be the kind of thing that made that come in
     
-    as sure as ferrets are ferrets
-    and they had recourse to the stake and the faggot
-    We sat down and waited for the jury
-    Engagement is almost always for the run of a single piece only
+    in which her whole thoughts seemed absorbed
+    the last sacrament is being administered
+    But Grete's words had made her mother quite worried
+    Ay, dead as the stones on which her brains and blood were scattered
     
-    Here then is a Corsair-song
-    so it did not enlarge
-    as we read of in the annals of witchcraft
-    Matchbox-makers of Shoreditch and Bow
+    Where did you get your copies
+    If I had not read Jonathan's journal first
+    ' she said, Till Summer's burning days are fled
+    As, however, we do not know the real date of his birth
     
-    I had scarce tied the strings of the portfolio
-    left to myself I abandoned myself
+    And when thy opening eyes shall see Mementos
+    so it remained there as a visible reminder of his injury
