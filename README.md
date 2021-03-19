@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 18 Mar 2021 03:45:01 PM CDT
+## Fri 19 Mar 2021 03:45:01 PM CDT
 
-    and that as to the wolves we must submit
-    to terrify men of wisdom and penetration
-    even if they would have courage to submit
-    What was the use of a whole time to send and not send if there was to be the kind of thing that made that come in
+    but there may be experiment kisses
+    I tried to stir, but there was some spell upon me
+    for the devil had taken care not to shew him the real hell
+    And yet I stooped down and kissed her
     
-    in which her whole thoughts seemed absorbed
-    the last sacrament is being administered
-    But Grete's words had made her mother quite worried
-    Ay, dead as the stones on which her brains and blood were scattered
+    Van Helsing said solemnly
+    People were arriving
+    and I felt sympathy in her hurried breathing
+    Their greatest edifices
     
-    Where did you get your copies
-    If I had not read Jonathan's journal first
-    ' she said, Till Summer's burning days are fled
-    As, however, we do not know the real date of his birth
+    None the less, the advice to discriminate what is observed from what is inferred is sound practical advice
+    and before she could strike into another path
+    Nearer in fairy sea, nearer and farther
+    The Gardiners stayed a week at Longbourn
     
-    And when thy opening eyes shall see Mementos
-    so it remained there as a visible reminder of his injury
+    Brother, how did your meeting with the general go
+    I should like to speak to her before I go
