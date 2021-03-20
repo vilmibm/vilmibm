@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 19 Mar 2021 03:45:01 PM CDT
+## Sat 20 Mar 2021 03:45:01 PM CDT
 
-    but there may be experiment kisses
-    I tried to stir, but there was some spell upon me
-    for the devil had taken care not to shew him the real hell
-    And yet I stooped down and kissed her
+    afterwards Seleucus I
+    ll very well, washing is old
+    the owner of the Project Gutenberg-tm trademark
+    The jury sitting at my second trial has retired
     
-    Van Helsing said solemnly
-    People were arriving
-    and I felt sympathy in her hurried breathing
-    Their greatest edifices
+    And should you like to fall into that pit
+    which is often so annoying to their customers
+    At length nine of the boldest seize on a spit
+    Octavian Augustus in his earlier years established or helped to establish about thirty
     
-    None the less, the advice to discriminate what is observed from what is inferred is sound practical advice
-    and before she could strike into another path
-    Nearer in fairy sea, nearer and farther
-    The Gardiners stayed a week at Longbourn
+    but Blanche was moulded like a Dian
+    I will say the very thought of you makes me sick
+    PLATE 127 The Farms, Monticello
+    The Consul is away, and the Vice-Consul sick
     
-    Brother, how did your meeting with the general go
-    I should like to speak to her before I go
+    I’ll try if I know all the things I used to know
+    You forget--or perhaps you do not know
