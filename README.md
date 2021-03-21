@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 20 Mar 2021 03:45:01 PM CDT
+## Sun 21 Mar 2021 03:45:01 PM CDT
 
-    afterwards Seleucus I
-    ll very well, washing is old
-    the owner of the Project Gutenberg-tm trademark
-    The jury sitting at my second trial has retired
+    Yes, maam--but she looks such a tinkler
+    wherefore it is not amiss to observe
+    although the climates are very similar
+    As Machiavelli thought it worth while to observe
     
-    And should you like to fall into that pit
-    which is often so annoying to their customers
-    At length nine of the boldest seize on a spit
-    Octavian Augustus in his earlier years established or helped to establish about thirty
+    Jane recollected herself soon
+    The streets which preserve Roman lines are marked in black
+    the first part still existing in manuscript
+    is very imposing: they are all costumed in black
     
-    but Blanche was moulded like a Dian
-    I will say the very thought of you makes me sick
-    PLATE 127 The Farms, Monticello
-    The Consul is away, and the Vice-Consul sick
+    I have taken care that the door is locked and the window securely fastened
+    the friar did not dare to trust the punishment of his enemies to the general assembly
+    and then waited day after day
+    The gypsies may not have known the language
     
-    I’ll try if I know all the things I used to know
-    You forget--or perhaps you do not know
+    addressing me, she said-- You ought to be aware
+    but with the sternest look that his face could wear
