@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 21 Mar 2021 03:45:01 PM CDT
+## Mon 22 Mar 2021 03:45:01 PM CDT
 
-    Yes, maam--but she looks such a tinkler
-    wherefore it is not amiss to observe
-    although the climates are very similar
-    As Machiavelli thought it worth while to observe
+    All this I enjoyed often and fully
+    which is found to abound most in each
+    I for analysis; she liked to inform
+    She saw her in idea settled in that very house
     
-    Jane recollected herself soon
-    The streets which preserve Roman lines are marked in black
-    the first part still existing in manuscript
-    is very imposing: they are all costumed in black
+    had been in operation for three months
+    and seemed gathering life and threatening a revelation of the arch-traitor--of Satan himself--in his subordinate's form
+    the pump-fact has thus been assimilated to a whole group of ordinary facts from which it was previously isolated
+    and yet it seemed to me as if my feet were weighted with lead
     
-    I have taken care that the door is locked and the window securely fastened
-    the friar did not dare to trust the punishment of his enemies to the general assembly
-    and then waited day after day
-    The gypsies may not have known the language
+    Ann Chattox of eighty years of age among the rest
+    Darcy took up a book
+    of Avicenna, who was a drunkard and yet controlled numberless legions of spirits
+    Why dost thou hold the treasure fast
     
-    addressing me, she said-- You ought to be aware
-    but with the sternest look that his face could wear
+    and had a remarkable knack of narrative
+    The far and the near must be relative
