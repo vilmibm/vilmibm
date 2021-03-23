@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 22 Mar 2021 03:45:01 PM CDT
+## Tue 23 Mar 2021 03:45:01 PM CDT
 
-    All this I enjoyed often and fully
-    which is found to abound most in each
-    I for analysis; she liked to inform
-    She saw her in idea settled in that very house
+    Oh, why did I ever go to Whitby
+    She gnaws their fingers
+    This is to my mind the nicest spot in Whitby
+    I can tell you whether I found any one I liked
     
-    had been in operation for three months
-    and seemed gathering life and threatening a revelation of the arch-traitor--of Satan himself--in his subordinate's form
-    the pump-fact has thus been assimilated to a whole group of ordinary facts from which it was previously isolated
-    and yet it seemed to me as if my feet were weighted with lead
+    and he pointed to the prominences which are said to indicate that faculty
+    hurried into the vestibule
+    and was driven by the magician to her sty
+    Moreover, the tip was enough higher than the base
     
-    Ann Chattox of eighty years of age among the rest
-    Darcy took up a book
-    of Avicenna, who was a drunkard and yet controlled numberless legions of spirits
-    Why dost thou hold the treasure fast
+    but the uncertain light from the hearth showed
+    Their father then went on to the library to write
+    then dropped on one knee at his feet
+    yet, coming from a supernatural enemy
     
-    and had a remarkable knack of narrative
-    The far and the near must be relative
+    it was neither more nor less than a pig
+    I should get a respectable locksmith
