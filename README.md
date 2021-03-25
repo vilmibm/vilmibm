@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 24 Mar 2021 03:45:01 PM CDT
+## Thu 25 Mar 2021 03:45:01 PM CDT
 
-    for it tells in its way the story of his race
-    County of New York, for after all this fuss and expenditure
-    I can tell you this--if the whole human race
-    For those who live out of sight of this great industry
+    and give passage to the form of Grace Poole
+    Im thinkin it was nane ither than that same
+    as she swam lazily about in the pool
+    His guilt and his descent appear by your account to be the same
     
-    Perhaps grief and trouble are dulling my brain
-    But suppose the agonized mother to have been dead many years
-    the thought of subway or elevated train
-    growling over it as a dog growls over a bone
+    It is necessary here to take notice of the great revolution that took place under Constantine
+    The joyless blank of life to fill
+    Rochester, reader, amidst these changes of place and fortune
+    and the change which has taken place in the standpoint from which all questions--even the most abstract--regarding the condition of women are now discussed
     
-    As I did so, I heard the rapid pit-pat of a swiftly driven horse's feet
-    but it would neither come nor cease to make a noise
-    covered with a film of dust
-    We are due to arrive between two and three in the morning
+    and but few fishing-boats were in sight
+    said she; don't annoy me with holding the clothes fast
+    it was not till Sir William was out of sight
+    I am afraid they will try to claim it as theirs though
     
-    who call every few moments for interviews
-    Miss Bennet's lovely face confirmed his views
+    and when he had wandered upstairs and downstairs
+    I hope he will overlook it
