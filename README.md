@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 25 Mar 2021 03:45:01 PM CDT
+## Fri 26 Mar 2021 03:45:01 PM CDT
 
-    and give passage to the form of Grace Poole
-    Im thinkin it was nane ither than that same
-    as she swam lazily about in the pool
-    His guilt and his descent appear by your account to be the same
+    He made a little mistake to be sure
+    and there was no possible reason why I should
+    , and, accompanied by her
+    very hot and agitated
     
-    It is necessary here to take notice of the great revolution that took place under Constantine
-    The joyless blank of life to fill
-    Rochester, reader, amidst these changes of place and fortune
-    and the change which has taken place in the standpoint from which all questions--even the most abstract--regarding the condition of women are now discussed
+    His eagerness betrayed him as he answered
+    as he has to be for a day in Amsterdam
+    I gave another tug before I answered
+    ‘Reeling and Writhing
     
-    and but few fishing-boats were in sight
-    said she; don't annoy me with holding the clothes fast
-    it was not till Sir William was out of sight
-    I am afraid they will try to claim it as theirs though
+    and insists upon being brought in before the quality
+    as first of all the great World was made of nothing
+    He laughs at me so about this wallpaper
+    ‘I can see you’re trying to invent something
     
-    and when he had wandered upstairs and downstairs
-    I hope he will overlook it
+    These points yielded a regular plan of streets crossing at right angles
+    With clamorous lies he told this knell
