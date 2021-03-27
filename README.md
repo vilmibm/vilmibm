@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 26 Mar 2021 03:45:01 PM CDT
+## Sat 27 Mar 2021 03:45:01 PM CDT
 
-    He made a little mistake to be sure
-    and there was no possible reason why I should
-    , and, accompanied by her
-    very hot and agitated
+    his piercing, dark eyes looked out fresh and alert
+    but that show up all earth below for leagues and leagues
+    phonetic spelling had again misled me
+    and while Meryton was within a walk of Longbourn
     
-    His eagerness betrayed him as he answered
-    as he has to be for a day in Amsterdam
-    I gave another tug before I answered
-    ‘Reeling and Writhing
+    especially concerning the color scheme
+    and as for her eyes, which have sometimes been called so fine
+    and could she have included Jane in the scheme
+    Darcy soon drew the attention of the room by his fine
     
-    and insists upon being brought in before the quality
-    as first of all the great World was made of nothing
-    He laughs at me so about this wallpaper
-    ‘I can see you’re trying to invent something
+    and was coming back to finish his story
+    which will not be yours till after your mothers decease
+    low corridor of the fateful third storey
+    in one respect, but with most danger in another
     
-    These points yielded a regular plan of streets crossing at right angles
-    With clamorous lies he told this knell
+    who lives somewhere near Cheapside
+    he demanded, trying, as it seemed
