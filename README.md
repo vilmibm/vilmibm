@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 27 Mar 2021 03:45:01 PM CDT
+## Sun 28 Mar 2021 03:45:01 PM CDT
 
-    his piercing, dark eyes looked out fresh and alert
-    but that show up all earth below for leagues and leagues
-    phonetic spelling had again misled me
-    and while Meryton was within a walk of Longbourn
+    that he made an entire man of brass
+    No notice was taken; and a long pause ensued
+    so that gradually it shall become a conscious tool of conveying knowledge and assisting thought
+    a whole waggon-load of morrice-dancers and jugglers
     
-    especially concerning the color scheme
-    and as for her eyes, which have sometimes been called so fine
-    and could she have included Jane in the scheme
-    Darcy soon drew the attention of the room by his fine
+    with very dark houses and all smoky
+    But in photography detail is lost when the camera is at sufficient distance to include more than a small section of such a design
+    which is part of a larger plan
+    as if against the central-asiatic nomads
     
-    and was coming back to finish his story
-    which will not be yours till after your mothers decease
-    low corridor of the fateful third storey
-    in one respect, but with most danger in another
+    They're not as ugly as the old ones
+    which made him feel quite sad
+    then another fellow, one of the dead ones
+    The attendant who was kneeling beside the body said to me as we turned him over
     
-    who lives somewhere near Cheapside
-    he demanded, trying, as it seemed
+    whose condition in life is so decidedly beneath my own
+    cried out-- N'est-ce pas
