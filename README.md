@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 28 Mar 2021 03:45:01 PM CDT
+## Mon 29 Mar 2021 03:45:01 PM CDT
 
-    that he made an entire man of brass
-    No notice was taken; and a long pause ensued
-    so that gradually it shall become a conscious tool of conveying knowledge and assisting thought
-    a whole waggon-load of morrice-dancers and jugglers
+    He said to me: Remain till I return
+    it would be the greatest misfortune to geology
+    She looked appealingly to us all in turn
+    but for her accomplishments
     
-    with very dark houses and all smoky
-    But in photography detail is lost when the camera is at sufficient distance to include more than a small section of such a design
-    which is part of a larger plan
-    as if against the central-asiatic nomads
+    what followed is the strange point
+    reached Longbourn by dinner time the next day
+    to be wealthy, cigarettes are established by length and by doubling
+    The high ridge of Mycale towered above it
     
-    They're not as ugly as the old ones
-    which made him feel quite sad
-    then another fellow, one of the dead ones
-    The attendant who was kneeling beside the body said to me as we turned him over
+    than the impious incredulity of certain modern Sadducees
+    whereby a Man is confirm'd in his Melancholy
+    Seeing that Preston, Leicester
+    Then, coming close to me
     
-    whose condition in life is so decidedly beneath my own
-    cried out-- N'est-ce pas
+    nothing breaking the losing of no little piece
+    two, three, or even four houses apiece
