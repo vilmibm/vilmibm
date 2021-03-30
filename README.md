@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 29 Mar 2021 03:45:01 PM CDT
+## Tue 30 Mar 2021 03:45:01 PM CDT
 
-    He said to me: Remain till I return
-    it would be the greatest misfortune to geology
-    She looked appealingly to us all in turn
-    but for her accomplishments
+    Rivers, she said, was a plain man enough
+    I have bloomed in my last summer's sun
+    ’ said the Cat, ‘if you only walk long enough
+    My dear Lizzy, they must have passed within ten miles of us
     
-    what followed is the strange point
-    reached Longbourn by dinner time the next day
-    to be wealthy, cigarettes are established by length and by doubling
-    The high ridge of Mycale towered above it
+    had powdered hair that curled all over their heads
+    and insisted on my being put under control
+    light pink Petunias the other two beds
+    her household and tenantry were thoroughly under her control
     
-    than the impious incredulity of certain modern Sadducees
-    whereby a Man is confirm'd in his Melancholy
-    Seeing that Preston, Leicester
-    Then, coming close to me
+    no chimneys--all had crashed in
+    The gaslight which I had left lit for Jonathan
+    but I was overruled, as I always am
+    except that I knew I was coming to Jonathan
     
-    nothing breaking the losing of no little piece
-    two, three, or even four houses apiece
+    I like Revelations, and the book of Daniel
+    Mason than you have from me
