@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 31 Mar 2021 03:45:01 PM CDT
+## Thu 01 Apr 2021 03:45:01 PM CDT
 
-    The gypsies may not have known the language
-    The high stillness confronted these two figures with its ominous patience
-    they vented their wrath in curses and ill language
-    in which the noble poet saw this beautiful dame
+    they are part of his natural environment
+    to enjoy many returns of that delightful intercourse we have known
+    and rifted Jove's stout oak With his own bolt
+    expressly constructed in such a manner as to be able to answer such questions as were propounded to it
     
-    He, don't you see, had been planning to be assistant-manager by and by under the present man
-    I cannot comprehend the neglect of a family library in such days as these
-    I thought, I continued
-    And I think you will agree with me
+    Put them next to your great-uncle the judge
+    is as necessary at the reasoning stage
+    without the Warrant of an especial Judge
+    if he had not wanted to avoid a certain gentleman here
     
-    and a whole myriad of little specks seemed to come blowing in through the broken window
-    I could see Renfield's figure just disappearing behind the angle of the house
-    great-uncle to the king
-    Fortunately I am not of a fainting disposition
+    He held in his hand an antique silver lamp
+    lay the instrument on her mother's lap who still sat laboriously struggling for breath where she was
+    that at death they wholly ceased to exist
+    But because other Labours prevent me therein
     
-    and I went back to the room where Lucy now was
-    you will perhaps think differently of your post and protegee
+    I rested my head against a pillow or an arm
+    He was fighting for his life
