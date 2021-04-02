@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 01 Apr 2021 03:45:01 PM CDT
+## Fri 02 Apr 2021 03:45:01 PM CDT
 
-    they are part of his natural environment
-    to enjoy many returns of that delightful intercourse we have known
-    and rifted Jove's stout oak With his own bolt
-    expressly constructed in such a manner as to be able to answer such questions as were propounded to it
+    The Professor held up his little golden crucifix
+    this obedience to song and to potent herbs
+    1 a controversy, consisting of opposite claims regarding the same objective situation
+    and scattering on its surface the juice of potent herbs
     
-    Put them next to your great-uncle the judge
-    is as necessary at the reasoning stage
-    without the Warrant of an especial Judge
-    if he had not wanted to avoid a certain gentleman here
+    We have reason to imagine that his aunt
+    and the horses, plunging into a river on their road
+    for perfect system can prevail where each plant
+    the first part still existing in manuscript
     
-    He held in his hand an antique silver lamp
-    lay the instrument on her mother's lap who still sat laboriously struggling for breath where she was
-    that at death they wholly ceased to exist
-    But because other Labours prevent me therein
+    and from the iron the paint had mostly scaled away
+    not if they knew the man was properly employed
+    that showed only ranks of skeletons
+    Let me try to wait His will in silence
     
-    I rested my head against a pillow or an arm
-    He was fighting for his life
+    That the conviction has been obtained illegally is universally admitted
+    and on this side the walls have disappeared or have not been yet uncovered
