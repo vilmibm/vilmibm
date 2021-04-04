@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 03 Apr 2021 03:45:01 PM CDT
+## Sun 04 Apr 2021 03:45:01 PM CDT
 
-    and at the mercy of Lord Godalming and Dr
-    we would be absolutely in the air--in space
-    Nothing can be more striking than the contrast between man and the inferior animals
-    so that nothing could proceed at the usual pace
+    He was fond of the country and of books
+    But the instant she had disappeared he pulled me
+    she used to repeat sounding phrases from books
+    Here the new art of excavation has already achieved many and varied successes
     
-    if I were in your place
-    The third case, that of the appearance and movement of the bubbles
-    And that blest home above
-    you and I, and all the rest of us
+    Board Schools, Salaries in
+    but lose no time; there is not an instant to spare
+    223 The general belief in astrology had a memorable effect on the history of the human mind
+    blank of meaning but for the glassiness of despair
     
-    The headships of colleges and training colleges available are of course very limited in number
-    would have succumbed now
-    Their problems are quite unlike those of the ancients
-    I suppose I shall have to get back behind the pattern when it comes night
+    and would have shared in every fatigue
+    they refused to alter the then existing law
+    was quite unable to endure the fatigue
+    Increased employment of women--Women preachers--LAW
     
-    Darcy's conduct in it less than infamous
-    if our comfort springs from a breach of promise
+    to me it seemed as though the mist itself had screamed
+    and again you paced gently on and dreamed
