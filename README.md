@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 05 Apr 2021 03:45:01 PM CDT
+## Tue 06 Apr 2021 03:45:01 PM CDT
 
-    And there was a pleasure in my services
-    and seemingly without a window of any sort
-    We have to do something
-    that you observe all that which I have revealed unto you
+    when one reads a great deal and works out chess problems with bits of paper on a home-made board
+    Princeton, Columbia in America
+    on all occasions fortitude pleased him
+    Thank God it is no worse
     
-    Seward tried one or two skeleton keys
-    is requested to send references
-    Yet a chance traveller might pass by
-    Other Volumes are in preparation
+    I am blest; It turns my darkest night to day
+    The Benchers might admit them as certificated conveyancers
+    His father is said to have lived in some repute
+    and had to call two or three times before she awoke
     
-    or the scheme of the ordinary roads
-    and set the other half again to multiply
-    If these are survivals of other such roads
-    at last, in obedience to his will she made reply
+    ‘Yes, that’s it,’ said the Hatter with a sigh
+    I thought I could distinguish the two volumes of Bewick's British Birds occupying their old place on the third shelf
+    He considered it necessary to sigh
+    Jack ashore--with a difference--in externals only
     
-    and soon every mortal foot danced by the white foot of an immortal
-    but my spirits might often lead me wrong
+    He lashed the horses unmercifully with his long whip
+    Teatina on the north
