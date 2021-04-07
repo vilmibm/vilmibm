@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 06 Apr 2021 03:45:01 PM CDT
+## Wed 07 Apr 2021 03:45:01 PM CDT
 
-    when one reads a great deal and works out chess problems with bits of paper on a home-made board
-    Princeton, Columbia in America
-    on all occasions fortitude pleased him
-    Thank God it is no worse
+    Such failures as these are not really a test of genuine cooperation
+    Grant this--and be hereafter paid By a warm heart's devoted aid
+    and their reply; of both of these I got copies
+    we do not claim a right to prevent you from copying
     
-    I am blest; It turns my darkest night to day
-    The Benchers might admit them as certificated conveyancers
-    His father is said to have lived in some repute
-    and had to call two or three times before she awoke
+    It would be past the power of magic
+    Indeed, it was no wonder that my friends were alarmed
+    I wouldn’t be in Bill’s place for a good deal
+    prescribes the chief features of the acts to be performed
     
-    ‘Yes, that’s it,’ said the Hatter with a sigh
-    I thought I could distinguish the two volumes of Bewick's British Birds occupying their old place on the third shelf
-    He considered it necessary to sigh
-    Jack ashore--with a difference--in externals only
+    I shut the closet to conceal the strange
+    If you do not understand the English language
+    ture than there would be if there had been no change
+    I inquired, amazed at hearing the French language
     
-    He lashed the horses unmercifully with his long whip
-    Teatina on the north
+    the best words at my service were provoking puppet
+    and exclaimed, Oh, what a little puppet
