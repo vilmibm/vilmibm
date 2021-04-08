@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 07 Apr 2021 03:45:01 PM CDT
+## Thu 08 Apr 2021 03:45:01 PM CDT
 
-    Such failures as these are not really a test of genuine cooperation
-    Grant this--and be hereafter paid By a warm heart's devoted aid
-    and their reply; of both of these I got copies
-    we do not claim a right to prevent you from copying
+    aggravated murder on a great scale
+    Had she found Jane in any apparent danger
+    King, architect to the excavations scale
+    and I am far from regarding you as a stranger
     
-    It would be past the power of magic
-    Indeed, it was no wonder that my friends were alarmed
-    I wouldn’t be in Bill’s place for a good deal
-    prescribes the chief features of the acts to be performed
+    that be a whole thought
+    one with the keeper about the new suit of clothes
+    me as a sister: so let us continue
+    and Jane more especially
     
-    I shut the closet to conceal the strange
-    If you do not understand the English language
-    ture than there would be if there had been no change
-    I inquired, amazed at hearing the French language
+    The sensible decision was that notwithstanding many declarations and more music
+    and behind them the younger children crouched in groups
+    And all that was most illustrious in intellect at this period belonged either to the one or the other
+    but there was nothing on it but tea
     
-    the best words at my service were provoking puppet
-    and exclaimed, Oh, what a little puppet
+    It is not despair of success that keeps me dumb
+    Acquisitions, clothes
