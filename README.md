@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 08 Apr 2021 03:45:01 PM CDT
+## Fri 09 Apr 2021 03:45:01 PM CDT
 
-    aggravated murder on a great scale
-    Had she found Jane in any apparent danger
-    King, architect to the excavations scale
-    and I am far from regarding you as a stranger
+    Entered my soul unmingled bliss
+    Darcy, observed Miss Bingley in a half whisper
+    on two main streets which crossed at right angles fig
+    He rushed up to me, saying in an eager whisper
     
-    that be a whole thought
-    one with the keeper about the new suit of clothes
-    me as a sister: so let us continue
-    and Jane more especially
+    PLATE 52 The centre section Illustration
+    By this time I had searched all the tombs in the chapel
+    just as a lizard moves along a wall
+    through gradual exercise
     
-    The sensible decision was that notwithstanding many declarations and more music
-    and behind them the younger children crouched in groups
-    And all that was most illustrious in intellect at this period belonged either to the one or the other
-    but there was nothing on it but tea
+    NOTTINGHAM: Tailoresses’ Union
+    against Molineux; and Molineux won
+    What am I going to do if my brother dies
+    and an end to achieve which is not a selfish one
     
-    It is not despair of success that keeps me dumb
-    Acquisitions, clothes
+    in the pictures of him
+    dy fellow notwithstanding struck the statue
