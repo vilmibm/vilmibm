@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 09 Apr 2021 03:45:01 PM CDT
+## Sat 10 Apr 2021 03:45:01 PM CDT
 
-    Entered my soul unmingled bliss
-    Darcy, observed Miss Bingley in a half whisper
-    on two main streets which crossed at right angles fig
-    He rushed up to me, saying in an eager whisper
+    Rochester, tricked out in stage-trappings
+    In a sense at least, it was laid out with its streets straight
+    You make me laugh, Charlotte
+    The reverence borne to these principles is so great
     
-    PLATE 52 The centre section Illustration
-    By this time I had searched all the tombs in the chapel
-    just as a lizard moves along a wall
-    through gradual exercise
+    placed a yard or two back within the room
+    and before she could strike into another path
+    Westenra coming out of the morning room
+    The game is over, and I have lost
     
-    NOTTINGHAM: Tailoresses’ Union
-    against Molineux; and Molineux won
-    What am I going to do if my brother dies
-    and an end to achieve which is not a selfish one
+    she would give us a large piece of cold pie
+    till, borne on the wind which now sighed softly through the Pass
+    The horrid shade, by slow degrees
+    Scarcely dared I answer her
     
-    in the pictures of him
-    dy fellow notwithstanding struck the statue
+    she cheated me; And she will prove as false to thee
+    and an allowance of cold meat and bread
