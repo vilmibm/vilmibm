@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 10 Apr 2021 03:45:01 PM CDT
+## Sun 11 Apr 2021 03:45:01 PM CDT
 
-    Rochester, tricked out in stage-trappings
-    In a sense at least, it was laid out with its streets straight
-    You make me laugh, Charlotte
-    The reverence borne to these principles is so great
+    Your father was gone
+    at length applied his magic
+    It was hard to believe that by our watches it was less than an hour that we waited in that rocky shelter before the various bodies began to converge close upon us
+    unless they have come under the blight of child labor
     
-    placed a yard or two back within the room
-    and before she could strike into another path
-    Westenra coming out of the morning room
-    The game is over, and I have lost
+    Our author adds that these serpents were so tame
+    rather than I should have flung myself friendless on the wide world
+    but the life looking out of it was a tame
+    As to the disposal of forces
     
-    she would give us a large piece of cold pie
-    till, borne on the wind which now sighed softly through the Pass
-    The horrid shade, by slow degrees
-    Scarcely dared I answer her
+    What meant the giving of the crucifix
+    for it soon became apparent to all that the Czarina Catherine would not sail as was expected
+    ' I don't know why we behaved like lunatics
+    John's under lip protruded
     
-    she cheated me; And she will prove as false to thee
-    and an allowance of cold meat and bread
+    the driver got down and opened a pair of gates
+    It was entered by four principal gates
