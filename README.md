@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 11 Apr 2021 03:45:01 PM CDT
+## Mon 12 Apr 2021 03:45:01 PM CDT
 
-    Your father was gone
-    at length applied his magic
-    It was hard to believe that by our watches it was less than an hour that we waited in that rocky shelter before the various bodies began to converge close upon us
-    unless they have come under the blight of child labor
+    and no virtue could deliver him from
+    They speak with the broadest accent of the district
+    wonderin' where he is to get his breakfast from
+    Van Helsing said to us solemnly as we stood before them
     
-    Our author adds that these serpents were so tame
-    rather than I should have flung myself friendless on the wide world
-    but the life looking out of it was a tame
-    As to the disposal of forces
+    but I could not undeceive her then
+    and that this was the cause of the phenomenon
+    because I was a different person then
+    And then begins our great quest
     
-    What meant the giving of the crucifix
-    for it soon became apparent to all that the Czarina Catherine would not sail as was expected
-    ' I don't know why we behaved like lunatics
-    John's under lip protruded
+    and then began to set out on the little table the instruments for yet another operation of transfusion of blood
+    ‘I--I hardly know, sir
+    And he will sometimes think that she he loved was buried alive
+    My object has been to secure an amiable companion for myself
     
-    the driver got down and opened a pair of gates
-    It was entered by four principal gates
+    but he cut her off--take her
+    who subsisted principally by begging
