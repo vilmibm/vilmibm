@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 13 Apr 2021 03:45:01 PM CDT
+## Wed 14 Apr 2021 03:45:01 PM CDT
 
-    In it are no prisoners and no crime
-    not at all like the pretty clean town I came from
-    It seemed to me that
-    eight insulae' were taken up by the Forum
+    and what to the other
+    and did my best in sewing for her and packing her dresses
+    Project Gutenberg is a registered trademark
+    I was obliged to yield
     
-    and that awful night on the cliff must have made her ill
-    ’ said the Queen furiously
-    commonly called the Maid of Orleans
-    We could hear the click of the closing lantern as Van Helsing held it down
+    I look out of the window at the crowd
+    There is nothing extravagant in their housekeeping
+    on hayfield and cornfield lay a frozen shroud
+    the grass does not grow enough to require clipping
     
-    Van Helsing raised his lantern and drew the slide
-    and comes at a peculiarly mournful season
-    He bowed in a courtly way as he replied
-    enjoyed fully the beauties of the scene and season
+    were many charming views of the valley
+    but Elizabeth steadily opposed the scheme
+    Come not with careless feet To soil my gardens sanctuary ways
+    however, that Wickham should consent to such a scheme
     
-    Dance a clean dream and an extravagant turn up
-    whilst he shook with emotion
+    But, Jane, I see by your face you are not forming a very favourable opinion of me just now
+    but the uncertain light from the hearth showed
