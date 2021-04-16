@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 15 Apr 2021 03:45:01 PM CDT
+## Fri 16 Apr 2021 03:45:01 PM CDT
 
-    In seeking the door, I turned an angle
-    afore she comes, to--’ At this moment Five
-    without convulsions and vehement struggle
-    from lofty to still more lofty flights his oratory ascended
+    41 POMFRET CENTRE, CONN
+    which do not thrive well north of Philadelphia
+    A long dispute followed this declaration
+    with a drawling and sanctified tone
     
-    and the tiny wounds seem not to have healed
-    and therefore nothing that imagination could suggest
-    she remembered what she had herself endured on a similar occasion
-    which I at last reveal unto you thus
+    and which unless first eaten by the mare
+    and many of the circumstances of the preceding day
+    and was off before he had risen in the morning
+    which is the first Celestial Sign
     
-    and that when the sailors sleep on the deck
-    I handed to him the sealed letter which Mr
-    A little piece please
-    Woodhouse From a photograph by Miss Johnston--Mrs
+    Let's forget about all that old stuff
+    Godalming and Morris hurried off in a cab
+    however drear The fate awaiting thee
+    and when the sexton lock the gate we shall remain
     
-    it's listening to you mumble
-    Stay till he comes, reader
+    they at length arrived
+    She stood looking at us without a stir
