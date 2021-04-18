@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 17 Apr 2021 03:45:01 PM CDT
+## Sun 18 Apr 2021 03:45:01 PM CDT
 
-    but they measure less than 24 miles in circuit
-    you know--’ ‘But, it goes on THEY ALL RETURNED FROM HIM TO YOU
-    which seemed to close on all things like a grey pall
-    and entertain her with his tunes as long as she thought proper
+    by an article of news which then began to be in circulation
+    I got back here in time for a late dinner
+    ' she charmed my English gold out of my British breeches' pocket
+    Book, where is spoken of the Quintessence of Metals
     
-    perhaps that was the reason of his silence
-    was filling Every breast with delight like its own
-    clear complexion; but she had a capricious and hasty temper
-    and have a circulation and a public of their own
+    Fixed there by the keenest of all anguish
+    It may be necessary to fight the Slovaks
+    but remember, you leave me here in anguish
+    contained originally in the Seed of the Flax
     
-    Now I had suddenly a nearer view
-    The old father got him by the hand
-    In the clear embers I was tracing a view
-    I shall try to forgive you
+    she had heard that Miss Darcy was exceedingly proud
+    so long will we resist the Persian invader
+    Then you would drink a great deal more than you ought
+    The Saxons successfully repelled the invader
     
-    something new--a fresh sap and sense--stole into my frame
-    or it will take deadly vengeance on its frame
+    and done systematically and with precision
+    I shall be convicted is my conclusion
