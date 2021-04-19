@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 18 Apr 2021 03:45:01 PM CDT
+## Mon 19 Apr 2021 03:45:02 PM CDT
 
-    by an article of news which then began to be in circulation
-    I got back here in time for a late dinner
-    ' she charmed my English gold out of my British breeches' pocket
-    Book, where is spoken of the Quintessence of Metals
+    that uncanny turn of countenance mean
+    and a homage to his omnipotence
+    The kiss of the sun for pardon
+    called the Park; and there were many children there besides me
     
-    Fixed there by the keenest of all anguish
-    It may be necessary to fight the Slovaks
-    but remember, you leave me here in anguish
-    contained originally in the Seed of the Flax
+    too, know not what it mean--what it might mean
+    I am ignorant of all concerning Mr
+    I had full information about all these things
+    till all be dissolved
     
-    she had heard that Miss Darcy was exceedingly proud
-    so long will we resist the Persian invader
-    Then you would drink a great deal more than you ought
-    The Saxons successfully repelled the invader
+    self-importance and humility
+    a tragic and familiar Shade
+    I may enter his county with impunity
+    With what has been called the religion of the Magi
     
-    and done systematically and with precision
-    I shall be convicted is my conclusion
+    for I suppose you have heard of his leaving the ----shire
+    Contrast between Yorkshire and Lancashire
