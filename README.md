@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 19 Apr 2021 03:45:02 PM CDT
+## Tue 20 Apr 2021 03:45:01 PM CDT
 
-    that uncanny turn of countenance mean
-    and a homage to his omnipotence
-    The kiss of the sun for pardon
-    called the Park; and there were many children there besides me
+    Then we ascended to Lucy's room
+    A suggestion simply does or does not occur
+    full of box-bordered paths
+    we only waited to learn where the change would occur
     
-    too, know not what it mean--what it might mean
-    I am ignorant of all concerning Mr
-    I had full information about all these things
-    till all be dissolved
+    He, rushing up the steps
+    Far as this earth may be From yonder starry skies
+    but the powerlessness of the strong man touched my heart to the quick
+    Then my soul can drink no peace From these holy moonlight skies
     
-    self-importance and humility
-    a tragic and familiar Shade
-    I may enter his county with impunity
-    With what has been called the religion of the Magi
+    INFLUENCE OF OCCUPATION ON HEALTH
+    are generally confined to one or two trades
+    and by this means accumulated great wealth
+    and I made haste towards the station
     
-    for I suppose you have heard of his leaving the ----shire
-    Contrast between Yorkshire and Lancashire
+    Strange as it all was
+    she was getting so used to queer things happening
