@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 20 Apr 2021 03:45:01 PM CDT
+## Wed 21 Apr 2021 03:45:01 PM CDT
 
-    Then we ascended to Lucy's room
-    A suggestion simply does or does not occur
-    full of box-bordered paths
-    we only waited to learn where the change would occur
+    clean shaven save for a long white moustache
+    The wind came now with fiercer and more bitter sweeps
+    None of us said a word of the other operations
+    and to the interposition of God and his saints
     
-    He, rushing up the steps
-    Far as this earth may be From yonder starry skies
-    but the powerlessness of the strong man touched my heart to the quick
-    Then my soul can drink no peace From these holy moonlight skies
+    either of our friends or party
+    She told us such things
+    German Iris, May 22; Oriental Poppy
+    be obedient to him for his Gifts and Graces
     
-    INFLUENCE OF OCCUPATION ON HEALTH
-    are generally confined to one or two trades
-    and by this means accumulated great wealth
-    and I made haste towards the station
+    Regaining my room, I threw myself panting upon the bed and tried to think
+    In outline it was an irregular eight-sided area of 100 acres
+    she had got very stout
+    that very few little girls of her age knew the meaning of it at all
     
-    Strange as it all was
-    she was getting so used to queer things happening
+    I held tight; and I thought I was going to win
+    suppose it is even necessary
