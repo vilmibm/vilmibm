@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 21 Apr 2021 03:45:01 PM CDT
+## Thu 22 Apr 2021 03:45:01 PM CDT
 
-    clean shaven save for a long white moustache
-    The wind came now with fiercer and more bitter sweeps
-    None of us said a word of the other operations
-    and to the interposition of God and his saints
+    I had hung my shaving glass by the window
+    But, if I were you, I would stand by the nephew
+    I came back again; I walked to the window
+    that only tend to elate and magnify a few
     
-    either of our friends or party
-    She told us such things
-    German Iris, May 22; Oriental Poppy
-    be obedient to him for his Gifts and Graces
+    A sharpa wire stiletto
+    better than will the most ingenious pedagogical devices unaccompanied by this mental ardor
+    Some parleying was audible in the hall
+    It's Pel, that flabby eared interloper
     
-    Regaining my room, I threw myself panting upon the bed and tried to think
-    In outline it was an irregular eight-sided area of 100 acres
-    she had got very stout
-    that very few little girls of her age knew the meaning of it at all
+    If you think you have the heart to venture
+    and she was covered with a white sheet
+    After the Easter recess
+    She nodded in reply to show that she understood
     
-    I held tight; and I thought I was going to win
-    suppose it is even necessary
+    His position had come to him--why
+    If sometimes in thy heart should beat One pulse
