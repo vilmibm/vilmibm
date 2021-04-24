@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 23 Apr 2021 03:45:01 PM CDT
+## Sat 24 Apr 2021 03:45:01 PM CDT
 
-    Did you hear the way Gregor spoke just now
-    On recovery she worked for two years in the stoves
-    there are only some bits of walls standing now
-    and solemnising of other culinary rites
+    I suspect he has, like many of us
+    but it must be done if I die in the doing
+    -- We want no proofs; we ask none to believe us
+    Brother, this is a very brave thing you're doing
     
-    but for some error of pronunciation
-    she soon afterwards said
-    as is plainly taught in the Book of Sulphurs
-    my horses will have enough to do to drag their proper load
+    And as I come back, I can call on Lady Lucas and Mrs
+    as much as her nature will allow
+    said, Oh, full of all subtlety and mischief
+    He was an enthusiast and a connoisseur
     
-    and will save all the best of the covies for you
-    to be found in the match-making trade
-    Oliver's grand hall down i' Morton Vale
-    through which I dimly saw a passage
+    the languid elegance of Lord Ingram
+    Project Gutenberg is a registered trademark
+    Presently advanced into view Miss Ingram
+    and then went in and sat for a while in the Green Park
     
-    and as I watched for it to appear through the dusk
-    that gave him plenty of time to think undisturbed about how he would have to re-arrange his life
+    on the day of the coronation obtruded himself with his abettor into the private apartment
+    and to have occasioned a ten years' war
