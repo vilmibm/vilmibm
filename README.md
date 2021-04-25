@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 24 Apr 2021 03:45:01 PM CDT
+## Sun 25 Apr 2021 03:45:01 PM CDT
 
-    I suspect he has, like many of us
-    but it must be done if I die in the doing
-    -- We want no proofs; we ask none to believe us
-    Brother, this is a very brave thing you're doing
+    George Woodward From a photograph by J
+    We seem to be drifting to some terrible doom
+    with the same Vincenzio Romoli
+    and a little bit of Exodus
     
-    And as I come back, I can call on Lady Lucas and Mrs
-    as much as her nature will allow
-    said, Oh, full of all subtlety and mischief
-    He was an enthusiast and a connoisseur
+    Who for such dainties would not stoop
+    And hide me from the hostile light That does not warm
+    would bring on those to whom
+    It was please it was please carriage cup in an ice-cream
     
-    the languid elegance of Lord Ingram
-    Project Gutenberg is a registered trademark
-    Presently advanced into view Miss Ingram
-    and then went in and sat for a while in the Green Park
+    when Bessie came running upstairs into the nursery
+    and its restoration just a century later
+    The garden was a wide inclosure
+    or John Paxton, drowned off Cape Farewell a year later
     
-    on the day of the coronation obtruded himself with his abettor into the private apartment
-    and to have occasioned a ten years' war
+    He is a proud man: all the Rochesters were proud
+    I look out of the window at the crowd
