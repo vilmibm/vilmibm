@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 25 Apr 2021 03:45:01 PM CDT
+## Mon 26 Apr 2021 03:45:01 PM CDT
 
-    George Woodward From a photograph by J
-    We seem to be drifting to some terrible doom
-    with the same Vincenzio Romoli
-    and a little bit of Exodus
+    and thou mayst mourn That WE are left below
+    I don't wish to treat you like an inferior
+    they become logical concepts see below
+    and, that too, shown by my employer and superior
     
-    Who for such dainties would not stoop
-    And hide me from the hostile light That does not warm
-    would bring on those to whom
-    It was please it was please carriage cup in an ice-cream
+    He died as with himself he yet conversed
+    and sat up as long, as my present strength would permit
+    ‘The idea of having the sentence first
+    to which the unhappy king was obliged to submit
     
-    when Bessie came running upstairs into the nursery
-    and its restoration just a century later
-    The garden was a wide inclosure
-    or John Paxton, drowned off Cape Farewell a year later
+    No wild distress, no gushing spring Of tears in anguish shed
+    Bennet's expectations were fully answered
+    and so, to entertain himself
+    ' and immediately Michael Robartes answered
     
-    He is a proud man: all the Rochesters were proud
-    I look out of the window at the crowd
+    The host himself brought my breakfast into the parlour
+    and as soon as they were in the parlour
