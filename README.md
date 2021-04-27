@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 26 Apr 2021 03:45:01 PM CDT
+## Tue 27 Apr 2021 03:45:02 PM CDT
 
-    and thou mayst mourn That WE are left below
-    I don't wish to treat you like an inferior
-    they become logical concepts see below
-    and, that too, shown by my employer and superior
+    he cut a thick slice from his loaf
+    A certain superciliousness of look
+    which seemed to close on all things like a grey pall
+    It was enough to attract his mother's attention
     
-    He died as with himself he yet conversed
-    and sat up as long, as my present strength would permit
-    ‘The idea of having the sentence first
-    to which the unhappy king was obliged to submit
+    not for them, should we despair
+    I'll keep your holosuites running and fix your replicators when they're broken
+    Donelson by name, who told us of his voyage
+    ‘because of his great wig
     
-    No wild distress, no gushing spring Of tears in anguish shed
-    Bennet's expectations were fully answered
-    and so, to entertain himself
-    ' and immediately Michael Robartes answered
+    to order and civilisation
+    one with the keeper about the new suit of clothes
+    my dear, said he, and your food somewhat on your appetite
+    She is young as Un-Dead
     
-    The host himself brought my breakfast into the parlour
-    and as soon as they were in the parlour
+    the vacant chair; And hear it whispered mournfully
+    It is too soon for her to give up business
