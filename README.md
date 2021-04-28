@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 27 Apr 2021 03:45:02 PM CDT
+## Wed 28 Apr 2021 03:45:01 PM CDT
 
-    he cut a thick slice from his loaf
-    A certain superciliousness of look
-    which seemed to close on all things like a grey pall
-    It was enough to attract his mother's attention
+    furniture rubbed, flowers piled in vases
+    and from a wonderful dog's-eared notebook
+    As there were only the big wooden boxes
+    , Printers ; for the latter The Englishwoman’s Year Book
     
-    not for them, should we despair
-    I'll keep your holosuites running and fix your replicators when they're broken
-    Donelson by name, who told us of his voyage
-    ‘because of his great wig
+    them in both his own
+    they had, even in relatively modern days
+    Despite limitations which are obvious
+    I tried to get him to talk about the past few days
     
-    to order and civilisation
-    one with the keeper about the new suit of clothes
-    my dear, said he, and your food somewhat on your appetite
-    She is young as Un-Dead
+    turning from one to another of us
+    except on first-rate occasions
+    Mary, said she, I wish you had gone with us
+    still and pale as a white stone--at his fine lineaments fixed in study--I comprehended all at once that he would hardly make a good husband
     
-    the vacant chair; And hear it whispered mournfully
-    It is too soon for her to give up business
+    Wickham of course wanted more than he could get
+    Gregor drew his head back from the door and lifted it towards his father
