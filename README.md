@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 28 Apr 2021 03:45:01 PM CDT
+## Thu 29 Apr 2021 03:45:01 PM CDT
 
-    furniture rubbed, flowers piled in vases
-    and from a wonderful dog's-eared notebook
-    As there were only the big wooden boxes
-    , Printers ; for the latter The Englishwoman’s Year Book
+    the March Hare moved into the Dormouse’s place
+    and am entitled to know all his dearest concerns
+    No; I pleaded off, and he admitted my plea
+    and consequently light and comfort
     
-    them in both his own
-    they had, even in relatively modern days
-    Despite limitations which are obvious
-    I tried to get him to talk about the past few days
+    and moaned in terror as men do in pain
+    merging night in day
+    and have had much sorrow and much mental pain
+    I let him take the helm
     
-    turning from one to another of us
-    except on first-rate occasions
-    Mary, said she, I wish you had gone with us
-    still and pale as a white stone--at his fine lineaments fixed in study--I comprehended all at once that he would hardly make a good husband
+    Nothing can be more striking than the contrast between man and the inferior animals
+    he said I must have gone through a great deal of fatigue and trouble to have effected such considerable changes in so short a time
+    But Grete's words had made her mother quite worried
+    I am so worried in my mind that I am apt to be irritable
     
-    Wickham of course wanted more than he could get
-    Gregor drew his head back from the door and lifted it towards his father
+    I had a vague dread that wild cattle might be near
+    and her light, streaming in through a window near
