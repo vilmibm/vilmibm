@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 29 Apr 2021 03:45:01 PM CDT
+## Fri 30 Apr 2021 03:45:01 PM CDT
 
-    the March Hare moved into the Dormouse’s place
-    and am entitled to know all his dearest concerns
-    No; I pleaded off, and he admitted my plea
-    and consequently light and comfort
+    the spring opens about a week later
+    16 The linen trade has since been classed among dangerous trades
+    to which spring bloom comes at least a week later
+    said Elizabeth; but without scheming to do wrong
     
-    and moaned in terror as men do in pain
-    merging night in day
-    and have had much sorrow and much mental pain
-    I let him take the helm
+    Or, hear with joy the leveret's cry
+    and then the absolute freedom quickly follows
+    in the room on his left his sister began to cry
+    Pick a ticket, pick it in strange steps and with hollows
     
-    Nothing can be more striking than the contrast between man and the inferior animals
-    he said I must have gone through a great deal of fatigue and trouble to have effected such considerable changes in so short a time
-    But Grete's words had made her mother quite worried
-    I am so worried in my mind that I am apt to be irritable
+    the house itself, the rookery still hid
+    age and probity of so great an emperor
+    62 of the psychological and the logical
+    ironworks, and brickworks
     
-    I had a vague dread that wild cattle might be near
-    and her light, streaming in through a window near
+    The scale suggested by the Acts is very low
+    injustice never crushes me too low
