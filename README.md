@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 30 Apr 2021 03:45:01 PM CDT
+## Sat 01 May 2021 03:45:01 PM CDT
 
-    the spring opens about a week later
-    16 The linen trade has since been classed among dangerous trades
-    to which spring bloom comes at least a week later
-    said Elizabeth; but without scheming to do wrong
+    from the point of development we had arrived at
+    So no more just at present from your loving LUCY
+    After a slight preparation for good news
+    Before turning in we went to look at poor Lucy
     
-    Or, hear with joy the leveret's cry
-    and then the absolute freedom quickly follows
-    in the room on his left his sister began to cry
-    Pick a ticket, pick it in strange steps and with hollows
+    ’ ‘How fond she is of finding morals in things
+    and they have not been numerous or very learned
+    If to the breezes wandering near
+    he flung himself in the fire without being burned
     
-    the house itself, the rookery still hid
-    age and probity of so great an emperor
-    62 of the psychological and the logical
-    ironworks, and brickworks
+    As we re-entered the carriage
+    She was confident of having performed her duty
+    Very willingly, he rejoined
+    or rather your sternness has a power beyond beauty
     
-    The scale suggested by the Acts is very low
-    injustice never crushes me too low
+    It is best to avoid contact with this species
+    that the testimony, not only of other men
