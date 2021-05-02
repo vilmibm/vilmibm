@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 01 May 2021 03:45:01 PM CDT
+## Sun 02 May 2021 03:45:01 PM CDT
 
-    from the point of development we had arrived at
-    So no more just at present from your loving LUCY
-    After a slight preparation for good news
-    Before turning in we went to look at poor Lucy
+    and Paris is the capital of Rome
+    8 AUGUST Pasted in Mina Murray's Journal
+    It was absolutely necessary to interrupt him now
+    but referred it to a more limited tribunal
     
-    ’ ‘How fond she is of finding morals in things
-    and they have not been numerous or very learned
-    If to the breezes wandering near
-    he flung himself in the fire without being burned
+    Although the men are in a minority in these unions they have not as yet seen their way to giving any considerable share of the control to the women
+    Think like me, Jane--trust like me
+    and she, as a witch and relapsed heretic
+    fail to evoke suggestions easily and richly
     
-    As we re-entered the carriage
-    She was confident of having performed her duty
-    Very willingly, he rejoined
-    or rather your sternness has a power beyond beauty
+    and saying your opinion of him is sunk
+    a wet cleaner and it was not where it was wet
+    without the family having noticed it
+    With what feelings I welcomed single trees I knew
     
-    It is best to avoid contact with this species
-    that the testimony, not only of other men
+    but he was quite right
+    so I went round to the back to see if anything could be gathered from this quarter
