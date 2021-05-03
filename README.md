@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 02 May 2021 03:45:01 PM CDT
+## Mon 03 May 2021 03:45:01 PM CDT
 
-    and Paris is the capital of Rome
-    8 AUGUST Pasted in Mina Murray's Journal
-    It was absolutely necessary to interrupt him now
-    but referred it to a more limited tribunal
+    PLATE 139 Fairlawn, Grosse Pointe Shores
+    and when I tried to cling to Him
+    If it be that she can
+    and said in his smoothest voice as he opened two letters
     
-    Although the men are in a minority in these unions they have not as yet seen their way to giving any considerable share of the control to the women
-    Think like me, Jane--trust like me
-    and she, as a witch and relapsed heretic
-    fail to evoke suggestions easily and richly
+    They could talk of nothing but officers
+    and being secreted by his mother in a cave
+    and heard your impetuous republican answers
+    I mean, other people in your situation might overreact and lose their temper
     
-    and saying your opinion of him is sunk
-    a wet cleaner and it was not where it was wet
-    without the family having noticed it
-    With what feelings I welcomed single trees I knew
+    and was sleeping peacefully
+    ROOMS Act so that there is no use in a centre
+    Where Pleasure still will lead to wrong
+    and the days in my color factory in the winter
     
-    but he was quite right
-    so I went round to the back to see if anything could be gathered from this quarter
+    that good Rule be observed
+    It seemed to me I had never breathed an atmosphere so vile
