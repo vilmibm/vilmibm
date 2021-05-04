@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 03 May 2021 03:45:01 PM CDT
+## Tue 04 May 2021 03:45:01 PM CDT
 
-    PLATE 139 Fairlawn, Grosse Pointe Shores
-    and when I tried to cling to Him
-    If it be that she can
-    and said in his smoothest voice as he opened two letters
+    I saw the outline of a form under the clothes
+    ‘They have their tails in their mouths--and they’re all over crumbs
+    At Cambridge he superintended the exhibition of a Greek play of Aristophanes
+    I shall not trouble you with questions till the time comes
     
-    They could talk of nothing but officers
-    and being secreted by his mother in a cave
-    and heard your impetuous republican answers
-    I mean, other people in your situation might overreact and lose their temper
+    and the sun rises over Hampstead Hill
+    Perfectly,' he answered
+    I again nestled to the breast of the hill
+    syllabic tone, and terminated in an odd murmur
     
-    and was sleeping peacefully
-    ROOMS Act so that there is no use in a centre
-    Where Pleasure still will lead to wrong
-    and the days in my color factory in the winter
+    FLORENCE ABOUT 1795, FROM L
+    and I would that you tell me when I make error
+    and because its coldness stands external as Luna doth
+    conceive that you there commit a capital error
     
-    that good Rule be observed
-    It seemed to me I had never breathed an atmosphere so vile
+    I looked up, fearing it was the rush of a bull
+    I only saw her from the schoolroom window
