@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 04 May 2021 03:45:01 PM CDT
+## Wed 05 May 2021 03:45:01 PM CDT
 
-    I saw the outline of a form under the clothes
-    ‘They have their tails in their mouths--and they’re all over crumbs
-    At Cambridge he superintended the exhibition of a Greek play of Aristophanes
-    I shall not trouble you with questions till the time comes
+    but hearing that she was quite destitute
+    This was to be used in arguing the appeal
+    and now, I am absolutely destitute
+    It is a commonplace of psychology that we do not attend to the old
     
-    and the sun rises over Hampstead Hill
-    Perfectly,' he answered
-    I again nestled to the breast of the hill
-    syllabic tone, and terminated in an odd murmur
+    vary, but the same meaning is conserved
+    and what appointments they are able to obtain
+    he caused his lessons to be constantly observed
+    I should probably have been unequal to maintain
     
-    FLORENCE ABOUT 1795, FROM L
-    and I would that you tell me when I make error
-    and because its coldness stands external as Luna doth
-    conceive that you there commit a capital error
+    The 1st of May or a little later Honeysuckles
+    and before she could strike into another path
+    Then produce the culprit
+    I had my own reasons for being dismayed at this apparition
     
-    I looked up, fearing it was the rush of a bull
-    I only saw her from the schoolroom window
+    It is related by both Tacitus and Suetonius
+    but when I had him at last stretched on the couch
