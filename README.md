@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 05 May 2021 03:45:01 PM CDT
+## Thu 06 May 2021 03:45:01 PM CDT
 
-    but hearing that she was quite destitute
-    This was to be used in arguing the appeal
-    and now, I am absolutely destitute
-    It is a commonplace of psychology that we do not attend to the old
+    agrarian land-settlement and war
+    secure the steady rights and translate more than translate the authority
+    in Orange County, and situated between Charlottesville and Richmond
+    If I do go with him--if I do make the sacrifice he urges
     
-    vary, but the same meaning is conserved
-    and what appointments they are able to obtain
-    he caused his lessons to be constantly observed
-    I should probably have been unequal to maintain
+    Collins have a comfortable income
+    ‘I’ve forgotten the words
+    ’ the Duchess said in a hoarse growl
+    were standing on the steps of the house as they entered the paddock
     
-    The 1st of May or a little later Honeysuckles
-    and before she could strike into another path
-    Then produce the culprit
-    I had my own reasons for being dismayed at this apparition
+    but I wish he had danced with Eliza
+    towns, regions full of life I had heard of but never seen--that then I desired more of practical experience than I possessed
+    said Arthur warmly, I shall in all ways trust you
+    I took my way to the castle
     
-    It is related by both Tacitus and Suetonius
-    but when I had him at last stretched on the couch
+    the slave and prey of gloom
+    the soldier and the land-commissioner was adopted in the towns
