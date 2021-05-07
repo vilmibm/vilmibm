@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 06 May 2021 03:45:01 PM CDT
+## Fri 07 May 2021 03:45:01 PM CDT
 
-    agrarian land-settlement and war
-    secure the steady rights and translate more than translate the authority
-    in Orange County, and situated between Charlottesville and Richmond
-    If I do go with him--if I do make the sacrifice he urges
+    stunted trees Can yield an answering swell
+    and all energies may be needed at the last
+    I shall certainly return if all be well
+    a certain manner of interpretation gets weight
     
-    Collins have a comfortable income
-    ‘I’ve forgotten the words
-    ’ the Duchess said in a hoarse growl
-    were standing on the steps of the house as they entered the paddock
+    we could hardly have proceeded with our task
+    especially in the higher courts
+    the grim face at the top was like a carved mask
+    This is what I must listen to
     
-    but I wish he had danced with Eliza
-    towns, regions full of life I had heard of but never seen--that then I desired more of practical experience than I possessed
-    said Arthur warmly, I shall in all ways trust you
-    I took my way to the castle
+    and the Wine will be red as Bloud
+    but looked at him with eyes that were more appealing than ever
+    She had a mature capacity for fidelity
+    were the cook, and a large cat which was sitting on the hearth and grinning from ear to ear
     
-    the slave and prey of gloom
-    the soldier and the land-commissioner was adopted in the towns
+    the little animal learn not by principle
+    the feelings and claims of little people
