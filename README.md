@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 08 May 2021 03:45:01 PM CDT
+## Sun 09 May 2021 03:45:01 PM CDT
 
-    The Romans followed another method
-    immediately to come back into his own purse
-    in the midst of a shocking hullabaloo
-    even in his earlier life his lungs had not been very reliable
+    of phrases spoken in nightmares
+    Please be the beef, please beef
+    But three of the number can read
+    rights, and responsibilities of women
     
-    Probably no place at Newport is more noted for its beauty than Vernon Court
-    LEICESTER: *Amalgamated Hosiery Union
-    and offer to introduce him to any young lady in the room
-    Gardiner, I begin to be of your uncles opinion
+    Savonarola besides undertook to expel them by night
+    --Patient greatly improved
+    you kept in the schoolroom as still as your own desk and easel
+    for if he escape not at night we shall come on him in daytime
     
-    In some faculties of mind he has been
-    There is a still lower literary grade
-    like that of the ladies
-    an honest concern for the right way of going to work
+    Despite all the difficulty he was in
+    but still without response
+    heard a tone, beheld a form
+    fearful lest the nurse who sat up all night should hear me
     
-    where she usually breakfasted early
-    She had an alarm to call her up early
+    was a pupil in the school of Silvester
+    loved him, embraced him
