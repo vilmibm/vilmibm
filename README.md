@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 09 May 2021 03:45:01 PM CDT
+## Mon 10 May 2021 03:45:01 PM CDT
 
-    of phrases spoken in nightmares
-    Please be the beef, please beef
-    But three of the number can read
-    rights, and responsibilities of women
+    or to let my informant know or guess too much
+    you know now that I had but a hideous demon
+    Collins would have led them round his two meadows
+    it alights on a plant at Mr
     
-    Savonarola besides undertook to expel them by night
-    --Patient greatly improved
-    you kept in the schoolroom as still as your own desk and easel
-    for if he escape not at night we shall come on him in daytime
+    When the day came, its searching light showed the ravages in poor Lucy's strength
+    whereof I will afterwards treat more at large
+    All this without that diabolic aid which is surely to him
+    Probably those damp walls would soon have eased me of her charge
     
-    Despite all the difficulty he was in
-    but still without response
-    heard a tone, beheld a form
-    fearful lest the nurse who sat up all night should hear me
+    were beginning to buzz into the room
+    and dew fell cool on panting plain and scorched summit
+    she commenced singing a song from some opera
+    Thus, whereas he can do as he will within his limit
     
-    was a pupil in the school of Silvester
-    loved him, embraced him
+    was required before men could be emancipated to follow up suggestions that in the end are fruitful
+    that selfishness is prudence
