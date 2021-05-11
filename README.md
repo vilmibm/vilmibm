@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 10 May 2021 03:45:01 PM CDT
+## Tue 11 May 2021 03:45:01 PM CDT
 
-    or to let my informant know or guess too much
-    you know now that I had but a hideous demon
-    Collins would have led them round his two meadows
-    it alights on a plant at Mr
+    not choosing to notice this last remark
+    of which he constituted himself president
+    Yes: he always has candles brought in at dark
+    And while she broke the seal and perused the document
     
-    When the day came, its searching light showed the ravages in poor Lucy's strength
-    whereof I will afterwards treat more at large
-    All this without that diabolic aid which is surely to him
-    Probably those damp walls would soon have eased me of her charge
+    laid down on my traveller's bed
+    and that to you the lightning flash show all the leagues
+    Yes, Robert, I shall be ready
+    could be guilty of such a crime
     
-    were beginning to buzz into the room
-    and dew fell cool on panting plain and scorched summit
-    she commenced singing a song from some opera
-    Thus, whereas he can do as he will within his limit
+    but a second look dispelled the illusion
+    they must needs come wriggling down from the sky
+    and as an unbroken hush now reigned again through the whole house
+    he cried out to me:-- It is not yet too late
     
-    was required before men could be emancipated to follow up suggestions that in the end are fruitful
-    that selfishness is prudence
+    Your words are such as ought not to be used
+    Till, drop by drop, the cup of joy Filled full
