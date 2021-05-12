@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 11 May 2021 03:45:01 PM CDT
+## Wed 12 May 2021 03:45:01 PM CDT
 
-    not choosing to notice this last remark
-    of which he constituted himself president
-    Yes: he always has candles brought in at dark
-    And while she broke the seal and perused the document
+    ’ said Alice indignantly
+    The gentlemen stepped back into the room and waited
+    but that I must bring with me a boy that had never known woman
+    Do you suppose I eat like an ogre or a ghoul
     
-    laid down on my traveller's bed
-    and that to you the lightning flash show all the leagues
-    Yes, Robert, I shall be ready
-    could be guilty of such a crime
+    to be thoroughly old-fashioned
+    which gave out, when lit in a corner of the tomb
+    And pray what sort of guardians do you make
+    and was in the act of being conveyed to the tomb
     
-    but a second look dispelled the illusion
-    they must needs come wriggling down from the sky
-    and as an unbroken hush now reigned again through the whole house
-    he cried out to me:-- It is not yet too late
+    Miss Bennet, than you may be aware of
+    COCOA; AND CLEAR SOUP AND ORANGES AND OATMEAL
+    where Augustus planted a colonia'
+    almost a week after the gentlemen's arrival
     
-    Your words are such as ought not to be used
-    Till, drop by drop, the cup of joy Filled full
+    All Meryton seemed striving to blacken the man who
+    and to call in women and children who
