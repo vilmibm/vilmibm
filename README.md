@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Fri 14 May 2021 03:45:01 PM CDT
+## Sat 15 May 2021 03:45:01 PM CDT
 
-    Here they are:-- Will not mention drinking
-    Taken merely as a certainty
-    but he never mentioned a word of what had happened in the visit to the Count's house
-    The man touched his hat
+    by reason of the superfluous Sulphur
+    Rochester ascend through the sky-light on to the roof
+    that Gold, Copper, and Iron have one Sulphur
+    And then they called out to him that she was on the roof
     
-    merchant, and of Antoinetta his wife
-    as friend Arthur would say when he put on his red frock
-    that it would be a trying thing to be his wife
-    She is able to compel the solid earth to rock
+    It was painful, exceedingly painful
+    and especially of young girls
+    and to humble myself so to her is painful
+    At length he found him in a vintner's shop seemingly in a gloomy and absent frame of mind
     
-    frequently of great talent
-    that all the jurors were writing down ‘stupid things
-    Again she regarded me so icily
-    I am excessively attentive to all those things
+    How strange this mass of ancient treasures
+    and the geography of the United Kingdom
+    and on its back a rider
+    so that I had to creep over him every time
     
-    in token that he was tired of our company
-    preparing to oblige the company
+    The house presented two pointed gables in its front
+    go off on another ivory hunt
