@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 15 May 2021 03:45:01 PM CDT
+## Sun 16 May 2021 03:45:01 PM CDT
 
-    by reason of the superfluous Sulphur
-    Rochester ascend through the sky-light on to the roof
-    that Gold, Copper, and Iron have one Sulphur
-    And then they called out to him that she was on the roof
+    and even their peculiar but necessary costume was made the ground of serious indictments
+    I stepped in there before going up to the hall
+    and within the circlet of a band of gems
+    Fairfax, sir: she saw me with you last night in the hall
     
-    It was painful, exceedingly painful
-    and especially of young girls
-    and to humble myself so to her is painful
-    At length he found him in a vintner's shop seemingly in a gloomy and absent frame of mind
+    and peeped over the edge of the mushroom
+    ‘I’ve read that in some book
+    In the Third Voyage of Sinbad he arrives at an island were he finds one man
+    The clergyman looked up at the speaker and stood mute
     
-    How strange this mass of ancient treasures
-    and the geography of the United Kingdom
-    and on its back a rider
-    so that I had to creep over him every time
+    Some time hence it will be all found out
+    which he formed after his own similitude
+    And so, because the members are industrious and far-sighted
+    there--on the carpet--I saw what gave the distinct lie to my hypothesis
     
-    The house presented two pointed gables in its front
-    go off on another ivory hunt
+    its retirement, its old crow-trees and thorn-trees
+    bending gracefully over an album
