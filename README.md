@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 16 May 2021 03:45:01 PM CDT
+## Mon 17 May 2021 03:45:01 PM CDT
 
-    and even their peculiar but necessary costume was made the ground of serious indictments
-    I stepped in there before going up to the hall
-    and within the circlet of a band of gems
-    Fairfax, sir: she saw me with you last night in the hall
+    and, when we shall cease to be inconsistent
+    Jonathan Harkers Journal
+    And won't you be sorry to leave poor Bessie
+    taken the third degree at some time during his long life
     
-    and peeped over the edge of the mushroom
-    ‘I’ve read that in some book
-    In the Third Voyage of Sinbad he arrives at an island were he finds one man
-    The clergyman looked up at the speaker and stood mute
+    but before our very eyes
+    Sir William and Lady Lucas were speedily applied to for their consent
+    I find, in settling accounts with the housekeeper
+    These he called the idols
     
-    Some time hence it will be all found out
-    which he formed after his own similitude
-    And so, because the members are industrious and far-sighted
-    there--on the carpet--I saw what gave the distinct lie to my hypothesis
+    No place of petty shows and fond displays
+    and when the indefinite world
+    I stood and warmed my numbed fingers over the blaze
+    from the pale human soul to brighten to the seraph
     
-    its retirement, its old crow-trees and thorn-trees
-    bending gracefully over an album
+    The dog is always with him
+    Most of these cities sprang up full-grown
