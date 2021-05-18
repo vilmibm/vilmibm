@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 17 May 2021 03:45:01 PM CDT
+## Tue 18 May 2021 03:45:01 PM CDT
 
-    and, when we shall cease to be inconsistent
-    Jonathan Harkers Journal
-    And won't you be sorry to leave poor Bessie
-    taken the third degree at some time during his long life
+    Is everything all right
+    and, consequently, after a moderate period of extravagant and wild admiration
+    just as poor Lucy had done outside the tomb
+    --more so; for you have them both to keep in addition
     
-    but before our very eyes
-    Sir William and Lady Lucas were speedily applied to for their consent
-    I find, in settling accounts with the housekeeper
-    These he called the idols
+    Bennet, who quarreled with no compliments
+    The three gentlemen had already finished their meal
+    he could keep the routine going--that's all
+    with a sudden leaping of the heart
     
-    No place of petty shows and fond displays
-    and when the indefinite world
-    I stood and warmed my numbed fingers over the blaze
-    from the pale human soul to brighten to the seraph
+    and there is Beatrice
+    fell on all the first-born in the land of Egypt
+    Milani, Notizie degli Scavi
+    So far as we sit passive before objects
     
-    The dog is always with him
-    Most of these cities sprang up full-grown
+    The jury is the unknown substance
+    she would give us a large piece of cold pie
