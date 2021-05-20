@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 19 May 2021 03:45:01 PM CDT
+## Thu 20 May 2021 03:45:01 PM CDT
 
-    Oh it's right behind the spatula
-    an Irish saint, is exceedingly picturesque
-    then they shall know as we do
-    for not to me appertained that suit of wedding raiment
+    The conversation, thus turned on Adele
+    With his usual recuperative energy
+    and a kind and careful teacher to Adele
+    Warm as a red skys passing blush And quick with energy
     
-    Once or twice she could discern a faint blush
-    when we knew, from the evidence of our own eyesight
-    and by thus using every projection and inequality move downwards with considerable speed
-    the whole body crumble into dust and passed from our sight
+    fixed, to wait the end
+    All the world are good and agreeable in your eyes
+    But before I go on, tell me what you mean by your Well
+    Distorting into agony The bliss before my eyes
     
-    Austria, Germany, Bohemia
-    sickening; conscious of an aspect in the last degree ghastly
-    He visited the mines of Bohemia
-    And I saw that something restraining
+    and she, Eliza, would take hers
+    and Alice’s first thought was that it might belong to one of the doors of the hall
+    down she came upon a heap of sticks and dry leaves
+    and was managed entirely by the employers
     
-    I long to hope that all the woe Creation knows
-    And, above all, no blowing of the nose
+    who call every few moments for interviews
+    near Buffalo, Utica, Syracuse
