@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 20 May 2021 03:45:01 PM CDT
+## Fri 21 May 2021 03:45:01 PM CDT
 
-    The conversation, thus turned on Adele
-    With his usual recuperative energy
-    and a kind and careful teacher to Adele
-    Warm as a red skys passing blush And quick with energy
+    It is his extremity that I seem to have lived through
+    and placed himself in a wide-spreading tree
+    hoes, plows and harrows
+    My gog, but it'll be a quare scowderment at the Day of Judgment when they come tumblin' up in their death-sarks
     
-    fixed, to wait the end
-    All the world are good and agreeable in your eyes
-    But before I go on, tell me what you mean by your Well
-    Distorting into agony The bliss before my eyes
+    and at that time 1075 twenty-four years of age
+    I should probably have been unequal to maintain
+    but still the Christian was patient and placid
+    ’ And the executioner went off like an arrow
     
-    and she, Eliza, would take hers
-    and Alice’s first thought was that it might belong to one of the doors of the hall
-    down she came upon a heap of sticks and dry leaves
-    and was managed entirely by the employers
+    for we would have only the Oil
+    and in farther justification of Mr
+    though for an opposite reason
+    as the recent influenza epidemic showed
     
-    who call every few moments for interviews
-    near Buffalo, Utica, Syracuse
+    and I had to put a bullet through her as she lay
+    A thousand tales, each more wonderful than the other
