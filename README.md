@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 22 May 2021 03:45:01 PM CDT
+## Sun 23 May 2021 03:45:01 PM CDT
 
-    He has heartily forgiven me now
-    When they left the high road for the lane to Hunsford
-    Rochester: I could not unlove him now
-    Memory having given her evidence of the hopes
+    and he searched my face with eyes that I saw were dark
+    when neither smooth bands nor long ringlets were in vogue
+    or frightened by his high and imposing manners
+    rings, and planetary sigils being in great vogue
     
-    Sidenote: which is standardized Various persons talk about an object not physically present
-    and in each case it had wrought out but a pale portrait of the thing I had conceived
-    and their reply; of both of these I got copies
-    or they would simply sit there staring dry-eyed at the table
+    She endeavoured to secure Jane in her interest
+    meagre facts, verified by books and figures
+    in a ruined building open to the air
+    The whole of the demons therefore were merely figures
     
-    and subjected them to order and law
-    At Fundu we could not hear of any such boat
-    But this is not altogether for the law
-    while I straightened the sudden twist out of that steamboat
+    by judging what things signify in relation to one another
+    is sufficiently explicit upon this point
+    for the last time, Michael Robartes
+    8 AUGUST Pasted in Mina Murray's Journal
     
-    Reed had been alive he would have treated me kindly
-    Then why is it kept locked
+    as friend Arthur would say when he put on his red frock
+    No change appeared on the face of the rock
