@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 23 May 2021 03:45:01 PM CDT
+## Mon 24 May 2021 03:45:01 PM CDT
 
-    and he searched my face with eyes that I saw were dark
-    when neither smooth bands nor long ringlets were in vogue
-    or frightened by his high and imposing manners
-    rings, and planetary sigils being in great vogue
+    Mate says we must be past Straits of Dover
+    to me it seemed as though the mist itself had screamed
+    Illustration: PLATE 142 Las Cruces
+    His mother was not far away in front of him and seemed
     
-    She endeavoured to secure Jane in her interest
-    meagre facts, verified by books and figures
-    in a ruined building open to the air
-    The whole of the demons therefore were merely figures
+    She looks again; she perceives the ashes on the altar emit sparkles of fire
+    He had come very close to forgetting
+    or was jealous of, some interference
+    These stupid old lips of mine and this stupid old head do not deserve so
     
-    by judging what things signify in relation to one another
-    is sufficiently explicit upon this point
-    for the last time, Michael Robartes
-    8 AUGUST Pasted in Mina Murray's Journal
+    Finding themselves at once poor and despised
+    I found him a very patient
+    LADY DILKE, AMY BULLEY
+    Cut the whole space into twenty-four spaces and then and then is there a yellow color
     
-    as friend Arthur would say when he put on his red frock
-    No change appeared on the face of the rock
+    The front was, as I had once seen it in a dream
+    ’ ‘Oh, I’ve had such a curious dream
