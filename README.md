@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 24 May 2021 03:45:01 PM CDT
+## Tue 25 May 2021 03:45:01 PM CDT
 
-    Mate says we must be past Straits of Dover
-    to me it seemed as though the mist itself had screamed
-    Illustration: PLATE 142 Las Cruces
-    His mother was not far away in front of him and seemed
+    the spring opens about a week later
+    Safe in secret power from lurking human snare
+    to which spring bloom comes at least a week later
+    I believe I was considered brutally callous
     
-    She looks again; she perceives the ashes on the altar emit sparkles of fire
-    He had come very close to forgetting
-    or was jealous of, some interference
-    These stupid old lips of mine and this stupid old head do not deserve so
+    I'll be married in this lilac gingham
+    We receive our mail after it has been opened and read
+    and you cannot imagine how well he looked
+    --Brocklehurst, who I understand directs Lowood
     
-    Finding themselves at once poor and despised
-    I found him a very patient
-    LADY DILKE, AMY BULLEY
-    Cut the whole space into twenty-four spaces and then and then is there a yellow color
+    they form a more than interesting study
+    and bade him look round and see what he could observe
+    or are the result of previous study
+    As Machiavelli thought it worth while to observe
     
-    The front was, as I had once seen it in a dream
-    ’ ‘Oh, I’ve had such a curious dream
+    I have mentioned to him who you are and your relations to Miss Westenra
+    ' I acted precisely on this suggestion
