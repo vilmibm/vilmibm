@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Thu 27 May 2021 03:45:01 PM CDT
+## Fri 28 May 2021 03:45:01 PM CDT
 
-    And all my once waste energy To weighty purpose bent
-    lively; and I never saw such happy manners
-    unmarked by anything extraordinary
-    in the church down below yonder
+    and returning home with their rakes on their shoulders
+    You will not think of quitting it in a hurry
+    20 An idea is a method of evading
+    and promise to end in the same catastrophe--marriage
     
-    or white bread and new milk
-    The present--the passing second of time--was all I had in which to control and restrain him--a movement of repulsion
-    who follow me by ten thousands
-    yes--it would be much better to wait till Jane was well
+    harsh to inferiority of every description
+    allaying storms, and driving away pestilence
+    I am called; the patient has once more escaped
+    And bear me home at last
     
-    --from Bistritz over the Borgo
-    and offering to wrestle with my most secret sins
-    Another minute, and she will despise me for a hypocrite
-    They vomited, and in their vomit were often found pins
+    I confess, said he, that I should not have been at all surprised by her ladyship's asking us on Sunday to drink tea and spend the evening at Rosings
+    she undoubtedly would have refrained from the hint
+    Whoever strikes me, I will let fly my arrow
+    to give our mind to a subject is to give heed to it
     
-    he confessed himself engaged elsewhere
-    to particulars,--not back
+    I will say the very thought of you makes me sick
+    It's not Quark's fault that I got sick
