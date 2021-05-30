@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 29 May 2021 03:45:01 PM CDT
+## Sun 30 May 2021 03:45:01 PM CDT
 
-    in order, doubtless, to exhibit its contents
-    I delayed this morning that so we might be sure
-    for now you have seen her and know her
-    I say alone--Leah is a nice girl to be sure
+    Oh, Charlotte says she hardly ever does
+    She may be working on the same kind of machine
+    which serves him for a reason for what he does
+    richly dressed in a satin robe of changeful sheen
     
-    How can they pity me after what Mr
-    We have seen hitherto how good light all the little things have made
-    the patient began to rate him from within
-    The generation of Tin in and above the Earth
+    but, with many expressions of concern
+    What other tie yet holds me fast To the divorced
+    Then I remembered there was a big concern
+    No standard appears to be recognized or enforced
     
-    But their main resource probably was in the obscurity
-    and said, as gravely as I could
-    to £1 a week is probably as much as a woman can expect in this employment
-    but the latter is broadened
+    The biographical account professes to have been begun by Faustus himself
+    We are bringing a good deal of ready money
+    I have no more money to give him
+    He also brought him a monthly supply of money
     
-    Open spaces are rare
-    in which they were bound to uninterrupted silence
+    and had torn away the garlic flowers from her throat
+    I shrieked as I saw it shear through the throat
