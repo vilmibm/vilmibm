@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 31 May 2021 03:45:01 PM CDT
+## Tue 01 Jun 2021 03:45:01 PM CDT
 
-    I had nowhere seen such faces as theirs
-    You shall know and understand it all in good time
-    suddenly burst into a passion of tears
-    Collins's letter; and after laughing at her some time
+    on his part, all guilt or knowledge is denied
+    in soil barren of holy memories it cannot rest
+    so I harked back to what he had denied
+    As men advance in observation and experience
     
-    You are sick; because the best of feelings
-    were all that was affectionate and insincere
-    she could listen, and he told her of feelings
-    which I saw in the dark
+    ' Well, he did look so good-humoured and so jolly that it didn't seem half so hard to refuse him as it did poor Dr
+    no doubt, and very neatly and simply arranged
+    if it be extracted with corrected Vinegar poured upon the Antimony
+    He really ought to have expected things to have changed
     
-    a child makes a house alive all at once
-    45 46 SECTION OF A WILD GARDEN AT TUXEDO PARK
-    and he had to do it very carefully if he did not want to fall flat on his back before entering the room
-    and then went in and sat for a while in the Green Park
+    involving the selection and arrangement of the particular facts upon perception of which suggestion issues
+    Harker yielded to the hypnotic influence even less readily than this morning
+    The illustrations of the gardens at Green Court are fair samples of the extensive planting in many places
+    there shall be no recurrence of these mental terrors
     
-    I cannot tell; Aunt Reed says if I have any
-    Other instances, but not so many
+    for she felt very lonely and low-spirited
+    classification expounds extension
