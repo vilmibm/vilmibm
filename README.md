@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 01 Jun 2021 03:45:01 PM CDT
+## Wed 02 Jun 2021 03:45:01 PM CDT
 
-    on his part, all guilt or knowledge is denied
-    in soil barren of holy memories it cannot rest
-    so I harked back to what he had denied
-    As men advance in observation and experience
+    pictured it as a city lying foursquare
+    I perfectly comprehend your feelings
+    cavation has as yet yielded no proofs
+    my horses will have enough to do to drag their proper load
     
-    ' Well, he did look so good-humoured and so jolly that it didn't seem half so hard to refuse him as it did poor Dr
-    no doubt, and very neatly and simply arranged
-    if it be extracted with corrected Vinegar poured upon the Antimony
-    He really ought to have expected things to have changed
+    Mary and I have had, I should think
+    and which tend to create mechanical routine
+    and ages seemed to pass
+    take out with me to India a girl of nineteen
     
-    involving the selection and arrangement of the particular facts upon perception of which suggestion issues
-    Harker yielded to the hypnotic influence even less readily than this morning
-    The illustrations of the gardens at Green Court are fair samples of the extensive planting in many places
-    there shall be no recurrence of these mental terrors
+    but Elizabeth always laughed at the idea
+    Rodolph, the competitor for the empire
+    ’ she said to herself in a melancholy tone
+    Forced to behold that visage
     
-    for she felt very lonely and low-spirited
-    classification expounds extension
+    the problem was theoretical
+    but many think he had better be dead
