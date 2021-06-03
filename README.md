@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 02 Jun 2021 03:45:01 PM CDT
+## Thu 03 Jun 2021 03:45:01 PM CDT
 
-    pictured it as a city lying foursquare
-    I perfectly comprehend your feelings
-    cavation has as yet yielded no proofs
-    my horses will have enough to do to drag their proper load
+    The sudden spoon is the same in no size
+    with no other room free where he could crawl about
+    not forgetting their comparative height and size
+    as it is evidently found in its dissection
     
-    Mary and I have had, I should think
-    and which tend to create mechanical routine
-    and ages seemed to pass
-    take out with me to India a girl of nineteen
+    but also to the subject with which the teacher is occupied
+    Rochester, it would be but a morning's ride
+    I am removed far beyond the necessity of regarding little matters
+    About ten o'clock we started from the inn
     
-    but Elizabeth always laughed at the idea
-    Rodolph, the competitor for the empire
-    ’ she said to herself in a melancholy tone
-    Forced to behold that visage
+    But it was far otherwise with the Greeks
+    Philip Camerarius, Melancthon and others
+    then we have a margin of nearly two weeks
+    Glad Id join the death-doomed host
     
-    the problem was theoretical
-    but many think he had better be dead
+    She not unfrequently stopped at the Parsonage
+    which I had no doubt was the parsonage
