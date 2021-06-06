@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sat 05 Jun 2021 03:45:01 PM CDT
+## Sun 06 Jun 2021 03:45:01 PM CDT
 
-    he had found impossible to conquer
-    the poison shall forthwith evacuate by siege
-    He thought it would scare you away--that you would give it up
-    of the capture of Tyre after a seven months' siege
+    or phantoms, of the a tribe
+    it is a terrible task that we undertake
+    and threw him into the water for a witch
+    and gave it to Elizabeth
     
-    From this chasm a vapour issued
-    she did not even wake when I had pulled up the blind and let in the sunlight which flooded the room
-    she asked again: Do you know what day it is
-    The hieroglyphics of Egypt are of universal notoriety
+    and somewhere far off an early cock crew
+    Some hated thought seemed to have him in its grip
+    * * * * * On 14 July was somewhat anxious about crew
+    The garden nestles to the hillside
     
-    The town where she had formerly passed some years of her life
-    set it again into the Bath as aforesaid
-    These black bitches are the lady's sisters
-    and I could not see where the figure disappeared
+    are mainly those of a simpler type
+    for she was always ready to talk about her pet
+    and even then several weeks practice is required before he learns the adjustment so as neither to overreach nor to underreach
+    Is there not love in my heart
     
-    whenever I spoke, they sounded in my voice to his ear
-    We shall operate just above the ear
+    He's made a little frame
+    grant me at least a new servitude
