@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Sun 06 Jun 2021 03:45:01 PM CDT
+## Mon 07 Jun 2021 03:45:01 PM CDT
 
-    or phantoms, of the a tribe
-    it is a terrible task that we undertake
-    and threw him into the water for a witch
-    and gave it to Elizabeth
+    and, at the request of the gentlemen
+    and she wished we would be more careful
+    Yes, Bessie, I can both read it and speak it
+    as he always does, but all the time kept looking at a strange ship
     
-    and somewhere far off an early cock crew
-    Some hated thought seemed to have him in its grip
-    * * * * * On 14 July was somewhat anxious about crew
-    The garden nestles to the hillside
+    even by the most sacrilegious means
+    Though loaded with trouble and pain
+    Molineux and My dear Mr
+    I wanted to feel the thoughts whose force he seemed breasting and resisting
     
-    are mainly those of a simpler type
-    for she was always ready to talk about her pet
-    and even then several weeks practice is required before he learns the adjustment so as neither to overreach nor to underreach
-    Is there not love in my heart
+    Sure eneuch the matter was one ready to his hand
+    Never have I seen such Begonias
+    as I had expected, and the locks were comparatively new
+    each plot is numbered
     
-    He's made a little frame
-    grant me at least a new servitude
+    Elizabeth had never yet answered Mrs
+    saving only a bare pretence
