@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Mon 07 Jun 2021 03:45:01 PM CDT
+## Tue 08 Jun 2021 03:45:01 PM CDT
 
-    and, at the request of the gentlemen
-    and she wished we would be more careful
-    Yes, Bessie, I can both read it and speak it
-    as he always does, but all the time kept looking at a strange ship
+    No proxy voting permitted
+    almost verbatim, from the class papers of students
+    from nine or ten to twenty
+    The first of these might seem to be enough in the days of bigotry and implicit faith
     
-    even by the most sacrilegious means
-    Though loaded with trouble and pain
-    Molineux and My dear Mr
-    I wanted to feel the thoughts whose force he seemed breasting and resisting
+    Bacchus is said to have visited this spot in his great expedition to the East
+    and also that males should be employed at the cards
+    sometimes running on the roofs of the houses
+    These earnest gentlemen - all three of them had full beards
     
-    Sure eneuch the matter was one ready to his hand
-    Never have I seen such Begonias
-    as I had expected, and the locks were comparatively new
-    each plot is numbered
+    as he might change his mind another day
+    but I have bad news for you
+    with the encampment of the Roman army
+    And with scorn and courage telling The world to do its worst
     
-    Elizabeth had never yet answered Mrs
-    saving only a bare pretence
+    But that I may yet give a little more information of Natural and Supernatural things
+    it is equally evident that the mills have been designed entirely without reference to the workers
