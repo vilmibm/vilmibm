@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Tue 08 Jun 2021 03:45:01 PM CDT
+## Wed 09 Jun 2021 03:45:01 PM CDT
 
-    No proxy voting permitted
-    almost verbatim, from the class papers of students
-    from nine or ten to twenty
-    The first of these might seem to be enough in the days of bigotry and implicit faith
+    uncovered in 1884, is a sharp right angle
+    their amulets, and their reporters and believers of miraculous occurrences
+    without convulsions and vehement struggle
+    for her brow and cheeks had recovered some of their flowing lines
     
-    Bacchus is said to have visited this spot in his great expedition to the East
-    and also that males should be employed at the cards
-    sometimes running on the roofs of the houses
-    These earnest gentlemen - all three of them had full beards
+    Was it suspected that this lunatic
+    Groups of shrubs with other beds are sometimes used to break a wide stretch of lawn
+    It was an evening of no common delight to them all
+    If we make haste, said Lydia
     
-    as he might change his mind another day
-    but I have bad news for you
-    with the encampment of the Roman army
-    And with scorn and courage telling The world to do its worst
+    Smouldering, on my hearts altar lies The fire of some great sacrifice
+    But if this Spirit of Mercury can be caught
+    I hear rumours, and especially of a tall
+    but which constantly tend to become so isolated that they work against each other instead of cooperating to make reflective inquiry efficient
     
-    But that I may yet give a little more information of Natural and Supernatural things
-    it is equally evident that the mills have been designed entirely without reference to the workers
+    not themselves primarily intellectual
+    Mingling their very offerings with their gore
