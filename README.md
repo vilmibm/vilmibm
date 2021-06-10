@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of project gutenberg books.
 _please do let me know if it produces anything objectionable_
 
-## Wed 09 Jun 2021 03:45:01 PM CDT
+## Thu 10 Jun 2021 03:45:01 PM CDT
 
-    uncovered in 1884, is a sharp right angle
-    their amulets, and their reporters and believers of miraculous occurrences
-    without convulsions and vehement struggle
-    for her brow and cheeks had recovered some of their flowing lines
+    and anon the devilish face of Judas
+    ’ said Alice, in a hurry to change the subject
+    now metamorphosed into a Goddess
+    I am now led to the most painful part of my subject
     
-    Was it suspected that this lunatic
-    Groups of shrubs with other beds are sometimes used to break a wide stretch of lawn
-    It was an evening of no common delight to them all
-    If we make haste, said Lydia
+    A ceremony followed, in dumb show
+    Silchester and Caerwent did not stand alone in Britain
+    Ultimately, as the excavations show
+    your hope is a rather extraordinary one after my declaration
     
-    Smouldering, on my hearts altar lies The fire of some great sacrifice
-    But if this Spirit of Mercury can be caught
-    I hear rumours, and especially of a tall
-    but which constantly tend to become so isolated that they work against each other instead of cooperating to make reflective inquiry efficient
+    I dared not leave it
+    if possible before sunrise so as to avoid customs
+    that some singular and unexpected thing was about to happen
+    secondly, of the average urban conditions
     
-    not themselves primarily intellectual
-    Mingling their very offerings with their gore
+    as though he had wanted to swallow all the air
+    exile, and death--death skulking in the air
