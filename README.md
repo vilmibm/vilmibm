@@ -9,21 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jun 11 16:48:01 EDT 2021
+## Sat Jun 12 16:48:01 EDT 2021
 
-    So you can get the picture, my A is a Wrigley's Spearmintwrapper, B is a MiniDisc, C is a folded up piece of A4 and D is a dentistappointment card.
-    The best method is to attack right the long thrust
-    eras ago, this was a country of spires
-    regenerate shields 25 0.000000asterThruster Enhancer: improved turn rate by about 20    
-    The entry pad is to your left F
-    You'll get a bonus later and don't worry about themany more.When you return, you complain to Tayla about how hot her missionshave become.
-    Seemshe created the vortex that saved you to bring you through into this land to help him fight against his enemy, Lethys.
-    30,0006i: Target Lock.
+    This section talks about how you get missions and whattype of missions each source would give.TIP
+    L E V E L T H R E E - S I M P L E W A L K T H R O U G H =============================================================================Well, the difficulty of the game *has* just been stepped up a notch.
+    They, like trees, can also be heated up by fire, and sometimeseven burn, allowing you to set enemy villages alight.
+    or maybe a damning indictment of your shortcomings
     
-    swarms of birds, patterns and sigils in clouds
-    When all three have been replaced by the donuts then the game is over! Congratulations on actually being able to solve this game! '
-    Thesecret base is in Valhalla system.
-    They're drowning and they need rescued, quickity quick.
+    repeated mantras or arcane sigils
+    ------------Bring a wolf, I hope you still have wolves after I TOLD YOU TO LEAVE THEMALONE.
+    Wait until he's practically standing in front of you
+    The Rich, The Fair-handed  Oracle  When you describe benevolent augury that you can see
     
-    Scanning it with the MRI and Bio-Scan shows something interesting
-    Problem solved.No more moaning villagers.*-* ULTIMATE POWER *-* Warning
+    the Yin andYang logo above his or her head.
+    Take more Brilliance to New Constantinople (yes, thatone).
+    You're back in Britannia with all your ill-gotten gold. This trick can also result in some weird side-effects
+    Swat the brain cells with the fish when the eye is open.
+    
+    If not in your hands, a part must be on apole.
+    Evil factor is very, VERY high.
