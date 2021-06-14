@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jun 13 16:48:01 EDT 2021
+## Mon Jun 14 16:48:02 EDT 2021
 
-    You'll get nothing for anything else you do.Woo!
-    Combine it with throwing/flaming/etc for even greater belief boosts.ONE
-    and from the sea by magnetic mines green dots
-    the babbling tongues of the faithful and faithless
+    After taking these out
+    and you're using passwords
+    +D8 precision when working out what someone wants
+    After a few minutes, everything will be fully constructed.
     
-    except for a poster on the wall Alexei's hero
-    The only goal here is to survive
-     If your extent beats your opponent’s resistance
-    This includes, but isn't limited to, using trees.
+    it is quite slow and make sure it jumps out beforeyou head back to Oxford and land.14.5 MASTERSON 5Transport "artwork" to Perry Naval Base.
+     Commercia grants a blessing to security
+    You guessed it.
+    Useful throughout the game until you canafford missile launchers.4.5.2 Energy GunsThere are quite a few energy guns, which differ in firing rate,energy use, shot velocity, and damage.
     
-    She communicates in the shine of gold
-    WAIT for the bee to pick up the cotton candy BEFORE you go to the left. 2.
-    She wants to throw the ball with you for sure
-    will join him in attack.
+    If you wish to make one of these, place it near your VillageCentre, where people chill out and relax.
+    ..Head to Troy, and explore the nearby nav points.
+    =*
+    Once per scene, when you let your mistress guide your actions
     
-    .....a beach ball and a Heal Increase Miracle Dispenser.EVIL SOLUTION-------------Fight him.
-    If you walk away B,F
+    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
+    In the meanwhile, you're chasedeverywhere by that green thing
