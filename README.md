@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jun 14 16:48:02 EDT 2021
+## Tue Jun 15 16:48:01 EDT 2021
 
-    After taking these out
-    and you're using passwords
-    +D8 precision when working out what someone wants
-    After a few minutes, everything will be fully constructed.
+    ..
+    All you have to do to becomean avatar is to go to each place and do good deeds
+    Fed up of waiting for worshippers to provide you with enough Mana?
+    Exit the room L,F,L,F
     
-    it is quite slow and make sure it jumps out beforeyou head back to Oxford and land.14.5 MASTERSON 5Transport "artwork" to Perry Naval Base.
-     Commercia grants a blessing to security
-    You guessed it.
-    Useful throughout the game until you canafford missile launchers.4.5.2 Energy GunsThere are quite a few energy guns, which differ in firing rate,energy use, shot velocity, and damage.
+    -------------- - Lord Robert will tell you a word: AMOk.
+    .. You encounter some random travelers... And Steltekshowed up!
+    When you jump into Nexus system, you'll see some moreof those Unknowns, and when you get to nav 4, you'll face A LOTof Retro Talons.
+    On theother hand, the university does need some work done
     
-    If you wish to make one of these, place it near your VillageCentre, where people chill out and relax.
-    ..Head to Troy, and explore the nearby nav points.
-    =*
-    Once per scene, when you let your mistress guide your actions
+    and meet the security guard
+    What you waiting for?Lets get puzzling!GOOD SOLUTION
+    If you’re not sure what to do
+    Quickly shoot him before he throws it R
     
-    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
-    In the meanwhile, you're chasedeverywhere by that green thing
+    Seems that the peopleof the village are becoming sick, you'll need to help them.GOOD SOLUTION
+    so follow Gia F, F to the guns
