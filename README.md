@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jun 15 16:48:01 EDT 2021
+## Wed Jun 16 16:48:01 EDT 2021
 
-    ..
-    All you have to do to becomean avatar is to go to each place and do good deeds
-    Fed up of waiting for worshippers to provide you with enough Mana?
-    Exit the room L,F,L,F
+    It is a combination of genres
+    Pays 10K.You'll likely meet quite a few pirate or Retro Talons (at least 6total).
+      QUILL, goddess of precision
+    The first time you have access to a store of knowledge
     
-    -------------- - Lord Robert will tell you a word: AMOk.
-    .. You encounter some random travelers... And Steltekshowed up!
-    When you jump into Nexus system, you'll see some moreof those Unknowns, and when you get to nav 4, you'll face A LOTof Retro Talons.
-    On theother hand, the university does need some work done
+    the ball eats you.
+    However, you justneed them to NOT hate you
+    The Aegis, The Brave  Guilder  When you cut a deal
+    often separated by a hyphen
     
-    and meet the security guard
-    What you waiting for?Lets get puzzling!GOOD SOLUTION
-    If you’re not sure what to do
-    Quickly shoot him before he throws it R
+    *-*BACKGROUND
+    don't bump it!
+    take the left path F
+    remember its number, and head down the hall to the silver room F
     
-    Seems that the peopleof the village are becoming sick, you'll need to help them.GOOD SOLUTION
-    so follow Gia F, F to the guns
+      Your geographical location will be bound to your name as an addendum
+    They will kill ANY humans they find.Kilrathi fly Dralthi
