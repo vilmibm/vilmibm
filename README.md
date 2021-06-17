@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jun 16 16:48:01 EDT 2021
+## Thu Jun 17 16:48:01 EDT 2021
 
-    It is a combination of genres
-    Pays 10K.You'll likely meet quite a few pirate or Retro Talons (at least 6total).
-      QUILL, goddess of precision
-    The first time you have access to a store of knowledge
+    or see something truly remarkable
+    shifting tattoos, exotic diseases
+      If you have multiple dice of the same size but of different types
+    Sometimes,you may get NOTHING.Think of this as the classified ads
     
-    the ball eats you.
-    However, you justneed them to NOT hate you
-    The Aegis, The Brave  Guilder  When you cut a deal
-    often separated by a hyphen
+    you are consideredone of the 8), be well equipped, have lots of reagants, and a good supply ofitems.Dungeon Locations: (from Stephanus Rudiyanto Natari)------------------ Deceit: EJ PA Despise: ED FL Destard: KI EI Wrong: BE HO Covetous: BL JM Shame: GG DK Hythloth: PA OP Hard to find dungeons: - Shame (Although you know the entrance location) To enter this dungeon, sail down the river from HF CA - Hythloth (Easy Entrance) 'Jimmy Lock' a locked door behind Castle Britannia, and climb down the  ladder.Stones:------- White: On top of serpent's spine, can only be reached via balloon (which can be found outside Hythloth) Black: Search the Moonglow Moongate during a double new moon Blue: Seventh Level of Deceit Yellow: Fifth Level of Despise Red: Seventh Level of Destard Green: Eighth Level of Wrong Orange: Seventh Level of Covetous Purple: Second Level of ShameOnce you have the stones you must use them in the 3 rooms of principles to getthe 3 part key.
+    As with most evil acts,you win nothing.*
+    Do the quest, then kill the hippy.Whatever floats your boat.
+    Leave the room and enter yet another hallway R
     
-    *-*BACKGROUND
-    don't bump it!
-    take the left path F
-    remember its number, and head down the hall to the silver room F
+    If you don't aim while standing
+    Anyway,its time to move onto the final village, and reclaim your village.
+    Back in another hallway
+    so it's not that big of a deal
     
-      Your geographical location will be bound to your name as an addendum
-    They will kill ANY humans they find.Kilrathi fly Dralthi
+    TNRUB SDC NOILLIB A space bar 	 REEB OROPPAS KNIRD that's a space at the front Well
+    But this one isa deucy.Objective
