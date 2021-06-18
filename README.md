@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jun 17 16:48:01 EDT 2021
+## Fri Jun 18 16:48:01 EDT 2021
 
-    or see something truly remarkable
-    shifting tattoos, exotic diseases
-      If you have multiple dice of the same size but of different types
-    Sometimes,you may get NOTHING.Think of this as the classified ads
+    beggars
+    Note
+    Masterson needs this Draymanthrough the pirates really bad.Objective
+    CL DK------ - Jaana, a druid, will join you here. - The Rune of Justice is in a cell with a criminal.
     
-    you are consideredone of the 8), be well equipped, have lots of reagants, and a good supply ofitems.Dungeon Locations: (from Stephanus Rudiyanto Natari)------------------ Deceit: EJ PA Despise: ED FL Destard: KI EI Wrong: BE HO Covetous: BL JM Shame: GG DK Hythloth: PA OP Hard to find dungeons: - Shame (Although you know the entrance location) To enter this dungeon, sail down the river from HF CA - Hythloth (Easy Entrance) 'Jimmy Lock' a locked door behind Castle Britannia, and climb down the  ladder.Stones:------- White: On top of serpent's spine, can only be reached via balloon (which can be found outside Hythloth) Black: Search the Moonglow Moongate during a double new moon Blue: Seventh Level of Deceit Yellow: Fifth Level of Despise Red: Seventh Level of Destard Green: Eighth Level of Wrong Orange: Seventh Level of Covetous Purple: Second Level of ShameOnce you have the stones you must use them in the 3 rooms of principles to getthe 3 part key.
-    As with most evil acts,you win nothing.*
-    Do the quest, then kill the hippy.Whatever floats your boat.
-    Leave the room and enter yet another hallway R
+    It doesn't work all the time for me, but that's the ONLY one that works for me. 2.
+    Make sure you miss thehouses though, and by the time Khazar gives up on teaching you, you will havea fully-fireball-trained Creature. =============================================================================6i
+    Also be sure to bring as many reagants as you can buy.
+      Your resistance is 3
     
-    If you don't aim while standing
-    Anyway,its time to move onto the final village, and reclaim your village.
-    Back in another hallway
-    so it's not that big of a deal
+    * Two - Just Where Was This Freak Wave?
+    New Moon Moonglow Moonglow Britain Jhelom2.
+    who is hanging in one of the rooms
+    The result is both a map and a translation aid
     
-    TNRUB SDC NOILLIB A space bar 	 REEB OROPPAS KNIRD that's a space at the front Well
-    But this one isa deucy.Objective
+    Tell us about someone who lives there who knows you and wants something from you
+    You'll find this Silver Scrollnear the middle village on the island.
