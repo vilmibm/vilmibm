@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jun 18 16:48:01 EDT 2021
+## Sat Jun 19 16:48:01 EDT 2021
 
-    beggars
-    Note
-    Masterson needs this Draymanthrough the pirates really bad.Objective
-    CL DK------ - Jaana, a druid, will join you here. - The Rune of Justice is in a cell with a criminal.
+    You will alsonotice that I've numbered the poles.
+    Ithas two turrets, but don't expect them to keep you safe.5.4.4 CenturionCenturion is primarily a fighter, but it can fit SMALL amount ofcargo.
+    The goal here is to turn on the top right circuit without setting off the trap
+    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
     
-    It doesn't work all the time for me, but that's the ONLY one that works for me. 2.
-    Make sure you miss thehouses though, and by the time Khazar gives up on teaching you, you will havea fully-fireball-trained Creature. =============================================================================6i
-    Also be sure to bring as many reagants as you can buy.
-      Your resistance is 3
+    Try the cows as well.
+    Run to the plane F,F
+    Target Lock.
+    Go over to the other door and walk though it L
     
-    * Two - Just Where Was This Freak Wave?
-    New Moon Moonglow Moonglow Britain Jhelom2.
-    who is hanging in one of the rooms
-    The result is both a map and a translation aid
+    Go find the guard in the windowed room L
+    If not, a "random" encounter is generated.The "random" enemies are randomly chosen based on a series ofprobability tables.
+    F , turn around and lock it behind you L
+    Britain
     
-    Tell us about someone who lives there who knows you and wants something from you
-    You'll find this Silver Scrollnear the middle village on the island.
+    the detonators will explode in six seconds
+      THE OTHERS  When you make a character
