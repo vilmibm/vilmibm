@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jun 20 16:48:01 EDT 2021
+## Mon Jun 21 16:48:01 EDT 2021
 
-    Walk back to the junction from the box
-    =DOnce that onslaught has been survived, simply wait for your Influence to grow,and start converting Village number two.
-    But this one isa deucy.Objective
-    Wandering around the maze of boxes F
+    * Two - Again with the Singing Stones!
+    third, fourth, eighth
+    There's nothing else to it.14.21 MONTE 3Monte explained that Modecai Jones is at a secret base somewhere,and somehow they learned that Monte's looking for them.
+    You will recieve a pile of grain for your efforts.
     
-    Not much of interest here
-    Fly to Drake in Capello System and meet the contact therefor more info.Just random stuff, nothing too special.14.20 INFORMANT 1You found the informant in the bar.
-    Or CoolThang for short.EVIL SOLUTION
-    The man's lost his sheep, and now you've gotto find them.
+    When it gets enough wood, the Workshop will build Scaffolds, whichare blueprints that let you build new structures in your village, and even newvillages.GRAVEYARD
+    You need color-coded scannerbefore you take on combat missions.Now just go through Merchant's Guild computer and the MissionComputer for more missions and do them.
+      Known as Newt-Boy in his youth on account of his weird eyes
+    swarms of birds, patterns and sigils in clouds
     
-    Puzzle level, well, it's up to you
-    so walk to the door, go through it F
-    toward everybody except perhaps Kilrathi and Retrosby hacking Confed and Pirate databases.
-    whatever raw material) and of course,contraband.If you can find a good route between mining and refinery, you canmake a bit of money, but usually these routes go by piratesystems and such.6.6 NEW CONSTANTINOPLEThe only thing NC produces that sells well is art (and only onpleasure planets)NC is one of the few places that will NOT buy contraband, thoughyou may get special fixer missions that need you to delivercontraband here.6.7 NEW DETROITNew Detroit is essentially a huge refinery.
+    Cannot repairdestroyed items.
+    to Hector Mining base,Troy system
+    CATWALK Santos's guards will be after you now
+    Browse through them, and note the new janitor's key code
     
-    so be sure and save some ammo for them
-    shifting tattoos, exotic diseases
+    the patterns of soil
+    is flying a Talon.
