@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jun 21 16:48:01 EDT 2021
+## Tue Jun 22 16:48:01 EDT 2021
 
-    * Two - Again with the Singing Stones!
-    third, fourth, eighth
-    There's nothing else to it.14.21 MONTE 3Monte explained that Modecai Jones is at a secret base somewhere,and somehow they learned that Monte's looking for them.
-    You will recieve a pile of grain for your efforts.
+      Demos grants a blessing to extent
+    Expect to see arival gang, Salman Kroiz.When you reach Rikel's jump point, you'll encounter Kroiz ?
+    Scanning it with the MRI and Bio-Scan shows something interesting
+    Grab one of the sticks and then attack the rose bush.
     
-    When it gets enough wood, the Workshop will build Scaffolds, whichare blueprints that let you build new structures in your village, and even newvillages.GRAVEYARD
-    You need color-coded scannerbefore you take on combat missions.Now just go through Merchant's Guild computer and the MissionComputer for more missions and do them.
-      Known as Newt-Boy in his youth on account of his weird eyes
-    swarms of birds, patterns and sigils in clouds
+    Go through the door R
+    Wow
+    This is the place that'll build your village up, if you supply itwith wood.
+    Run to the plane F,F
     
-    Cannot repairdestroyed items.
-    to Hector Mining base,Troy system
-    CATWALK Santos's guards will be after you now
-    Browse through them, and note the new janitor's key code
+    often with a descriptor attached so quick-girl or tall-child
+    You can also mould his personality well onthis island, teaching him what and what not to eat, how to help out Villagers,etc.
+    Go on the third time and you should be able to make it past her.
+    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
     
-    the patterns of soil
-    is flying a Talon.
+    .. And youneed to access the library.
+    Justice, Green 5.
