@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jun 22 16:48:01 EDT 2021
+## Wed Jun 23 16:48:01 EDT 2021
 
-      Demos grants a blessing to extent
-    Expect to see arival gang, Salman Kroiz.When you reach Rikel's jump point, you'll encounter Kroiz ?
-    Scanning it with the MRI and Bio-Scan shows something interesting
-    Grab one of the sticks and then attack the rose bush.
+    4.2 ORIONOrion is an odd ship
+    Bounty hunters can be found all over.Bounty hunters hate Pirates, Kilrathis, and Retros see factions
+    Just RUN really fast.14.16 TAYLA 3Run Brilliance from Tuck's in Sherwood to Speke in Junction.
+    On the first floor, go into the room with all the guards, and in the NE corner of the room on the east wall is a secret wall, go in and search for the Rune of Spirituality (don't take the treasure). - Give blood here to improve your virtues. - Also any time you find yourself back at the castle, talk to Hawkwind, the Seer who will not only tell you how close you are to Partial Avatarhoods, but will also increase your spirtuality.b.
     
-    Go through the door R
-    Wow
-    This is the place that'll build your village up, if you supply itwith wood.
-    Run to the plane F,F
+    Usually you see them around Perry Naval Base.5.5.2 KamekhKamekh is Kilrathi corvette, equivalent of Confed Paradigm, andhas very good armor and shields.
+    Run in some food to NewDetroit for 30k.You'll see 4 Retros then 4 Retros on either side of the jump.
+    Valor, Red 4.
+    Walk towards the Cyberia weapon F
     
-    often with a descriptor attached so quick-girl or tall-child
-    You can also mould his personality well onthis island, teaching him what and what not to eat, how to help out Villagers,etc.
-    Go on the third time and you should be able to make it past her.
-    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
+    Many  of the treasure chests in this weird place
+    When the pendulum swings to that side enter the door Timing is critical! THE BRAIN 1.
+    Depending on your final answer will be the type of character you are inthe game, and where you start the game. Virtue
+    F to stand up, D to duck
     
-    .. And youneed to access the library.
-    Justice, Green 5.
+    Run really, really fast
+    ---------------------- Get the Bell of Courage at: NA LA Get the Skull of Mondain at: PF MF (double new moons only) Get a Magic Wheel (to improve your ship) at: NH GA A Telescope is at: AC BG After Becoming a full Avatar you can get these: Also be sure to get the Mystic Armor at Empath Abbey (in the grotto): AE BG And the Mystic Weapon at Serpent's Hold (on the mat): AP AI Trick: If you need money, you can sell these, then go back and get them again.When you become a partial avatar in each virtue you will be given a letter,all the letters add up to INFINITY.+=============================================================================+| 2.
