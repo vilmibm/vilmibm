@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jun 25 16:48:01 EDT 2021
+## Sat Jun 26 16:48:01 EDT 2021
 
-    -----------Ahh...choices as always.
-    -----------Get your influence over his hill eventually.
-    Go sacrifice a few children ascompensation.
-    in search of some very ominous goings-on there
+    , better hold off the IRs.4.5.1.5 Friend-or-Foe Missile (FF)Lock: nearest enemy, Speed 900, Damage 17 cm, Price 100Expensive, but no need to lock.
+    Your objective is totravel the known universe
+    BIG SHOCK Walk over to Santos's body
+    Back in another hallway
     
-    next to the VillageCentre.
-    In Out ---------------- -------------- --------- Off Off Off Off Off Off Off On Off On Off Off On On On Off On Off Off On Off On On On On On On On PUZZLE LEVEL 1
-    Yes, Virginia, there is a cheat code
-    or maybe a damning indictment of your shortcomings
+    and the game does kind of suck you in over time
+    Great.EVIL SOLUTION
+    This is the place that'll build your village up, if you supply itwith wood.
+    General Information What's with the difficulty levels
     
-    The only thingthat can hurt the drone is your Steltek gun
-      Known as Newt-Boy in his youth on account of his weird eyes
-    Take more Brilliance to New Constantinople (yes, thatone).
-    Monkhouse want to get over to Basra.
+    In Win95 use ALT-ESC to minimize the window, then right click, and close after saving it with "Q" of course
+    He'll jump out,so jump after him.
+    Again, tell the group one thing that marks it out
+    So instead of 3shots, you'll shoot 4 times during the same period.
     
-    On theother hand, the university does need some work done
-    30,0006i: Target Lock.
+    Ithas two turrets, but don't expect them to keep you safe.5.4.4 CenturionCenturion is primarily a fighter, but it can fit SMALL amount ofcargo.
+    Eden's the name of the world
