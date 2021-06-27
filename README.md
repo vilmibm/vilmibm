@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jun 26 16:48:01 EDT 2021
+## Sun Jun 27 16:48:01 EDT 2021
 
-    , better hold off the IRs.4.5.1.5 Friend-or-Foe Missile (FF)Lock: nearest enemy, Speed 900, Damage 17 cm, Price 100Expensive, but no need to lock.
-    Your objective is totravel the known universe
-    BIG SHOCK Walk over to Santos's body
-    Back in another hallway
+    You will receive another donut shape thing. 2.
+    You will encounter a lot of otherships, form friendly to hostile.
+    Hit the bee with an uppercut. THE DESERT 1.
+    Usually involves killing everyone.
     
-    and the game does kind of suck you in over time
-    Great.EVIL SOLUTION
-    This is the place that'll build your village up, if you supply itwith wood.
-    General Information What's with the difficulty levels
+    http://www.moongates.com/u4/ It's not that great of an improvement, but any improvement is a good one, so it is a recommended download.
+    Select one of the three antidotes
+    Note
+    If you are playing with a digital control standard Sony pad
     
-    In Win95 use ALT-ESC to minimize the window, then right click, and close after saving it with "Q" of course
-    He'll jump out,so jump after him.
-    Again, tell the group one thing that marks it out
-    So instead of 3shots, you'll shoot 4 times during the same period.
+    Comes in small and large sizes, governed by whetheryou use one Scaffold or two Scaffolds to build it.CRECHE
+    AND: In1 In2 Out OR: In1 In2 Out NOT
+    Try the cows as well.
+    On theother hand, the university does need some work done
     
-    Ithas two turrets, but don't expect them to keep you safe.5.4.4 CenturionCenturion is primarily a fighter, but it can fit SMALL amount ofcargo.
-    Eden's the name of the world
+    Higher levels ofengine also produce more power for other use, such asafterburner, weapons, shields, and so on.Is it recommended that you have the highest engine levelavailable.4.6.3 ArmorYou get plasteel
+    Again,10000 credits and soon access to library.You'll find the Drayman at nav 3, with 4+2 Demons.
