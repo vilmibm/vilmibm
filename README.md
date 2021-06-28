@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jun 27 16:48:01 EDT 2021
+## Mon Jun 28 16:48:01 EDT 2021
 
-    You will receive another donut shape thing. 2.
-    You will encounter a lot of otherships, form friendly to hostile.
-    Hit the bee with an uppercut. THE DESERT 1.
-    Usually involves killing everyone.
-    
-    http://www.moongates.com/u4/ It's not that great of an improvement, but any improvement is a good one, so it is a recommended download.
-    Select one of the three antidotes
-    Note
     If you are playing with a digital control standard Sony pad
+    Price
+    see morale andexperience
+    in search of some very ominous goings-on there
     
-    Comes in small and large sizes, governed by whetheryou use one Scaffold or two Scaffolds to build it.CRECHE
-    AND: In1 In2 Out OR: In1 In2 Out NOT
-    Try the cows as well.
-    On theother hand, the university does need some work done
+    Deliver a message to Seelig, who will be at Nav 2 inPentonville (Pirate) System.
+    Three companies make scanners, each of 3levels, for nine different modelsHunter AW 6i is probably the best radar for the money, until youcan afford top-of-the-line model like B&S Omni.NOTE
+    You pick the first, the group picks the second
+    the ball rolls past you and the woman sticks you in the throat. 3.
     
-    Higher levels ofengine also produce more power for other use, such asafterburner, weapons, shields, and so on.Is it recommended that you have the highest engine levelavailable.4.6.3 ArmorYou get plasteel
-    Again,10000 credits and soon access to library.You'll find the Drayman at nav 3, with 4+2 Demons.
+    ..
+    >>Transfighter Missions<< Time for some action missions
+    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
+    These rooms are located at the bottom of dungeons.
+    
+    Once you're ready to do some killin'
+    Do I really have to say?
