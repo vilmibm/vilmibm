@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jun 30 16:48:02 EDT 2021
+## Thu Jul  1 16:48:01 EDT 2021
 
-    If you take shots at a enemy that hasn't been targeted yet
-    Enter the room F , and look through the window F
-    Swat the brain cells with the fish when the eye is open.
-    His community saw that he was quite slow
+    You can find Horses all over the island
+    It uses players, a GM
+    See [7] for mission sources
+    Once per scene, your precision is equal to your extent
     
-    Wait until he is on the other side
-    Altough there is a neat death sequence on the other side of the door
-    Once you wake up, you'll wish you hadn't
-    A city the size of a kingdom that scraped the sky
+    magic or temptation, +D12 security
+    Instead ofquesting to remove some all-powerful evil, you are questing toward self-improvement to become an Avatar.
+    third, fourth, eighth
+    a thousand strange confluences
     
-    Or want animals.You know the drill.
-      You have seen miracles in the streets
-    Basically, you'll find all yourvillage's kids in the Creche.
-    Watch the color of the target- fuel trucks have blue targets
+    and from the sea by magnetic mines green dots
+    Khazar was quite generous in giving us the ability to "operate" in hisInfluence, so lets exploit it, shall we?
+    Shrines, Runes, and Mantras |+=============================================================================+Compassion
+    You shouldmake your way to Perry Naval Base
     
-    Not much of interest here
-    Here is a list of them
+    She communicates in the pattern of winds and lightning
+    They can be dropped in your Village Store for extra food.Always a good idea to stock up while you have the chance.
