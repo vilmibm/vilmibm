@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul  1 16:48:01 EDT 2021
+## Fri Jul  2 16:48:01 EDT 2021
 
-    You can find Horses all over the island
-    It uses players, a GM
-    See [7] for mission sources
-    Once per scene, your precision is equal to your extent
+    the Inexorable, the Anointed  Pilgrim When you travel
+    Once per scene, when you let your mistress guide your actions
+    You've been dumped out into a new world/island, and you've novillages, no Creatures, and only a few followers.
+    Just patrolt he points.14.7 LYNN MURPHY 2Run the blockade to Liverpool at New Castle.
     
-    magic or temptation, +D12 security
-    Instead ofquesting to remove some all-powerful evil, you are questing toward self-improvement to become an Avatar.
-    third, fourth, eighth
-    a thousand strange confluences
+    and may be freely distributed in whole or part as long as proper credit is given to the author
+    There are three mirrors that you can enter right now.
+    You need a FULLY upgraded Tarsus toeven think about leaving the Troy system.
+    To be used once only.
     
-    and from the sea by magnetic mines green dots
-    Khazar was quite generous in giving us the ability to "operate" in hisInfluence, so lets exploit it, shall we?
-    Shrines, Runes, and Mantras |+=============================================================================+Compassion
-    You shouldmake your way to Perry Naval Base
+    Walk towards the Cyberia weapon F
+    You need a FULLY upgraded Tarsus toeven think about leaving the Troy system.
+    DOOR MAN Keep walking towards the complex F
+    Enter the first door on your right R
     
-    She communicates in the pattern of winds and lightning
-    They can be dropped in your Village Store for extra food.Always a good idea to stock up while you have the chance.
+    LOCKED OUT Walk through the doorway
+    Once ineach room you need to use the stone on the altar, the following is a list ofwhich stones go in which rooms
