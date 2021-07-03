@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jul  2 16:48:01 EDT 2021
+## Sat Jul  3 16:48:01 EDT 2021
 
-    the Inexorable, the Anointed  Pilgrim When you travel
-    Once per scene, when you let your mistress guide your actions
-    You've been dumped out into a new world/island, and you've novillages, no Creatures, and only a few followers.
-    Just patrolt he points.14.7 LYNN MURPHY 2Run the blockade to Liverpool at New Castle.
+    you'll die, so be very fast and precise
+    L,F,F , and push the crate out of the way R
+    Another crosshair-type arcade sequence
+    Leave the room and enter yet another hallway R
     
-    and may be freely distributed in whole or part as long as proper credit is given to the author
-    There are three mirrors that you can enter right now.
-    You need a FULLY upgraded Tarsus toeven think about leaving the Troy system.
-    To be used once only.
+    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
+    crystals form in hidden rooms
+    * Two - Just Where Was This Freak Wave?
+      1D10 1: Agent 2
     
-    Walk towards the Cyberia weapon F
-    You need a FULLY upgraded Tarsus toeven think about leaving the Troy system.
-    DOOR MAN Keep walking towards the complex F
-    Enter the first door on your right R
+    If you continue running down the hall
+    On top of a mountain surrounding the village.
+    boththese things increase the size of your Influence.
+    The only goal here is to survive
     
-    LOCKED OUT Walk through the doorway
-    Once ineach room you need to use the stone on the altar, the following is a list ofwhich stones go in which rooms
+    F,F gets you to a ladder and a locked door
+    Again, 10000credits and access to library really, after this mission
