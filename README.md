@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jul  3 16:48:01 EDT 2021
+## Sun Jul  4 16:48:01 EDT 2021
 
-    you'll die, so be very fast and precise
-    L,F,F , and push the crate out of the way R
-    Another crosshair-type arcade sequence
-    Leave the room and enter yet another hallway R
-    
-    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
-    crystals form in hidden rooms
-    * Two - Just Where Was This Freak Wave?
-      1D10 1: Agent 2
-    
-    If you continue running down the hall
+    Get through this section as quickly as possible F
     On top of a mountain surrounding the village.
-    boththese things increase the size of your Influence.
-    The only goal here is to survive
+    check out the plane L
+    (See the Simple Walkthrough)Bring a piece of your Creatures
     
-    F,F gets you to a ladder and a locked door
-    Again, 10000credits and access to library really, after this mission
+    The only place I really 		noticed is at the Slice-O-Matic death scene
+    Honesty, Blue 2.
+    toward everybody except perhaps Kilrathi and Retrosby hacking Confed and Pirate databases.
+    When you are learning about Gestures, you will try to impressthe nearby village into believing in you.
+    
+    Hewants you to sacrifice his child.
+    ----------------------- - Make sure to talk to Lord British and accept the Quest of the Avatar  otherwise this will be a very short game!
+    R,F,F,R,F,F , and quickly get to the computer R
+    , you can start accepting justabout any mission.
+    
+    ..The map seems to point to the frontiers out beyond Rygannon.
+    *-*Seems that a um
