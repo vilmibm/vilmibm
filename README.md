@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jul  4 16:48:01 EDT 2021
+## Mon Jul  5 16:48:01 EDT 2021
 
-    Get through this section as quickly as possible F
-    On top of a mountain surrounding the village.
-    check out the plane L
-    (See the Simple Walkthrough)Bring a piece of your Creatures
+    When you have the Orion nicelyequipped think level 5 shields
+    you'll die, so be very fast and precise
+    You've got a bomb in your brain
+    Here is a list of them
     
-    The only place I really 		noticed is at the Slice-O-Matic death scene
-    Honesty, Blue 2.
-    toward everybody except perhaps Kilrathi and Retrosby hacking Confed and Pirate databases.
-    When you are learning about Gestures, you will try to impressthe nearby village into believing in you.
+    You canjust blow past them.14.8 LYNN MURPHY 3Retros have blockaded New Detroit.
+    Itis usually equipped with torpedo launchers, making them quitedangerous.Only Bounty Hunters fly Demons.5.2.5 DralthiDralthi is the Kilrathi medium fighter that escorts Gothris.
+    >>Cyberia Complex Level 2<< RED LIGHT Red light
+    Food, Heal, Lightning, Strengthen Creature,Water and perhaps Heal Increase.
     
-    Hewants you to sacrifice his child.
-    ----------------------- - Make sure to talk to Lord British and accept the Quest of the Avatar  otherwise this will be a very short game!
-    R,F,F,R,F,F , and quickly get to the computer R
-    , you can start accepting justabout any mission.
+    you can shoot fast enough if you slow down,then full guns.
+    Nostealing, attacking innocent people
+    UNDERGROUND - Freight Tunnel This one is rough
+    ---------Yep, its more Singing Stone related fun.
     
-    ..The map seems to point to the frontiers out beyond Rygannon.
-    *-*Seems that a um
+    There's only one active switch
+    Pays 20K.Retros are ALL OVER the area, kill them all, and try to keep yourship intact.When you head back, a Pirate ship tell you that his "employer"wants to meet you at Drake, Capello system.
