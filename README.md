@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jul  6 16:48:01 EDT 2021
+## Wed Jul  7 16:48:01 EDT 2021
 
-      Ranks: Guilder, Silverhand
-    Click on the Gold Story Scroll to go through.
-    Then, well, because you're a goodsort of chap, it'll be nice to fill up their Village Store with food for them.By saving the people from a Black Plague II, you've just earned yourself theability to create Lightning when these villagers worship you.
-    you get what you want
+    The guard will then come walking towards you
+    L,F,F , and push the crate out of the way R
+    Food, Heal, Lightning, Strengthen Creature,Water and perhaps Heal Increase.
+    It's a basic logic diagram
     
-    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
-    ..Move A to 2Move B to 3Move A to 3Move C to 2Move A to 1Move B to 2Move A to 2Move D to 3 - D is in place.Move A to 3Move B to 1Move A to 1Move C to 3 - C is in place.Move A to 2Move B to 3 - B is in place.Move A to 3 - A is in place.Done that?
-    the lovely green valleys of Norway
-    down down 	L2: Changes to flightsim cursor mode up down
+    Bounty hunters fly Orion (transport/fighter), Centurion(fighter), or Demon (fighter) (see crafts)Bounty hunter pilots are confident rookies, pros or aces (seemorale and experience)Their initial attitude toward you is neutral.To make Bounty Hunters like you, you should:* not attack bounty hunters* not attack merchants (and thus have a bounty placed on yourhead)* not align yourself with Pirates, Retros, or Kilrathi2.4 MERCHANTSMerchants are the ones moving freight everywhere.
+    Decision time, although it's kind of minor
+    by pressing 'S' to show status, all the people with a 'S
+    Galaxy also has sideturrets.4.6.11 Tractor beamRequires turret to mount one, needed to salvage things.4.6.12 Jump driveRequired to travel to other star systems.
     
-    Ctrl + [number]at his Temple and at your worship site.
-    This oneis quite faraway, so there are three ways you can convert it to your side.1
-    The only thing that has to be on the map is the Maiden’s Hand
-    You can't restockthose missiles until a LOT later.14.17 TAYLA 4Run Brilliance from Tuck's in Sherwood to Basque in Pyrennes.Pays 40K.Just do the same thing
+     If both are beaten, you cause great effect
+    High-ranking Official from your church    THE WAYS  There are three ways
+    BOOM BOOM!
+    It may die as soon as its released, so go back to your Temple just incase.
     
-    that flit beneath the sand like fish
-    Click on the Gold Story Scroll to go through.
+    What does this mean, exactly?
+    and then move to the switches on the left
