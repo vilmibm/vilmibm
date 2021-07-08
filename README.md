@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jul  7 16:48:01 EDT 2021
+## Thu Jul  8 16:48:01 EDT 2021
 
-    The guard will then come walking towards you
-    L,F,F , and push the crate out of the way R
-    Food, Heal, Lightning, Strengthen Creature,Water and perhaps Heal Increase.
-    It's a basic logic diagram
+    Eventually you will reach a huge walking thing with big feet.
+    With aCenturion, you can beat back any pirates that gets in your way,and make a ton of money on this route.When you're ready, head for New Detroit, go into the bar, andlocate Ernesto Sandoval in the bar to start the plot missions.11.4 SOME NOTES ON SPACE COMBATCheck back to section
+    The group chooses another
+    Talk to the Seer to find out when you have mastered a certain virtue
     
-    Bounty hunters fly Orion (transport/fighter), Centurion(fighter), or Demon (fighter) (see crafts)Bounty hunter pilots are confident rookies, pros or aces (seemorale and experience)Their initial attitude toward you is neutral.To make Bounty Hunters like you, you should:* not attack bounty hunters* not attack merchants (and thus have a bounty placed on yourhead)* not align yourself with Pirates, Retros, or Kilrathi2.4 MERCHANTSMerchants are the ones moving freight everywhere.
-    Decision time, although it's kind of minor
-    by pressing 'S' to show status, all the people with a 'S
-    Galaxy also has sideturrets.4.6.11 Tractor beamRequires turret to mount one, needed to salvage things.4.6.12 Jump driveRequired to travel to other star systems.
+    If you have big enough engineyou can use afterburner continuously as long as you don't useany other energy, like firing guns
+    Your basic destructive tool in the game; these babies will allow youto cause substantial damage, when thrown, to practically all structures, apartfrom the Temple.
+    You should take this opportunityto train your Creature in lots of ways.
+    this shouldn't be too difficult
     
-     If both are beaten, you cause great effect
-    High-ranking Official from your church    THE WAYS  There are three ways
-    BOOM BOOM!
-    It may die as soon as its released, so go back to your Temple just incase.
+    owned as they were by ancestors
+    As you can see, they all have names.
+    If you want to kiss Gia
+    GK FC)---------- - Iolo, a bard, will join you here. - At the end of the hallway in the Inn is the Rune of Compassion. - Talk to cricket about the MANTRA to get the Mantra for Compassion: MU. - Give money to the beggar Sprite to increase your Compassion. - Shapero tells you that the Shrine of Compassion is East 2 Bridges. - Sebastian (injured man) tells you that Mondain's Skull is still around.c.
     
-    What does this mean, exactly?
-    and then move to the switches on the left
+    General Information III
+    through the bird cage, and her cousin through theknife in the study.Enjoy, it is a great game!I would like to hear any thoughts about the ending from others whohave seen it.'
