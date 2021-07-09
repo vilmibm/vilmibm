@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul  8 16:48:01 EDT 2021
+## Fri Jul  9 16:48:01 EDT 2021
 
-    Eventually you will reach a huge walking thing with big feet.
-    With aCenturion, you can beat back any pirates that gets in your way,and make a ton of money on this route.When you're ready, head for New Detroit, go into the bar, andlocate Ernesto Sandoval in the bar to start the plot missions.11.4 SOME NOTES ON SPACE COMBATCheck back to section
-    The group chooses another
-    Talk to the Seer to find out when you have mastered a certain virtue
+    Scanning it with the MRI and Bio-Scan shows something interesting
+    Go through the door R
+    I see the Freak Wave has been up to his old tricks.
+    land on Basra, get 5000 credits.When you get near Basra, the Kilrathi shows up!
     
-    If you have big enough engineyou can use afterburner continuously as long as you don't useany other energy, like firing guns
-    Your basic destructive tool in the game; these babies will allow youto cause substantial damage, when thrown, to practically all structures, apartfrom the Temple.
-    You should take this opportunityto train your Creature in lots of ways.
     this shouldn't be too difficult
+    you may only place it on the way it is associated with
+    (The format is: His/her name, his/her type, the town/castle he/she resides) Talfourd, Druid, Yew Flamis, Fire, Yew Guards, Guard, Yew Julio, Bard, Britain Mentar, Shepherd, Britain Silver John, Villager, Den Gate Guard, Guard, Empath Abbey Diane, Villager, Empath Abbey Sir Hrothgar, Fighter, Jhelom X, Fighter, Jhelom Estro, Druid, Lycaeum Katrina, Shepherd, Magincia Faultless, Ghost, Magincia Heywood, Ghost, Magincia Slim, Skeleton, Magincia Virtuebane, Devil, Magincia Patric, Shepherd, Moonglow White, Fighter, Skara Brae Nameless Prisoner, Beggar, Britannia Shawn, Shepherd, Britannia Guards, Guard, Britannia+=============================================================================+| vii.
+    Escort this final Drayman back to Oxford.
     
-    owned as they were by ancestors
-    As you can see, they all have names.
-    If you want to kiss Gia
-    GK FC)---------- - Iolo, a bard, will join you here. - At the end of the hallway in the Inn is the Rune of Compassion. - Talk to cricket about the MANTRA to get the Mantra for Compassion: MU. - Give money to the beggar Sprite to increase your Compassion. - Shapero tells you that the Shrine of Compassion is East 2 Bridges. - Sebastian (injured man) tells you that Mondain's Skull is still around.c.
+    ARCADE LEVEL 2: Destroy 720f the virus
+    In Win95 use ALT-ESC to minimize the window, then right click, and close after saving it with "Q" of course
+    UNSAFE DOOR Yes, it is
+    You'll automatically run forward--turn around and head back B
     
-    General Information III
-    through the bird cage, and her cousin through theknife in the study.Enjoy, it is a great game!I would like to hear any thoughts about the ending from others whohave seen it.'
+    You actually get to see thisone when the man is talking to you about this quest.8
+    which may only be used on your chosen way
