@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jul  9 16:48:01 EDT 2021
+## Sat Jul 10 16:48:01 EDT 2021
 
-    Scanning it with the MRI and Bio-Scan shows something interesting
-    Go through the door R
-    I see the Freak Wave has been up to his old tricks.
-    land on Basra, get 5000 credits.When you get near Basra, the Kilrathi shows up!
+    continue down until you find the next room F
+    a thousand strange confluences
+    You have a good ideawho this "employer" is
+    This compartment can fit 20 cargo units and isonly good for smuggling contraband.
     
-    this shouldn't be too difficult
-    you may only place it on the way it is associated with
-    (The format is: His/her name, his/her type, the town/castle he/she resides) Talfourd, Druid, Yew Flamis, Fire, Yew Guards, Guard, Yew Julio, Bard, Britain Mentar, Shepherd, Britain Silver John, Villager, Den Gate Guard, Guard, Empath Abbey Diane, Villager, Empath Abbey Sir Hrothgar, Fighter, Jhelom X, Fighter, Jhelom Estro, Druid, Lycaeum Katrina, Shepherd, Magincia Faultless, Ghost, Magincia Heywood, Ghost, Magincia Slim, Skeleton, Magincia Virtuebane, Devil, Magincia Patric, Shepherd, Moonglow White, Fighter, Skara Brae Nameless Prisoner, Beggar, Britannia Shawn, Shepherd, Britannia Guards, Guard, Britannia+=============================================================================+| vii.
-    Escort this final Drayman back to Oxford.
+    .Then just make it over to NC.When you return to Oakham, Tayla said she had no informationherself, but she had found someone who does.
+    If you haven't, choose between Murphy and Tayla.14.14 TAYLA 1Move her personal effects from Oakham (Pentonville) to Tuck's(Sherwood).
+    BE JP-------- - Julia, a tinker, will join you here.
+    Thereasonably good solution is just to sacrifice another child, and you'll winanyway.
     
-    ARCADE LEVEL 2: Destroy 720f the virus
-    In Win95 use ALT-ESC to minimize the window, then right click, and close after saving it with "Q" of course
-    UNSAFE DOOR Yes, it is
-    You'll automatically run forward--turn around and head back B
+      Sample names:  Known as Hungry-Girl in her youth
+      Your adult name is chosen to reflect your time as a child
+    , takehis ejected cargo (tractor it into your hold), and find a placeto sell the cargo.After a while, plenty of people come after you... Confeds,Militia, Bounty Hunters...
+    You find 3Dralthi at nav 1.
     
-    You actually get to see thisone when the man is talking to you about this quest.8
-    which may only be used on your chosen way
+    A vortex will soon open up in the village.
+    Not a lot, but it's uncensored
