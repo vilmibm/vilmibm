@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jul 10 16:48:01 EDT 2021
+## Sun Jul 11 16:48:01 EDT 2021
 
-    continue down until you find the next room F
-    a thousand strange confluences
-    You have a good ideawho this "employer" is
-    This compartment can fit 20 cargo units and isonly good for smuggling contraband.
+    If you don't win this battle using thatfiend of a Creature, the Tiger, then theres something wrong.
+    This Vortex will stay open until you gothrough.
+    ..you'll get nothing if everyone dies, though.
+    Continue down the hall R
     
-    .Then just make it over to NC.When you return to Oakham, Tayla said she had no informationherself, but she had found someone who does.
-    If you haven't, choose between Murphy and Tayla.14.14 TAYLA 1Move her personal effects from Oakham (Pentonville) to Tuck's(Sherwood).
-    BE JP-------- - Julia, a tinker, will join you here.
-    Thereasonably good solution is just to sacrifice another child, and you'll winanyway.
+    She communicates in the shine of gold
+      BANQUET WORM - Crimson grubs
+    You can select difficulty level 1 for both Arcade and Puzzle modes
+    Apparently Smythe found some info in the Oxford library.Objective
     
-      Sample names:  Known as Hungry-Girl in her youth
-      Your adult name is chosen to reflect your time as a child
-    , takehis ejected cargo (tractor it into your hold), and find a placeto sell the cargo.After a while, plenty of people come after you... Confeds,Militia, Bounty Hunters...
-    You find 3Dralthi at nav 1.
+    key.
+    F,F , and approach the plane F
+    you are simply known as boy or girl or child
+    and then exit L,F,F,F from the terminal
     
-    A vortex will soon open up in the village.
-    Not a lot, but it's uncensored
+    .. You may get something, orperhaps nothing at all.
+    Excellent for wiping out enemyvillages for your takeover.ABODE
