@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jul 13 16:48:01 EDT 2021
+## Wed Jul 14 16:48:01 EDT 2021
 
-    so try not to hit too many of them
-    Don'twaste any missiles as you will need them against the enemies inGamma.
-    I found it lacking in a lot of areas
-    far from the Maiden’s Hand
+    Check out the hologram on the desk F
+    Raise the totem in your village, and worshipperswill flock here to worship around the altar.
+    Then follow thejump to the next system
+    activate the middle one to start Charlie up to decontaminate the sealed area
     
-    8 galaxies in the original each withhundreds of different star systems, each system with differentgovernment and different commodity availability and prices.
-    The Aegis, The Brave  Guilder  When you cut a deal
-    Think of the drone as a huge Demonwith tremendous frontal firepower.
-    Once you have a good antidote
+    Quickly shoot him before he throws it R
+    He has a small area of influence around his person, so you can throw him into villages to get a quick burst of control within the village.Its hard, but its possible. =============================================================================9
+    GENIUS <<Password Puzzle>> Uh oh
+    She organizes the resistance, trying to breakthe blockade.Objective
     
-    Some families jealously guard old names
-      THUNDERGLASS - Found where lightning strikes sand
-    in general, those missions are easy and paydecent money.
-    Make sure you miss thehouses though, and by the time Khazar gives up on teaching you, you will havea fully-fireball-trained Creature. =============================================================================6i
+    Don't go to the fish part until later.
+    This includes, but isn't limited to, using trees.
+    Tough, you'restuck here for a little while.
+    Ifyou have a fast ship, just keep your shields up and afterburnerpast them.Tip
     
-    Try to avoid a fight if it's possible.
-    or see something truly remarkable
+    see morale and experience
+    Browse through them, and note the new janitor's key code
