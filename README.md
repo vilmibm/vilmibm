@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jul 14 16:48:01 EDT 2021
+## Thu Jul 15 16:48:01 EDT 2021
 
-    Check out the hologram on the desk F
-    Raise the totem in your village, and worshipperswill flock here to worship around the altar.
-    Then follow thejump to the next system
-    activate the middle one to start Charlie up to decontaminate the sealed area
+    Pirates, Kilrathis, andRetros (see factions)Merchants fly Drayman (transport), Galaxy (transport), Tarsus(scout/transport) (see crafts)Merchant pilots are usually timid, maybe confident rookie or pro(see morale and experience)Their initial attitude toward you is neutral.To make Merchants like you, you should:* not attack merchantsTechnically merchants won't really "like" you.
+    You land on Basra instead, and found LynnMurphy in the bar.
+    F,F , and approach the plane F
+    I knew my mum was wrong when she said greens were good forme.
     
-    Quickly shoot him before he throws it R
-    He has a small area of influence around his person, so you can throw him into villages to get a quick burst of control within the village.Its hard, but its possible. =============================================================================9
-    GENIUS <<Password Puzzle>> Uh oh
-    She organizes the resistance, trying to breakthe blockade.Objective
+    What we wantto do is to gather up the 8 runes, and learn the 8 mantras.
+    Won the fight?
+    mission computer,Mercenaries' Guild, Merchants' Guild, or the fixers in the bars.In general, the fixers pay best, then Merchants' Guild, thenMercenaries' Guild, then mission computer pays the least.
+    Its near where the drowning fishermen quest was, near a stone.9 Its on the side of a mountain, close to where you started.Got 5 sheep?
     
-    Don't go to the fish part until later.
-    This includes, but isn't limited to, using trees.
-    Tough, you'restuck here for a little while.
-    Ifyou have a fast ship, just keep your shields up and afterburnerpast them.Tip
+    You'll be using this a hell of a lot
+    F,F gets you to a ladder and a locked door
+    NewConstantinople, New Detroit, Oxford, and Perry Naval Base, for atotal of NINE different bases.Look at the list below and figure out what makes money... Andcreate your own "trade route".See section [7] on the other way to make money: take on missions.6.1 AGRICULTURAL BASEProduces wood, generic food, luxury food, grain, and so on.Buys contraband, plastics, home appliances, and so on.6.2 MINING BASEProduces iron, uranium, and other metalsBuys contraband, plastics, mining equipment, food dispenser, homeappliance, and so on.If you can find a good route between mining and refinery, you canmake a bit of money, but usually these routes go by piratesystems and such.6.3 PIRATE BASEProduces contraband (Brilliance, slaves, Ultimate, tobacco, andso on)Buys just about everything, but likes food dispensers andholographic equipmentIf you want to be a smuggler, you must find a pirate base you canget to, as it's your only access to contraband stuff.6.4 PLEASURE BASEDon't produce anythingBuys anything that makes life easier, including home appliances,robot servants, food, and esp.
+    and the remaining one must be placed on precision or discarded
     
-    see morale and experience
-    Browse through them, and note the new janitor's key code
+    What we wantto do is to gather up the 8 runes, and learn the 8 mantras.
+    MUWHAHAHAHA
