@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul 15 16:48:01 EDT 2021
+## Fri Jul 16 16:48:01 EDT 2021
 
-    Pirates, Kilrathis, andRetros (see factions)Merchants fly Drayman (transport), Galaxy (transport), Tarsus(scout/transport) (see crafts)Merchant pilots are usually timid, maybe confident rookie or pro(see morale and experience)Their initial attitude toward you is neutral.To make Merchants like you, you should:* not attack merchantsTechnically merchants won't really "like" you.
-    You land on Basra instead, and found LynnMurphy in the bar.
-    F,F , and approach the plane F
-    I knew my mum was wrong when she said greens were good forme.
+    F,F,F and leave B,F,R
+    Part Two, Dungeon Hopping |+=============================================================================+This won't walk you through the dungeons, but merely give you clues that youwill need to get all 8 stones, the 3 part key, and conquer the Sygian Abyss.For this part you should have all 8 people in your party
+      COMMERCIA, goddess of security
+    Getting it now?
     
-    What we wantto do is to gather up the 8 runes, and learn the 8 mantras.
-    Won the fight?
-    mission computer,Mercenaries' Guild, Merchants' Guild, or the fixers in the bars.In general, the fixers pay best, then Merchants' Guild, thenMercenaries' Guild, then mission computer pays the least.
-    Its near where the drowning fishermen quest was, near a stone.9 Its on the side of a mountain, close to where you started.Got 5 sheep?
+    Going left at the junction L
+    Go to thebay near your temple, and pick up fish from there.
+    Usually involves killing everyone.
+    you want to cut the connection to the detonator far right
     
-    You'll be using this a hell of a lot
-    F,F gets you to a ladder and a locked door
-    NewConstantinople, New Detroit, Oxford, and Perry Naval Base, for atotal of NINE different bases.Look at the list below and figure out what makes money... Andcreate your own "trade route".See section [7] on the other way to make money: take on missions.6.1 AGRICULTURAL BASEProduces wood, generic food, luxury food, grain, and so on.Buys contraband, plastics, home appliances, and so on.6.2 MINING BASEProduces iron, uranium, and other metalsBuys contraband, plastics, mining equipment, food dispenser, homeappliance, and so on.If you can find a good route between mining and refinery, you canmake a bit of money, but usually these routes go by piratesystems and such.6.3 PIRATE BASEProduces contraband (Brilliance, slaves, Ultimate, tobacco, andso on)Buys just about everything, but likes food dispensers andholographic equipmentIf you want to be a smuggler, you must find a pirate base you canget to, as it's your only access to contraband stuff.6.4 PLEASURE BASEDon't produce anythingBuys anything that makes life easier, including home appliances,robot servants, food, and esp.
-    and the remaining one must be placed on precision or discarded
+    No pay.It's a long flight to Valhalla, and big battle is ahead, so saveyour missiles.
+    ' in their status are sick.
+    To get into the cell, go up to the Ruler of the Castle, and talk to him.
+    You will recieve a pile of grain for your efforts.
     
-    What we wantto do is to gather up the 8 runes, and learn the 8 mantras.
-    MUWHAHAHAHA
+    If youturn on the cheats during the plot missions you will fail.12 Privateer Plot MissionsThe plot missions are always offered by fixers, and they pay VERYWELL compared to the other mission sources.TIP
+    SKEET SHOOT From the turret
