@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jul 16 16:48:01 EDT 2021
+## Sat Jul 17 16:48:01 EDT 2021
 
-    F,F,F and leave B,F,R
-    Part Two, Dungeon Hopping |+=============================================================================+This won't walk you through the dungeons, but merely give you clues that youwill need to get all 8 stones, the 3 part key, and conquer the Sygian Abyss.For this part you should have all 8 people in your party
-      COMMERCIA, goddess of security
-    Getting it now?
+    NC CE--------- - Geoffrey, a fighter, will join you here.
+    They offerthe really challenging missions, and they pay quite well.
+    I must admit.
+    Nasty virus, and it's spreading through the complex
     
-    Going left at the junction L
-    Go to thebay near your temple, and pick up fish from there.
-    Usually involves killing everyone.
-    you want to cut the connection to the detonator far right
+    Tons of targets, and tons of fuel trucks
+    You have to throw the ball to her 6 times.
+    Timing is crucial here
+    ..Move A to 2Move B to 3Move A to 3Move C to 2Move A to 1Move B to 2Move A to 2Move D to 3 - D is in place.Move A to 3Move B to 1Move A to 1Move C to 3 - C is in place.Move A to 2Move B to 3 - B is in place.Move A to 3 - A is in place.Done that?
     
-    No pay.It's a long flight to Valhalla, and big battle is ahead, so saveyour missiles.
-    ' in their status are sick.
-    To get into the cell, go up to the Ruler of the Castle, and talk to him.
-    You will recieve a pile of grain for your efforts.
+    Raise the totem in your village, and worshipperswill flock here to worship around the altar.
+    Think of the drone as a huge Demonwith tremendous frontal firepower.
+    >>Cyberia Complex Level 2<< RED LIGHT Red light
+    Go find him near where you fought your battle with Guide.GOOD SOLUTION
     
-    If youturn on the cheats during the plot missions you will fail.12 Privateer Plot MissionsThe plot missions are always offered by fixers, and they pay VERYWELL compared to the other mission sources.TIP
-    SKEET SHOOT From the turret
+      THE OTHERS  When you make a character
+    Nav 4 has 3 Gothris, then Kamekhand Gothri.
