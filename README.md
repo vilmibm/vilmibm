@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jul 19 16:48:01 EDT 2021
+## Tue Jul 20 16:48:01 EDT 2021
 
-    You will get 2friendly Talons as wingmen.
-    or cast Blink until it loads again.
-    He was last seen on Palan.So to Palan you go
-    For example, when the first moon first turns to the New Moon, a moongate will open at Moonglow and itsdestination will be Moonglow, when the 2nd moon changes phase it will take youto Britain, another 2nd moon phase change and it will take you to Jhelom.
+    Walk over to the first computer terminal F
+    X and run to the elevator control F
+    If you didn't know about the "twilight zone" glitch,you really ought to check it out, even if it means running Ultima 4 on a C64emulator.
+    often with a descriptor attached so quick-girl or tall-child
     
-    She will start to come after you wait till she is halfway across the screen and throw the ball.
-    PRICE
-    There is another way out of the dark room
-    F,F,F through Security Door Turn left
-    
+    When you jump into Nexus system, you'll see some moreof those Unknowns, and when you get to nav 4, you'll face A LOTof Retro Talons.
     On the fifth pass, you will see a blue target on the carrier
-    and is standard practice they gave her the geographical tag Quill - she’s welcome wherever Quill is worshipped
-    Its in amongstsome trees near the end of that path.7
-     The same applies to you with regards to your opponent
+    Throwing the skull of Mondain into the Abyss -5
+    F to stand up, D to duck
     
-    When you’re safe again
-    Then follow thejump to the next system
+    Now all youneed to do is to start expanding your influence and capture villages.
+    Other things to do
+    so wait until he fires a stray shot and blast him R to move out
+    Voila
+    
+    L,F,R,F,L,F and check out the V-Mail
+    Tell the group about it - one thing that marks it out from every other settlement on the sea
