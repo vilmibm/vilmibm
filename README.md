@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jul 20 16:48:01 EDT 2021
+## Wed Jul 21 16:48:01 EDT 2021
 
-    Walk over to the first computer terminal F
-    X and run to the elevator control F
-    If you didn't know about the "twilight zone" glitch,you really ought to check it out, even if it means running Ultima 4 on a C64emulator.
-    often with a descriptor attached so quick-girl or tall-child
+    Balled up and placed under the top lip
+    ---- -------- ------------1.
+    To be used once only.
+    The man's lost his sheep, and now you've gotto find them.
     
-    When you jump into Nexus system, you'll see some moreof those Unknowns, and when you get to nav 4, you'll face A LOTof Retro Talons.
-    On the fifth pass, you will see a blue target on the carrier
-    Throwing the skull of Mondain into the Abyss -5
-    F to stand up, D to duck
+    Enlarge Creature Miracle Dispenser.
+    a series of cruise missiles will be fired at you from the middle of the screen
+    Don't forget that farmer.
+    See [7] for mission sources
     
-    Now all youneed to do is to start expanding your influence and capture villages.
-    Other things to do
-    so wait until he fires a stray shot and blast him R to move out
-    Voila
+    In the dark room, head towards the door B
+    Notice that shitty grin on her face and one arm behind her back.
+    what your community think of you and what you’ll be
+    Just set nav to thejump point and set autopilot
     
-    L,F,R,F,L,F and check out the V-Mail
-    Tell the group about it - one thing that marks it out from every other settlement on the sea
+    EM.
+      THE GODDESSES  The goddesses are real
