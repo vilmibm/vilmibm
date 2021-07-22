@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jul 21 16:48:01 EDT 2021
+## Thu Jul 22 16:48:01 EDT 2021
 
-    Balled up and placed under the top lip
-    ---- -------- ------------1.
-    To be used once only.
-    The man's lost his sheep, and now you've gotto find them.
+    The drone is actually Steltek and the last remainingSteltek weapon.
+    boththese things increase the size of your Influence.
+    Once its fully infused, yoursymbol will appear above it.
+    Its useful, believe me.EVIL SOLUTION
     
-    Enlarge Creature Miracle Dispenser.
-    a series of cruise missiles will be fired at you from the middle of the screen
-    Don't forget that farmer.
-    See [7] for mission sources
+    Militia have somehow gotten past it
+    and hull by the blue diagonal lines
+    Stolen villagers.
+    Toggle the vibration sensor second from the right
     
-    In the dark room, head towards the door B
-    Notice that shitty grin on her face and one arm behind her back.
-    what your community think of you and what you’ll be
-    Just set nav to thejump point and set autopilot
+    Tons of targets, and tons of fuel trucks
+    Walker Titles: of the Horizon
+    PUZZLE LEVEL 2: Hit the following switches
+    or cast Blink until it loads again.
     
-    EM.
-      THE GODDESSES  The goddesses are real
+    The Demons areafter you, not the Drayman, so you can be thankful.12.13 MASTERSON 4Now comes the series finale
+    fourth, 		fifth, and sixth switches
