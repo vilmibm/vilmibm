@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul 22 16:48:01 EDT 2021
+## Fri Jul 23 16:48:01 EDT 2021
 
-    The drone is actually Steltek and the last remainingSteltek weapon.
-    boththese things increase the size of your Influence.
-    Once its fully infused, yoursymbol will appear above it.
-    Its useful, believe me.EVIL SOLUTION
+    ..The map seems to point to the frontiers out beyond Rygannon.
+    Masterson needs this Draymanthrough the pirates really bad.Objective
+    Probably due to that artifact now in your possession.She'll get you some info on it if you do some jobs for her
+    You will encounter a lot of otherships, form friendly to hostile.
     
-    Militia have somehow gotten past it
-    and hull by the blue diagonal lines
-    Stolen villagers.
-    Toggle the vibration sensor second from the right
+    Wait until he is on the other side
+    Your Creature lives here, in his penin front of the entrance.
+    * Nine - Children.
+    but levels 2 or 3 don't make that big of a difference
     
-    Tons of targets, and tons of fuel trucks
-    Walker Titles: of the Horizon
-    PUZZLE LEVEL 2: Hit the following switches
-    or cast Blink until it loads again.
+    The possibilities with chemical warfare are boundless!
+    .. And youneed to access the library.
+    I see the Freak Wave has been up to his old tricks.
+    Your reward for this evil-doing is exactly the same
     
-    The Demons areafter you, not the Drayman, so you can be thankful.12.13 MASTERSON 4Now comes the series finale
-    fourth, 		fifth, and sixth switches
+    b'Weird Dreams Solve THE COTTON CANDY MACHINE 1.
+    She communicates in the shine of gold
