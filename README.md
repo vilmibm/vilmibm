@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jul 24 16:48:01 EDT 2021
+## Sun Jul 25 16:48:02 EDT 2021
 
-    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
-    You will be paid 10000 credits.When you get there, Seelig pro?
-    But this one isa deucy.Objective
-    Nav 4 has 3 Gothris, then Kamekhand Gothri.
+    !Don't accept any combat mission (yet).
+    so it's probably best just to skip it
+    Run back to the right and hit the bee so that it flies off the screen to the right.
+    Swat the brain cells with the fish when the eye is open.
     
-    Think of the drone as a huge Demonwith tremendous frontal firepower.
-    Escort Vulcan's Forge (Drayman) to Oxford.
-    They pay less than the Merc Guild, but they are alsoeasier.Offered
-    I am not sure which exact square you need to be on, but you can just peer at  a gem to make sure you are far enough north so that you wouldn't be blinking onto water
+    You can load any game save point
+    F,F gets you to a ladder and a locked door
+    Confed have noticed the green thing.
+    Tarsus classnear the front-line with the Kilrathi.
     
-    Once per scene, when a nearby ally is subject to great effect
-    Your Creature lives here, in his penin front of the entrance.
-    You land on Basra instead, and found LynnMurphy in the bar.
-    BOOM.
+    He will also setpeople to construct a Worship Site and Workshop in your village, and teach youhow they work.
+    Go visit him and bring the Creature once again.
+    Many  of the treasure chests in this weird place
+    you're a sitting duck until they recharge again
     
-    Well, here we go from the end of the hall
-    shifting tattoos, exotic diseases
+    --------- Balron 16 Bat 4 exp Cyclops 9 Daemon 8 Dragon 15 Ettin 8 Gazer 16 Ghost 6 Gremlin 4 Headless 5 Hydra 14 Insects 4 Lava Lizard 7 Lich 13 Mimic 13 Nixie 5 Orc 6 Phantom 4 Phyton 4 Rat 4 Reaper 16 Rogue 6 Seahorse 7 Serpent 9 Skeleton 4 Slime 4 Spider 5 Squid 9 Troll 7 Wisp 5 Wizard 12 Zorn 16 Non-Monster Creatures that normally you don't want to attack: ------------------------------------------------------------- Bard 9 Beggar 13 Bull 11 Child 10 Druid 10 Fighter 7 Guard 13 Horse 9 Jester 9 Mage 8 Merchant 9 Paladin 4 Ranger 3 Shepherd 9 Tinker 9 Villager 13+=============================================================================+| C. Upgrades |+=============================================================================+Note: These are all non-Origin upgrades, so use at your own risk!Graphics Update:---------------- There is a slight improvement to Ultima 4 that you can download, a completely new graphics tileset!
+    I don't think it's in the manual
