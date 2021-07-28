@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jul 27 16:48:01 EDT 2021
+## Wed Jul 28 16:48:01 EDT 2021
 
-      BANQUET WORM - Crimson grubs
-    From
-    write down how you claw yourself back from the brink
-    (See the Simple Walkthrough)Bring a piece of your Creatures
+    Or let them live, and use the food to infectLethys' villages.
+    with help from the original PC Cyberia walkthrough author unknown
+    When you meet a strange culture for the first time
+    For example, when the first moon first turns to the New Moon, a moongate will open at Moonglow and itsdestination will be Moonglow, when the 2nd moon changes phase it will take youto Britain, another 2nd moon phase change and it will take you to Jhelom.
     
-    First Quarter Jhelom Skara Brae Magincia Moonglow4.
-    After you are subject to effect in a scene
-    Take the document back toMonte at New Detroit.SIDENOTE
-    Once per scene, begin performing
+    That's not something you usually see in games of this type
+    but only if you've got a lot of remaining ammo to hit it with
+    so be sure and take it out to continue
+    perform an MRI scan to view the elevator pumps
     
-    At nav 5, you found your target, takehim out.
-    Trinsic
-    .. Like encounter ancient civilizations...You can choose to be a merchant, a bounty hunter, a smuggler, oreven a pirate.1.3 OTHER WING COMMANDER GAMESDon't forget Wing Commander (two special mission packs), WingCommander 2 (two special operations packs), Wing Commander III,Wing Commander IV, Wing Commander Prophecy (and Secret Ops), WingCommander: Armada, and Wing Commander Academy.1.4 AND AFTER THIS.There is a semi-sequel called Privateer II: The Darkening.1.5 OTHER RELATED GAMESIf you like this kind of flexibility, check out the followinggames:X: Beyond the Frontier (Southpeak Interactive) and its expansionpack, called X-Tension.Tachyon: The Fringe (Novalogic)Hardwar (Interplay)Freelancer (Microsoft, coming soon)1.6 MODERN MACHINE COMPATIBILITYWC:P is a DOS-era game, and thus it has severe problems workingon modern Windows machines.However, http://www.angelfire.com/yt/privater/ seems to havefound some ways to get WC:P to run on 95/98/ME.2 Introducing the factions...There are SEVEN different major factions in the Gemini Sector.You can choose to align with most of them.To get a particular side to HATE you, just do the opposite ofwhatever you need to do to make that side like you.2.1 CONFEDERATIONYou are in Confed territory, so in general, you should be nice toConfed forces.
-    This is just the piano again, except it's faster and harder. THE FISH TANK 1.
+    NOT FRIENDS No, they're not
+    .. there's acatch, right?
+    Use the soccer ball to eat a path through the sand. THE MIRROR ROOM 1.
+    ..) "join" - asks the person to join your party "Bye" - Ends the conversationIncreasing Humility: (from Stephanus Rudiyanto Natari)-------------------- Humility is one of the hardest virtues to increase, because you need to talk to certain people.
     
-    all the while being attacked by hoverfighters
-    +D8 Security when you are threatened with physical harm by evildoers Unstoppable
+    Fire a shot at the sitting man to get his attention R
+    Never before have I hated a character in a video game more than this little woman with the ball.
