@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul 29 16:48:01 EDT 2021
+## Fri Jul 30 16:48:01 EDT 2021
 
-    Get ready, THEN enter the first door on your right
-    re-arm your weapon, and walk into the warehouse F
-    "The amount of "energy" that you have stored at your Worship Site.
-    Gothris are all aces, and Dralthis are all pros.You'll also see a lot of random Pirates and maybe Kilrathis onthe way to Gamma.
+    General Information What's with the difficulty levels
+      Ranks: Corpus, Hollow
+    try not to kill any Confed or Militia while smuggling.
+    Do what comes naturalundercover, and you'll get your clue about where Jones is.Take off, and follow the clue.
     
-    This does take a hunk out of your energy
-    Grab one of the sticks and then attack the rose bush.
-    you don't have to worry about energy
-    Lions can be found nearby, and are also worth twoslaves, and the final animal, the turtle is found near your Temple, on someislands, but are only worth one slave.
+    Nice game, but why is everything so dark
+    and enter the complex F
+    >>Cyberia Complex Level 2<< RED LIGHT Red light
+    ducking R to cover, standing L and R to aim
     
-     If both are beaten, you cause great effect
-    On the fourth time this happens
-    You can find thisStory Scroll on the actual beach of the bay, after you recieve your Creature.GOOD SOLUTION
-    Select one of the three antidotes
+    Again, 10000credits and access to library really, after this mission
+    Curiously smooth, irregularly-shaped glass
+    so get up close to it to look around L
+    * Two - Just Where Was This Freak Wave?
     
-    Inc, distributed by Interplay Productions
-    so follow Gia F, F to the guns
+    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
+    F takes you further into the warehouse
