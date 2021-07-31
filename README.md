@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jul 30 16:48:01 EDT 2021
+## Sat Jul 31 16:48:01 EDT 2021
 
-    General Information What's with the difficulty levels
-      Ranks: Corpus, Hollow
-    try not to kill any Confed or Militia while smuggling.
-    Do what comes naturalundercover, and you'll get your clue about where Jones is.Take off, and follow the clue.
+    Escort Hunter Toth (Drayman) to Oxford.
+    You mayget by with a Tarsus in a really quiet sector.3.4 PIRATEBeing a pirate is simple
+    If you have big enough engineyou can use afterburner continuously as long as you don't useany other energy, like firing guns
+    Spirituality, White 8.
     
-    Nice game, but why is everything so dark
-    and enter the complex F
-    >>Cyberia Complex Level 2<< RED LIGHT Red light
-    ducking R to cover, standing L and R to aim
+    The Noble, The Urbane   Celebrant When you do your best to make people happy
+    (ie.the Shields and Storm)"Just what the hell is Eden?"Yeah.
+    Rinse and repeatfor the other drowning villagers.
+    They wantMonkhouse somehow
     
-    Again, 10000credits and access to library really, after this mission
-    Curiously smooth, irregularly-shaped glass
-    so get up close to it to look around L
-    * Two - Just Where Was This Freak Wave?
+    -------------- - Lord Robert will tell you a word: AMOk.
+    and refire delay is extreme.
+    Or feed them all to the Sheep Creature yougain.Behind the second (Aztec) village, near the coast, is a small hut in front ofa ring of marks in the ground.
+    What does this do?
     
-    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
-    F takes you further into the warehouse
+    EM.
+    8.2 ESCORT MISSIONMeet a ship jumping in from one nav point, escort it to anothernav point (probably base)Some of these ships (usually Drayman) can be quite fragile... Becareful!You can only get escort missions from fixers.
