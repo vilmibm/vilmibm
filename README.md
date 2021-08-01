@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jul 31 16:48:01 EDT 2021
+## Sun Aug  1 16:48:01 EDT 2021
 
-    Escort Hunter Toth (Drayman) to Oxford.
-    You mayget by with a Tarsus in a really quiet sector.3.4 PIRATEBeing a pirate is simple
-    If you have big enough engineyou can use afterburner continuously as long as you don't useany other energy, like firing guns
-    Spirituality, White 8.
+    When you come under attack from madness
+    Khazar is allied with you, so you areable to interact with the environment within his influence.First of all, Khazar will place Scaffolds down to build your new village andTemple.
+    See [7] formission sources
+    re-arm your weapon, and walk into the warehouse F
     
-    The Noble, The Urbane   Celebrant When you do your best to make people happy
-    (ie.the Shields and Storm)"Just what the hell is Eden?"Yeah.
-    Rinse and repeatfor the other drowning villagers.
-    They wantMonkhouse somehow
+     If both are beaten, you cause great effect
+    Some data pirates are hacking Oxford's mainframe.
+    R,F,F,R,F,F , and quickly get to the computer R
+    Switch to tractor beam, aim at the cargo, andhit the trigger.
     
-    -------------- - Lord Robert will tell you a word: AMOk.
-    and refire delay is extreme.
-    Or feed them all to the Sheep Creature yougain.Behind the second (Aztec) village, near the coast, is a small hut in front ofa ring of marks in the ground.
-    What does this do?
+    Seems that the peopleof the village are becoming sick, you'll need to help them.GOOD SOLUTION
+    The Aegis, The Brave  Guilder  When you cut a deal
+    Not a lot, but it's uncensored
+    They will kill ANY humans they find.Kilrathi fly Dralthi
     
-    EM.
-    8.2 ESCORT MISSIONMeet a ship jumping in from one nav point, escort it to anothernav point (probably base)Some of these ships (usually Drayman) can be quite fragile... Becareful!You can only get escort missions from fixers.
+    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
+    In the dark room, head towards the door B
