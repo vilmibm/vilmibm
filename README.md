@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Aug  1 16:48:01 EDT 2021
+## Mon Aug  2 16:48:01 EDT 2021
 
-    When you come under attack from madness
-    Khazar is allied with you, so you areable to interact with the environment within his influence.First of all, Khazar will place Scaffolds down to build your new village andTemple.
-    See [7] formission sources
-    re-arm your weapon, and walk into the warehouse F
+    , turn ship around so your rear turret isfacing the cargo.
+    Tayla informed you that Sandoval isdead
+    Never before have I hated a character in a video game more than this little woman with the ball.
+    There's only one active switch
     
-     If both are beaten, you cause great effect
-    Some data pirates are hacking Oxford's mainframe.
-    R,F,F,R,F,F , and quickly get to the computer R
-    Switch to tractor beam, aim at the cargo, andhit the trigger.
+    If you continue running down the hall
+    Note
+    The building of Creche encourages villagers tohave more kids as well, which is always good.WORKSHOP
+    ------------The perfectly good solution is to sacrifice other things that will amountup to the man's child.
     
-    Seems that the peopleof the village are becoming sick, you'll need to help them.GOOD SOLUTION
-    The Aegis, The Brave  Guilder  When you cut a deal
-    Not a lot, but it's uncensored
-    They will kill ANY humans they find.Kilrathi fly Dralthi
+    A guy with a grenade
+    Walkthrough with Passwords IV
+    Yes, dood burns.
+    You will recieve a pile of grain for your efforts.
     
-    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
-    In the dark room, head towards the door B
+    He has your Steltek gun.
+    Nice game, but why is everything so dark
