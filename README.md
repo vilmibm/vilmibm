@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Aug  2 16:48:01 EDT 2021
+## Tue Aug  3 16:48:01 EDT 2021
 
-    , turn ship around so your rear turret isfacing the cargo.
-    Tayla informed you that Sandoval isdead
-    Never before have I hated a character in a video game more than this little woman with the ball.
-    There's only one active switch
+    After two"doses" of food, he'll fall asleep.
+    BOOM BOOM!
+    It's easy to take out
+    In return, he'll "reset" your reputation to"neutral"
     
-    If you continue running down the hall
-    Note
-    The building of Creche encourages villagers tohave more kids as well, which is always good.WORKSHOP
-    ------------The perfectly good solution is to sacrifice other things that will amountup to the man's child.
+    F takes you further into the warehouse
+    and when you hit one move to the right one and attack again.
+    It's not entirely linear- there are two decision points where you can take two entirely different paths through the game
+    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
     
-    A guy with a grenade
-    Walkthrough with Passwords IV
-    Yes, dood burns.
-    You will recieve a pile of grain for your efforts.
+    Too early
+    not thatwell though.
     
-    He has your Steltek gun.
-    Nice game, but why is everything so dark
+    Don't forget that mother as well.
+    
+    When you talk to someone else on glimmer
+    ARCADE LEVEL 2: Destroy 720f the virus
