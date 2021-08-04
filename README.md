@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Aug  3 16:48:01 EDT 2021
+## Wed Aug  4 16:48:01 EDT 2021
 
-    After two"doses" of food, he'll fall asleep.
-    BOOM BOOM!
-    It's easy to take out
-    In return, he'll "reset" your reputation to"neutral"
+    Bend down to catch the ball.
+    5 Max shields: 5A fully upgraded ship would have* level 5 shields and level 5 engines* tungsten armor* max ECM available* 1 missile launcher with IR or FF missiles* high-level scanner* repair droid* cargo expansion* all quadrant maps* rear turret* tractor beam in turret* GOOD energy guns (tachyon cannons would be good)* jump drive (of course!
+    that emerge from spoiled harvests
+    and from the sea by magnetic mines green dots
     
-    F takes you further into the warehouse
-    and when you hit one move to the right one and attack again.
-    It's not entirely linear- there are two decision points where you can take two entirely different paths through the game
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
+      Ranks: Celebrant, Dervish
+      Ranks: Guilder, Silverhand
+    Masterson needs this Draymanthrough the pirates really bad.Objective
+    Nav 4 has 3 Gothris, then Kamekhand Gothri.
     
-    Too early
-    not thatwell though.
+    When you have 4 to 5 pieces on you jump up to grab the stick and exit out. THE AMUSEMENT PARK 1.
+    ..When you return, visit the Admiral in his office at Perry NavalBase.14.24 TERRELL 1 OR TERRELL 2 (DEPENDING ON HOW YOU COUNT)Admiral Terrell needs privateers to search the various systemsfor signs of Modecai Jones.
+    Crescent Waxing Britain Yew Minoc Trinsic3.
+    |+=============================================================================++=============================================================================+| A. Moongates |+=============================================================================+There are 8 locations of moongates, one for each town of virtue in the game.Based on the phase of the first moon, is when a moongate will open, and the 2ndmoon's phase tells you where it will take you.
     
-    Don't forget that mother as well.
-    
-    When you talk to someone else on glimmer
-    ARCADE LEVEL 2: Destroy 720f the virus
+    You caneven mine asteroids with a mining laser.
+    First possible Creature fight of the game!
