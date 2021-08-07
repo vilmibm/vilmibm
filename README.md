@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Aug  6 16:48:01 EDT 2021
+## Sat Aug  7 16:48:01 EDT 2021
 
-    Trinsic
-    and may be freely distributed in whole or part as long as proper credit is given to the author
-    thats possible in the game, do it tothem!
-    On the other hand, to make REALLYsignificant money in smuggling you need to move LARGE amounts ofcontraband.Tip
-    
-    Towardsyour village, of course!
-    It's time for revenge-- you're going after Devlin
-    Simpleenough, right?
-    This isgreat for smuggling, esp.
-    
-    inside theCastor system.
-    You'll need to get rid of this poisoned food, so pick up ALL the food inthe Village Store, every last grain, and drop it off somewhere else, or, y'know, dump it in the ocean somewhere.
-    Its built almost into the side of ahill, but the giant stones should tip you off to its location.GOOD SOLUTION
     He will go upthe mountain, and tell you to come too.
+    then you will defeat Nemesis, Guide's old God.
+    as all the passwords are in place 		for you
+    You'll find this Silver Scrollnear the middle village on the island.
     
-    When you cause great effect on an evildoer
-    Bend down to catch the ball.
+    A structure vital to all villages.
+    The manual does a good job of introducing it
+    You can find them just about everywhere, but esp.around Perry Naval Base.Confed hates Pirates, Kilrathis, and Retros see factions
+    and given that street name as his geographical tag
+    
+    Pays 10KWhen you launch, you'll likely see Retros closing in thetransport.
+    This is best done alone no partymembers slowing you down, you'll need them later, but not now
+    Walkthrough with Passwords >>The Rig<< RIG DOCK Once you have arrived at The Rig
+    Can anyone help me outhere?
+    
+    Sacrificing these evil beings is OK in anyone's books.
+    F and take the first door F
