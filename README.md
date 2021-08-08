@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Aug  7 16:48:01 EDT 2021
+## Sun Aug  8 16:48:02 EDT 2021
 
-    He will go upthe mountain, and tell you to come too.
-    then you will defeat Nemesis, Guide's old God.
-    as all the passwords are in place 		for you
-    You'll find this Silver Scrollnear the middle village on the island.
+    +D10 security when money is involved
+    the detonators will explode in six seconds
+    In Out ---------------- -------------- --------- Off Off Off Off Off Off Off On Off On Off Off On On On Off On Off Off On Off On On On On On On On PUZZLE LEVEL 1
+      THE UPSEARCHING  Strange fruits and herbs grow from the sands
     
-    A structure vital to all villages.
-    The manual does a good job of introducing it
-    You can find them just about everywhere, but esp.around Perry Naval Base.Confed hates Pirates, Kilrathis, and Retros see factions
-    and given that street name as his geographical tag
+    Try not to kill any Militia orConfed ships while you're at it.
+    Inc, distributed by Interplay Productions
+    0.5 sec Energy: 12 GJ Damage: 6.6 cmae Price: 10000013.4 OTHER CHANGESRetros are noticeably nastier.You'll encounter some new ships.14 Righteous Fire Plot Missions Righteous Fire starts quite simple...
+    ------------Coming Soon.
     
-    Pays 10KWhen you launch, you'll likely see Retros closing in thetransport.
-    This is best done alone no partymembers slowing you down, you'll need them later, but not now
-    Walkthrough with Passwords >>The Rig<< RIG DOCK Once you have arrived at The Rig
-    Can anyone help me outhere?
+    so it's probably best just to skip it
+    Since you have no Creature, you're gonna have towait for your influence to grow before you can start to convert the firstvillage.
+    Costs 30000In Righteous Fire, you get access to "Advanced Repair Droid",which costs twice as much and repairs 50 0.000000aster.4.6.8 Cargo expansionMakes your cargo bay slightly larger.
+    F,F,F,F Head to the door at the end and check out the sign F
     
-    Sacrificing these evil beings is OK in anyone's books.
-    F and take the first door F
+    ..Tayla was in the bar instead.
+    The possibilities with chemical warfare are boundless!
