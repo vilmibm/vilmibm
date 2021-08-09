@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Aug  8 16:48:02 EDT 2021
+## Mon Aug  9 16:48:01 EDT 2021
 
-    +D10 security when money is involved
-    the detonators will explode in six seconds
-    In Out ---------------- -------------- --------- Off Off Off Off Off Off Off On Off On Off Off On On On Off On Off Off On Off On On On On On On On PUZZLE LEVEL 1
-      THE UPSEARCHING  Strange fruits and herbs grow from the sands
+    Let us analyze themarkets, and see what kind of stuff is available to buy low andsell high.There are FIVE kinds of bases
+    fighter), Gothri (heavy fighter/bomber),and Kamekh (corvette) (see crafts)Kilrathi pilots are usually confident or fanatical pros or aces.Gothri are usually piloted by aces.
+    *
+    It doesn't work all the time for me, but that's the ONLY one that works for me. 2.
     
-    Try not to kill any Militia orConfed ships while you're at it.
-    Inc, distributed by Interplay Productions
-    0.5 sec Energy: 12 GJ Damage: 6.6 cmae Price: 10000013.4 OTHER CHANGESRetros are noticeably nastier.You'll encounter some new ships.14 Righteous Fire Plot Missions Righteous Fire starts quite simple...
-    ------------Coming Soon.
+    Check out the hologram on the desk F
+    so it's not that big of a deal
+    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
+    Sure there are battles along the way, but thetrue test of your courage is whether you can follow the Virtues, and eventuallybrave the foul Stygian Abyss and view the Codex of Ultimate Wisdom.In the game you have to follow the Virtues.
     
-    so it's probably best just to skip it
-    Since you have no Creature, you're gonna have towait for your influence to grow before you can start to convert the firstvillage.
-    Costs 30000In Righteous Fire, you get access to "Advanced Repair Droid",which costs twice as much and repairs 50 0.000000aster.4.6.8 Cargo expansionMakes your cargo bay slightly larger.
-    F,F,F,F Head to the door at the end and check out the sign F
+    8 galaxies in the original each withhundreds of different star systems, each system with differentgovernment and different commodity availability and prices.
+    Your objective is totravel the known universe
+    Just kill them.14.3 MASTERSON 3Transport "books" to Burton, in Junction system.
+    To be used once only.
     
-    ..Tayla was in the bar instead.
-    The possibilities with chemical warfare are boundless!
+    ..
+    Examine the patient status
