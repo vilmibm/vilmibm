@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Aug  9 16:48:01 EDT 2021
+## Tue Aug 10 16:48:01 EDT 2021
 
-    Let us analyze themarkets, and see what kind of stuff is available to buy low andsell high.There are FIVE kinds of bases
-    fighter), Gothri (heavy fighter/bomber),and Kamekh (corvette) (see crafts)Kilrathi pilots are usually confident or fanatical pros or aces.Gothri are usually piloted by aces.
-    *
-    It doesn't work all the time for me, but that's the ONLY one that works for me. 2.
+    They can be dropped in your Village Store for extra food.Always a good idea to stock up while you have the chance.
+    Tons of targets, and tons of fuel trucks
+    Remember to turn it off when you get there.
+    Keep hitting the walking dicks and going right. This part of the game is extremely difficult and requires the most amount of timing.
     
-    Check out the hologram on the desk F
-    so it's not that big of a deal
-    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
-    Sure there are battles along the way, but thetrue test of your courage is whether you can follow the Virtues, and eventuallybrave the foul Stygian Abyss and view the Codex of Ultimate Wisdom.In the game you have to follow the Virtues.
+    enter the door F , and hit the deck L
+    Once per session, +D12 security when you find sanctuary with an old friend
+    F,F,F,F , and walk to the next room F
+    Browse through them, and note the new janitor's key code
     
-    8 galaxies in the original each withhundreds of different star systems, each system with differentgovernment and different commodity availability and prices.
-    Your objective is totravel the known universe
-    Just kill them.14.3 MASTERSON 3Transport "books" to Burton, in Junction system.
-    To be used once only.
+    shields are shown by the green vertical bar
+    Use any questions you wish.You can get attack missions through Mercenaries' Guild andMission Computer.
+    Your gun ammo is the horizontal red bar
+    Once you have a good antidote
     
-    ..
-    Examine the patient status
+    Look for the moon, andfly toward it
+    Evil factor is very, VERY high.
