@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Aug 11 16:48:01 EDT 2021
+## Thu Aug 12 16:48:01 EDT 2021
 
-    ITTS.
+    However, here's a listof the more important items4.6.1 ShieldsShields vary from level 1 (worst) to level 5 (best).
+    Then makeit back to Oakham yes, again
+    ..
+    Well, there's a lot of plot for this game
     
-    Be warned, sacrificing people will make you evil, and also,people worshipping at your site need food and the occassional rest.
-    F , and wait for the guard to notice
+    When you track or chase down an adversary
+    You'll be standing in front of a security door R
+    If you talk to the bartenders, they'll tell you to head for NewDetroit when you're ready.
+    Stilettos are FAST and you may have problemsdodging them.
     
-    Fed up of waiting for worshippers to provide you with enough Mana?
-    (Thank you,Geography class.)
-    ..12.14 LYNN MURPHY 1When you get there, you find Palan is currently under a blockadeby bounty hunters.
-    Puzzle level, well, it's up to you
+    I don't think it's in the manual
+    Browse through them, and note the new janitor's key code
+    Never before have I hated a character in a video game more than this little woman with the ball.
+    not thatwell though.
     
-    People live here.
-    Nice game, but why is everything so dark
-    if you can get to them are "infinite" -- i.e., you can keep opening them over and over again.
-    You'll only get the Miracle Dispenser if youcomplete the scale however.
-    
-    F,F,F,F Head to the door at the end and check out the sign F
-    This does take a hunk out of your energy
+    good interface, but it is kind of short in the long run without a lot of replayability
+    Now, only the tallest buildings survive
