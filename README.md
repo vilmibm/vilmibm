@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Aug 12 16:48:01 EDT 2021
+## Fri Aug 13 16:48:01 EDT 2021
 
-    However, here's a listof the more important items4.6.1 ShieldsShields vary from level 1 (worst) to level 5 (best).
+    You'll be using this a hell of a lot
+    the detonators will explode in six seconds
+    Taking out the guard on the right first may make it easier to survive this one
+      THE UPSEARCHING  Strange fruits and herbs grow from the sands
+    
+    roll on this table four times
+    Its near where the drowning fishermen quest was, near a stone.9 Its on the side of a mountain, close to where you started.Got 5 sheep?
+    Anyway,its time to move onto the final village, and reclaim your village.
+    Non-evil creatures are: spiders, insects, rats, bats, snakes and seahorses.+=============================================================================+| vi.
+    
+      Only old friends or family are allowed to refer to you by your child-name
     Then makeit back to Oakham yes, again
-    ..
-    Well, there's a lot of plot for this game
+    You'll learn that the janitor has been fired
+    the master password has been changed to Alexei's hero
     
-    When you track or chase down an adversary
-    You'll be standing in front of a security door R
-    If you talk to the bartenders, they'll tell you to head for NewDetroit when you're ready.
-    Stilettos are FAST and you may have problemsdodging them.
-    
-    I don't think it's in the manual
-    Browse through them, and note the new janitor's key code
-    Never before have I hated a character in a video game more than this little woman with the ball.
-    not thatwell though.
-    
-    good interface, but it is kind of short in the long run without a lot of replayability
-    Now, only the tallest buildings survive
+    You need tofinish at least two out of three before Masterson will give youthe lead you need.NOTE
+    Check out the poster L
