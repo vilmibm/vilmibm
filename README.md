@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Aug 15 16:48:01 EDT 2021
+## Mon Aug 16 16:48:01 EDT 2021
 
-    Only great effect can take you out - effect can’t
-    For the evil people, just kill morechildren.
-    When you attempt to take something that isn't yours
-    Cyberia FAQ for the Sony Playstation 			 Version 1
+    Militia have somehow gotten past it
+    I knew my mum was wrong when she said greens were good forme.
+    so it's probably best just to skip it
+    F,F , and head back L
     
-    I just managed to get justice in about 15-30 minutes of doing  that and I just wanted to share the joy.Honor
-    Cyberia FAQ for the Sony Playstation 			 Version 1
-    Apparently, when all three parts of the Creed are aligned ie, in your hands
-    digital joystick , I suggest Arcade level 1 just because it's so difficult to get that cursor where you want it with just eight directions
+    If you are escorting, make sure the ship being escorted has wavedyou off i.e.
+    X,R,X , and duck for cover R after Yikes
+    part of your name is a descriptor - a message of hope from your community
+    11] for the plot missionwalkthru)Offered: everything (see [8] for mission types)Fixers can pay from nothing (yes, a rip-off) to 30000 permission.If you fail a fixer mission, head back to the bar and meet thefixer again.
     
-    but you don't have a shield readout either
-    Needs to be
-    Use some of the tactics I've described above togain his village, if you wish, and once his village is yours, you can sparehim, or defeat him.
-    F , and to the left-hand door R
+    Quickly shoot him before he throws it R
+    > ZAPPED Well, maybe kissing Gia wasn't such a good idea after all
+    Big time.The situation
+    So remember, no fixermissions until you're completely ready, and that means a fully-equipped Centurion.11.2 OUT OF HOME, INTO THE WORLDWhen you're ready to leave Troy, you should head for PotterQuadrant, as that's a relatively quiet sector, esp.
     
-    and the game does kind of suck you in over time
-    Going right at the junction R
+    L,F,F , and push the crate out of the way R
+    Decision time, although it's kind of minor
