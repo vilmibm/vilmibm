@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Aug 16 16:48:01 EDT 2021
+## Tue Aug 17 16:48:01 EDT 2021
 
-    Militia have somehow gotten past it
-    I knew my mum was wrong when she said greens were good forme.
-    so it's probably best just to skip it
-    F,F , and head back L
+    ---------In the middle village, there lives a man.
+    Hit the statue up and down until it crumbles.
+    Theanswer is simple, steal it from one of Khazar's two Workshops.
+    hit the submarine with everything you've got left
     
-    If you are escorting, make sure the ship being escorted has wavedyou off i.e.
-    X,R,X , and duck for cover R after Yikes
-    part of your name is a descriptor - a message of hope from your community
-    11] for the plot missionwalkthru)Offered: everything (see [8] for mission types)Fixers can pay from nothing (yes, a rip-off) to 30000 permission.If you fail a fixer mission, head back to the bar and meet thefixer again.
+    Take out the Gothris first.12.21 CROSS 4One last mission for the Exploratory Services
+    See Bomb Puzzle <If you kiss Gia
+    Enemies may or maynot show up, but you'll get paid nonetheless.
+    Moonglow
     
-    Quickly shoot him before he throws it R
-    > ZAPPED Well, maybe kissing Gia wasn't such a good idea after all
-    Big time.The situation
-    So remember, no fixermissions until you're completely ready, and that means a fully-equipped Centurion.11.2 OUT OF HOME, INTO THE WORLDWhen you're ready to leave Troy, you should head for PotterQuadrant, as that's a relatively quiet sector, esp.
+    It is a combination of genres
+    but using the IR scan triggers an explosive
     
-    L,F,F , and push the crate out of the way R
-    Decision time, although it's kind of minor
+    Get the Creature to throw them further out tosea.
+    
+    Second time or later willcost you some credits.'
+    .. No mission is needed.Interesting note: If you managed to tractor in someone's escapepod, you can sell it as 1 ton of slave.Piracy usually require heavy combat and should only be handled bya hefty ship like Centurion or maybe Orion.
