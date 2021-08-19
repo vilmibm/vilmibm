@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Aug 18 16:48:01 EDT 2021
+## Thu Aug 19 16:48:01 EDT 2021
 
-    They WILL kamikaze ifthey think they can kill you doing it.
-    You need ECM to counter enemy missiles.You can probably run away from any early enemies that youencounter, or you can test your combat prowess with your mesonblasters and torpedoes.
+    Once you're ready to do some killin'
+    If you don't aim while standing
+    and approach the perimiter lock F
+    F takes you further into the warehouse
     
-    Sometimes,you may get NOTHING.Think of this as the classified ads
-    
-    Feel free to fly past them.14.9 LYNN MURPHY 4Go to Metsor, clear Nav Points, for 50K.
-    in which case the blink will simply not move you at all).3) I have been able to get the White Stone by Blinking West from coordinates Lat.
-    ------------ - Shamino, a ranger, will join you here. - Mitre knows of the White Stone and tells you to ask about it in the Pub in Trinsic. - Barren (kid) knows the mantra: OM - Talk to the Ankh to learn that the Rune is in Lord B.'s castle, and to get to the Shrine of Spirituality you must enter a moongate at 2 full moons. (this only works at the Minoc moongate!
-    His cousin needs to "get out of town","away from the heat"
-    
-    UNDERGROUND - Freight Tunnel This one is rough
-    No pay.It's a long flight to Valhalla, and big battle is ahead, so saveyour missiles.
-    You'll recievethe Miracle Lighting Increase at your Village Centre in this village for doingsuch things.*-* EARLY BUILDING *-*Yeah, it gets annoying when your intial villagers want new housing, yet youdon't have a Workshop to build Scaffolds, to build much needed housing.
+    Then the sands came: a great golden ocean that washed away the old world
     He'll jump out,so jump after him.
+    DOOR MAN Keep walking towards the complex F
+    ---- -------- ------------1.
     
-    30,0006i: Target Lock.
-    You can now enter the Unsafe Door F
+    But he needsanother mission done.
+    Once per scene, your precision is equal to your extent
+    Either way, you'll soon move onto Land 4, well done!
+    You can also substitute the Towne Disk for the Britannia disk on the surface, but I don't think the results are as interesting or useful.2 You can reach Cove without getting a ship sunk by a whirlpool.
+    
+    you will be attacked from the air by helicopters
+    walk towards the weapon
