@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Aug 19 16:48:01 EDT 2021
+## Fri Aug 20 16:48:01 EDT 2021
 
-    Once you're ready to do some killin'
-    If you don't aim while standing
-    and approach the perimiter lock F
-    F takes you further into the warehouse
+    When hegets the message, he gets mad and wants to shoot you.
+    For every mission that involves delivery, try to locateadditional delivery missions going to the same base.
+    Officer Titles: Of The Crown
+    b'1 Game Information1.1 A LITTLE HISTORY LESSON
     
-    Then the sands came: a great golden ocean that washed away the old world
-    He'll jump out,so jump after him.
-    DOOR MAN Keep walking towards the complex F
-    ---- -------- ------------1.
+    The tables are populated based on where thesystem is, what systems are connected, and so on.For example, let's say you are at Troy.You got a contract to deliver some stuff to New Iberia, inPyrenees system in a mission from Merchants' Guild.You also found a contract to patrol Pyrenees system, all navpoints from Mercenaries' Guild.You also found a contract that had you hunt down a pirate at nav5 of Pyrenees system from the Mission Computer.So you jump in from Troy and arrive at nav 2 of Pyrenees.Pyrenees is in Humboldt Quadrant, which is Retro and Pirateterritory.
+    Inc, distributed by Interplay Productions
+    Start training him once you have foughtGuide.
+    These rooms are located at the bottom of dungeons.
     
-    But he needsanother mission done.
-    Once per scene, your precision is equal to your extent
-    Either way, you'll soon move onto Land 4, well done!
-    You can also substitute the Towne Disk for the Britannia disk on the surface, but I don't think the results are as interesting or useful.2 You can reach Cove without getting a ship sunk by a whirlpool.
+    You can either follow himnow, or get the final Lethys' village, and finalise any business you have inthis land.
+    you can breathe a little easier
+    R,F,F,R,F,F , and quickly get to the computer R
+    Enter NEMROSIM as your name at the beginning of the game
     
-    you will be attacked from the air by helicopters
-    walk towards the weapon
+    If the point is related to a mission, that mission'senemy is used.
+    Do as they say.
