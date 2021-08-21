@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Aug 20 16:48:01 EDT 2021
+## Sat Aug 21 16:48:01 EDT 2021
 
-    When hegets the message, he gets mad and wants to shoot you.
-    For every mission that involves delivery, try to locateadditional delivery missions going to the same base.
-    Officer Titles: Of The Crown
-    b'1 Game Information1.1 A LITTLE HISTORY LESSON
+    Seems that the peopleof the village are becoming sick, you'll need to help them.GOOD SOLUTION
+    - Also in the poorhouse are a lot of beggars... Give to them to increase your virtues! - Talk to Mischief of the Rune to learn it is in the forge, go in and get it. - Singsong the bard mentions the mantra: CAH - Alkerion tells of the Stone of Sacrificef.
+    +D8 precision when working out what someone wants
+    ----------------------- - Make sure to talk to Lord British and accept the Quest of the Avatar  otherwise this will be a very short game!
     
-    The tables are populated based on where thesystem is, what systems are connected, and so on.For example, let's say you are at Troy.You got a contract to deliver some stuff to New Iberia, inPyrenees system in a mission from Merchants' Guild.You also found a contract to patrol Pyrenees system, all navpoints from Mercenaries' Guild.You also found a contract that had you hunt down a pirate at nav5 of Pyrenees system from the Mission Computer.So you jump in from Troy and arrive at nav 2 of Pyrenees.Pyrenees is in Humboldt Quadrant, which is Retro and Pirateterritory.
-    Inc, distributed by Interplay Productions
-    Start training him once you have foughtGuide.
-    These rooms are located at the bottom of dungeons.
+    Blue Triangle 			5: Red Filled Circle 			6
+    L E V E L T H R E E - S I M P L E W A L K T H R O U G H =============================================================================Well, the difficulty of the game *has* just been stepped up a notch.
+    Muwhahahahha.STONES
+    Militia can be found in all fourquadrants.Militia hates Pirates, Kilrathis, and Retros see factions
     
-    You can either follow himnow, or get the final Lethys' village, and finalise any business you have inthis land.
-    you can breathe a little easier
-    R,F,F,R,F,F , and quickly get to the computer R
-    Enter NEMROSIM as your name at the beginning of the game
+    Get through this section as quickly as possible F
+    WAIT for the bee to pick up the cotton candy BEFORE you go to the left. 2.
+    Nothing else will go inthere.12.5 TAYLA 4Objective
+    Then take on Jones himself in adecked-out Centurion.
     
-    If the point is related to a mission, that mission'senemy is used.
-    Do as they say.
+    Then return.
+    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
