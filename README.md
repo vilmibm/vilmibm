@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Aug 23 16:48:01 EDT 2021
+## Tue Aug 24 16:48:01 EDT 2021
 
-    If you continue running down the hall
-    When you track or chase down an adversary
-    Exit the room L,F,L,F
-    Seven active switches
+    F , and listen to the conversation
+    PUZZLE LEVEL 2: Okay
+    although this may just be my imagination
+    when you upgrade to afterburners.5.5 CAPITAL SHIPS5.5.1 ParadigmParadigm is a Confed corvette that can dish out quite a bit offirepower.
     
-    This witch leaves nearby that last village you took.She claims she can bring youth back to old people, so lets test her claims,shall we?GOOD SOLUTION
-    It's not entirely linear- there are two decision points where you can take two entirely different paths through the game
-    Arcade difficulty changes how large the targets are for you to shoot at the harder you select
-    Not a lot, but it's uncensored
+    ..nothing is what you get, sir.*-* Five - Always hated circuses... *-*BACKGROUND----------Nasty guys.
+    (the Sheep) *-*Little Bo Peep
+    Basically, you'll find all yourvillage's kids in the Creche.
+    Simply drop a red mushroom into theVillage Store, and the food should turn green.
     
-    Regallis?
-    See [7] for mission sources
-    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
-    Green food, eh?
+    Using the skull of Mondain Note
+    Get the Creature topick them up and then eat them.
+    Its built almost into the side of ahill, but the giant stones should tip you off to its location.GOOD SOLUTION
+    The man's lost his sheep, and now you've gotto find them.
     
-    Part One, The Avatar |+=============================================================================+This game isn't all that complicated, so the walkthrough isn't all that long orcomplicated either.You need to become an Avatar first off.
-    Warm to the touch until used
+    .
+    tougher) missions.Offered: attack, bounty hunt, defend, patrol, scout (see [8] formission types)Typical mission pays about two to five thousand.7.3 MERCHANTS' GUILDMerchants' Guild costs 1000 credits to join, but they guaranteepayment as well.Almost all Merchants' Guild missions require jumping to anothersystem.
