@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Aug 26 16:48:01 EDT 2021
+## Fri Aug 27 16:48:01 EDT 2021
 
-    Take out the two guards U to stand
-    10,000MK II: Target Lock.
-    After two"doses" of food, he'll fall asleep.
-    In "RighteousFire" you'll get access to better equipment and furtherengine/shield upgrades.4.1 TARSUSTechnically a scout, it has a cargo bay big enough to be used asa small freighter, and maneuverable enough to fight
+    When it turns toward you, turnaway.
+    F,F gets you to a ladder and a locked door
+    you are simply known as boy or girl or child
+    When you have 4 to 5 pieces on you jump up to grab the stick and exit out. THE AMUSEMENT PARK 1.
     
-    * Two - Again with the Singing Stones!
-    ' in their status are sick.
-    Walkthrough with Passwords IV
-    Some data pirates are hacking Oxford's mainframe.
+    They, like trees, can also be heated up by fire, and sometimeseven burn, allowing you to set enemy villages alight.
+    and dice, like most other RPGs
+    Escort Vulcan's Forge (Drayman) to Oxford.
+    ..14.25 INFORMANT 2You guessed right, the "employer" was Monte's "informant", and heis actually a high-level Retro priest.
     
-    9 More Tips* [Repeat] If you can't leave the system (no jump drive),don't accept missions that occur outside the system!* [Repeat] You cannot stop at ANY other base while a deliverymission is in progress!
-    8.6 SCOUTGo to a nav point, destroy enemies if found.
-    GOOD SOLUTION
-    In order to get your Creature back, you must take back threevillages on the "floor" of the island, each one power a different pillar, outof three that are keeping your Creature frozen.So, all affairs in order and your Village is running smoothly?
+    .. there's acatch, right?
+    Second time or later willcost you some credits.'
+    Full Moon Minoc Spirituality Trinsic Skara Brae6.
+    .....a beach ball and a Heal Increase Miracle Dispenser.EVIL SOLUTION-------------Fight him.
     
-    Your objective is totravel the known universe
-    Instead ofquesting to remove some all-powerful evil, you are questing toward self-improvement to become an Avatar.
+    but this one is kind of neat looking
+    Wait until he is on the other side
