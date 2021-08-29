@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Aug 28 16:48:01 EDT 2021
+## Sun Aug 29 16:48:01 EDT 2021
 
-    You will encounter a lot of otherships, form friendly to hostile.
-    Comes in small and large sizes, governed by whetheryou use one Scaffold or two Scaffolds to build it.CRECHE
-    Wait 30 seconds and you'll see that it's in your brain
-    Costs 30000In Righteous Fire, you get access to "Advanced Repair Droid",which costs twice as much and repairs 50 0.000000aster.4.6.8 Cargo expansionMakes your cargo bay slightly larger.
+    On the 6th time hold the ball down DON'T throw it
+    Your ultimate objective is to reach the Elite rating.Privateer took most of the flexibility, put a Wing Commander spinon the whole thing, reduced it in size somewhat, updated it withan improved WC2 graphics engine and the infamous Origin talkingheads, a plot, and came up with one of the modern PC gamingclassics.1.2 ABOUT THIS GAME.You are a private pilot with a small scoutship
+    so it's probably best just to skip it
+    You will be paid 10000 credits.When you get there, Seelig pro?
     
-    Enter the contaminated zone F
-    ..Head to Troy, and explore the nearby nav points.
-    DOOR MAN Keep walking towards the complex F
-    Such artifacts remain indefinitely after you have returned from the glitch-world which I call the twilight zone.
+    It's very helpful in some of the dark rooms and arcade sequences
+    Eden's the name of the world
+    When you're through, you can enter the next room which only contains a broken terminal
+    Get 15000 credits also.When you get near Palan, you'll encounter 3+2+2+2 Demons
     
-    and the game does kind of suck you in over time
-    Generally, referring to the whole city as your domain is only done by the richest
-    move behind the column L
-    Focus him on the land,and he will walk over to the beach and should drop the person.
+    Place a skeleton in it, andthe person will be revived!BAD SOLUTION
+    When the pendulum swings to that side enter the door Timing is critical! THE BRAIN 1.
+    The best thing to do is use the long jab when they are far away and use the up and down swing when they are close. 2.
+    BOOM BOOM!
     
-    Escort Vulcan's Forge (Drayman) to Oxford.
-    and hull by the blue diagonal lines
+    But the Confed and theMilitia will come after you as long as you have contrabandonboard.
+    Once its fully infused, yoursymbol will appear above it.
