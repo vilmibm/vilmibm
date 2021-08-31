@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Aug 30 16:48:01 EDT 2021
+## Tue Aug 31 16:48:01 EDT 2021
 
-    D*-* Three - Where's Seano?
-    "The amount of "energy" that you have stored at your Worship Site.
-    *-*Seems that a um
-    hit the submarine with everything you've got left
+    -----------Get your influence over his hill eventually.
+      Known as Newt-Boy in his youth on account of his weird eyes
+    Puzzle level, well, it's up to you
+    These Upsearching are tokens of the goddesses
     
-    =D
-    This witch leaves nearby that last village you took.She claims she can bring youth back to old people, so lets test her claims,shall we?GOOD SOLUTION
-    Not a very friendly guard
-    He will go upthe mountain, and tell you to come too.
+    Don't forget to go to the shrines!
+    Go to the arrow pointing up.
+    Diviner Titles: The Wise
+    activate the middle one to start Charlie up to decontaminate the sealed area
     
-    and given that street name as his geographical tag
-    so be sure and save some ammo for them
-    - for instance, you can end up with monsters stuck in water, or with a boat on land (and you can still fire that boat's cannons).
-    Select one of the three antidotes
+    When you cause great effect on an evildoer
+    Khazar will teach you how to cast Miracles using Gestures and how to attackwith fireballs, and also how to defend your own villages.
+    Thanks to Khazar's generous gift to let you operate in hisinfluence, you should be able to access the first of Lethys' villages.
+    AND: In1 In2 Out OR: In1 In2 Out NOT
     
-    Beware, as wolves reside inthe nearby forest, and will frequently come out at night to kill villagers inthe village.
-    Ike.
+    Yes, dood burns.
+    It is a combination of genres
