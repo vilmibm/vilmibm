@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Aug 31 16:48:01 EDT 2021
+## Wed Sep  1 16:48:01 EDT 2021
 
-    -----------Get your influence over his hill eventually.
-      Known as Newt-Boy in his youth on account of his weird eyes
-    Puzzle level, well, it's up to you
-    These Upsearching are tokens of the goddesses
+    Of course, you will have to go get it from the girl again. THE PIANO 1.
+    IH OI------------------- - Mariah, a mage, will join you here. - The rune is in the room with Mariah, by her gold. - Cromwell the Paladin knows the mantra: AHMl.
+    Listen closely, you can hear the bee trying to break down the mirror. 2.
+    There are also four "special" bases
     
-    Don't forget to go to the shrines!
-    Go to the arrow pointing up.
-    Diviner Titles: The Wise
-    activate the middle one to start Charlie up to decontaminate the sealed area
+    *-*Seems that a um
+    - Dodge the drone's shots.
+    but this one is kind of neat looking
+    Nav 4 has 3 Gothris, then Kamekhand Gothri.
     
-    When you cause great effect on an evildoer
-    Khazar will teach you how to cast Miracles using Gestures and how to attackwith fireballs, and also how to defend your own villages.
-    Thanks to Khazar's generous gift to let you operate in hisinfluence, you should be able to access the first of Lethys' villages.
-    AND: In1 In2 Out OR: In1 In2 Out NOT
+    Once you wake up, you'll wish you hadn't
+    But this one isa deucy.Objective
+    Timing is important in catching the ball.
+    ------------I get tired of typing these, I really do.
     
-    Yes, dood burns.
-    It is a combination of genres
+    The FMV shooting scenes aren't that bad
+    it's just that it's been done before
