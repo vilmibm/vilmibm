@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Sep  2 16:48:01 EDT 2021
+## Fri Sep  3 16:48:01 EDT 2021
 
-    Then follow thejump to the next system
-    Run really, really fast
-    Thesecret base is in Valhalla system.
-    At the very beginning of the game you will be asked 7 questions by a gypsywoman.
+    Celebrant 3: Corpus 4
+    I found it lacking in a lot of areas
+    DL MJ)--------- - If you don't have a sextant, buy one here at the Guild (option D, even though you can't see it, it's there) for 900 goldi.
+    or maybe a damning indictment of your shortcomings
     
-    Cyberia, released by Interplay
-    Stolen villagers.
-    I may place one of the D8s anywhere
-    Your low-level scannercan't even tell friend from foe yet.
+      THE OTHERS  When you make a character
+    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
+    Apparently Smythe found some info in the Oxford library.Objective
+    At the top of the hill, a house, a Scroll anda crazy old man can be found.
     
-    Galaxy also has sideturrets.4.6.11 Tractor beamRequires turret to mount one, needed to salvage things.4.6.12 Jump driveRequired to travel to other star systems.
-    So you can get the picture, my A is a Wrigley's Spearmintwrapper, B is a MiniDisc, C is a folded up piece of A4 and D is a dentistappointment card.
-    When you focus on appearing like a different person
-    You move on to nav 1, more random.Keep moving to nav 6, and there is the patrol enemy
+    Well, there's a lot of plot for this game
+    You have a good ideawho this "employer" is
+    F , turn around and lock it behind you L
+    The result is both a map and a translation aid
     
-    If you wish to make one of these, place it near your VillageCentre, where people chill out and relax.
-    Get your Creatureto wade out and rescue the pesky beggars.
+    She communicates in the migration of birds
+    KJ LL----------- - Katrina, a shepherd, will join you here.
