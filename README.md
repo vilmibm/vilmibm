@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Sep  3 16:48:01 EDT 2021
+## Sat Sep  4 16:48:01 EDT 2021
 
-    Celebrant 3: Corpus 4
-    I found it lacking in a lot of areas
-    DL MJ)--------- - If you don't have a sextant, buy one here at the Guild (option D, even though you can't see it, it's there) for 900 goldi.
-    or maybe a damning indictment of your shortcomings
+    To get into the cell, go up to the Ruler of the Castle, and talk to him.
+    Fire a shot at the sitting man to get his attention R
+    Or CoolThang for short.EVIL SOLUTION
+    Go over to the other door and walk though it L
     
-      THE OTHERS  When you make a character
-    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
-    Apparently Smythe found some info in the Oxford library.Objective
-    At the top of the hill, a house, a Scroll anda crazy old man can be found.
+    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
+    With dual missile launchers it may even get quickkills.Max engine
+    +D8 precision when working out what someone wants
+    Centre of all things children-ish.
     
-    Well, there's a lot of plot for this game
-    You have a good ideawho this "employer" is
-    F , turn around and lock it behind you L
-    The result is both a map and a translation aid
+    Puzzle level, well, it's up to you
+    You will also learn that the Green Stone of Justice is in Dungeon Wrong - Some chanting druids (by a fire and with Jaana) are chanting: BEHj.
+    When you track or chase down an adversary
+    Once the mission is completethere's no reason not to turn on the cheat.* If you got room in the cargo bay, buy some commodities thatyou know will make profit at the destination, and sell it whenyou get there to make even more money.10 Gemini SectorGemini sector is made up of sixty-nine different star systems,each of them has from one to nine nav points.There is really no point for me to write which jump point linksto which system when you can buy the quadrant maps for yournavcomp.In each system, you can have several nav points that ships canalign to.
     
-    She communicates in the migration of birds
-    KJ LL----------- - Katrina, a shepherd, will join you here.
+    Magincia
+    You should get your Creature over to the nextvillage and start the process of converting them too.
