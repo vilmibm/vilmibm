@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Sep  4 16:48:01 EDT 2021
+## Sun Sep  5 16:48:01 EDT 2021
 
-    To get into the cell, go up to the Ruler of the Castle, and talk to him.
-    Fire a shot at the sitting man to get his attention R
-    Or CoolThang for short.EVIL SOLUTION
-    Go over to the other door and walk though it L
+    You need a FULLY upgraded Tarsus toeven think about leaving the Troy system.
+    You have a good ideawho this "employer" is
+    Run down the hall L,F and
+    Some of these marks have weird stones in themthat "ping" now and again.
     
-    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
-    With dual missile launchers it may even get quickkills.Max engine
-    +D8 precision when working out what someone wants
-    Centre of all things children-ish.
+    You won Ultima IV!+=============================================================================+| Appendices
+    Then, stand back and enjoy the ending all 20 seconds of it
+    You know, you'd think a multi-million dollar research lab would have better lighting the SELECT button helps here
+    After you are subject to effect in a scene
     
-    Puzzle level, well, it's up to you
-    You will also learn that the Green Stone of Justice is in Dungeon Wrong - Some chanting druids (by a fire and with Jaana) are chanting: BEHj.
-    When you track or chase down an adversary
-    Once the mission is completethere's no reason not to turn on the cheat.* If you got room in the cargo bay, buy some commodities thatyou know will make profit at the destination, and sell it whenyou get there to make even more money.10 Gemini SectorGemini sector is made up of sixty-nine different star systems,each of them has from one to nine nav points.There is really no point for me to write which jump point linksto which system when you can buy the quadrant maps for yournavcomp.In each system, you can have several nav points that ships canalign to.
+    PIT STOP - Zubrovska Blue targets are friendly
+    Anyway, if youtake a look-see in the village where you completed the first Silver Scroll,you'll find this one as well.
+    > Walk back out to the hallway F
+    Look for the moon, andfly toward it
     
-    Magincia
-    You should get your Creature over to the nextvillage and start the process of converting them too.
+    Want to make slaves out of them.
+    Time your next move F as the guard is looking away from the window
