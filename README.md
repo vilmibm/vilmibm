@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Sep  9 16:48:01 EDT 2021
+## Fri Sep 10 16:48:01 EDT 2021
 
-    How do you get itback?NOTE
-    When you try to outpace someone or something
-    PIT STOP - Zubrovska Blue targets are friendly
-    Its in amongstsome trees near the end of that path.7
+    He knows where the Retrosecret base is
+    Again, tell the group one thing that marks it out
+    *hint* The witch, likemost humans, burns easily.
+    To get into the cell, go up to the Ruler of the Castle, and talk to him.
     
-    Once per scene, your precision is equal to your extent
-    Aesop knows the mantra: RA - You want to get into the walls to get the Rune.
-    and from the sea by magnetic mines green dots
+    Lions can be found nearby, and are also worth twoslaves, and the final animal, the turtle is found near your Temple, on someislands, but are only worth one slave.
+    At nav 5, you found your target, takehim out.
+    <<Elevator Puzzle>> This one's tricky- first
+    Once you've toasted the guard
+    
+    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
+    Enter that one by pushing up. THE PIANO 1.
+    When you meet a strange culture for the first time
     it will start to shake and be very hard to control
     
-    please write me at cjayc@flex
-    and often opted out when group tasks came up
-    shields are shown by the green vertical bar
-    +D10 extent in matters of the heart
-    
-    Second time or later willcost you some credits.'
-     Advances: Executioner
+    ------------Don't harm the poor Creature!
+    You aren't going to get paid any way.
