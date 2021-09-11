@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Sep 10 16:48:01 EDT 2021
+## Sat Sep 11 16:48:01 EDT 2021
 
-    He knows where the Retrosecret base is
-    Again, tell the group one thing that marks it out
-    *hint* The witch, likemost humans, burns easily.
-    To get into the cell, go up to the Ruler of the Castle, and talk to him.
-    
-    Lions can be found nearby, and are also worth twoslaves, and the final animal, the turtle is found near your Temple, on someislands, but are only worth one slave.
-    At nav 5, you found your target, takehim out.
+    and often opted out when group tasks came up
+    Second time or later willcost you some credits.'
     <<Elevator Puzzle>> This one's tricky- first
-    Once you've toasted the guard
+    GL NK)---------- - Search the library (in the 't' section, for truth) for the Book of Truth. - Frasier tells you that part of the WORD is VERm.
     
-    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
-    Enter that one by pushing up. THE PIANO 1.
-    When you meet a strange culture for the first time
-    it will start to shake and be very hard to control
+    UNSAFE DOOR Yes, it is
+    ------------What else?
+    ..you'll get nothing if everyone dies, though.
+    Keep runningaway from that green blob and everybody else.12.23 TERRELL 1You made it to Perry Naval Base and found Admiral Terrell'soffice.
     
-    ------------Don't harm the poor Creature!
-    You aren't going to get paid any way.
+    Go through the door and along the wall next to the window F
+    =DEVIL SOLUTION
+    He has aproposal for you
+    ---------Oh, wait, the children have just decided to go swimming.
+    
+    If you want firepower, this is the ship you want.
+    It's following that gun you found.
