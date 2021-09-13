@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Sep 12 16:48:01 EDT 2021
+## Mon Sep 13 16:48:01 EDT 2021
 
-    Wait until he is on the other side
-    Elite itself is partiallybased on Game Designer Workshop's paper-and-pencil sci-fi role-playing game called Travellers.Elite basically starts you in a small ship with very littlearmament or money, and a rating of harmless.
-    but you think they would have invested a few dollars in a dictionary
-    Again,10000 credits and soon access to library.You'll find the Drayman at nav 3, with 4+2 Demons.
+    All you have to do to becomean avatar is to go to each place and do good deeds
+    Found all nine?The chance to exchange for the Sheep Creature is winging its way towards you,right now.EVIL SOLUTION
+    These rooms are located at the bottom of dungeons.
+    1 = left 9 = right =P'1 1 8 8 9 9 6 6 5 5 3 3 1' If you play that, then the stones will transform.Then you should play '2 2 2 2 5 4 4 2 2 1 2', and a circle will appear.Say hello to your reward for your musical talent!
     
-    Well, here we go from the end of the hall
-    Wait nomore!
-    Heat a rock,and sit it next to it.
-    We call this the Village Drop manuouever.
+    Well done, oldbean.EVIL SOLUTION
+    Climb the ladder F,F to get on the Catwalk
+    You'll get 30000credits if you succeed.On your way
+    So remember, no fixermissions until you're completely ready, and that means a fully-equipped Centurion.11.2 OUT OF HOME, INTO THE WORLDWhen you're ready to leave Troy, you should head for PotterQuadrant, as that's a relatively quiet sector, esp.
     
-    except for a poster on the wall Alexei's hero
-    Thisenergy is used to create Miracles, and to hold up existing Miracles.
-      Ranks: Constable, Blade
-    Puzzle-me-do!
+    the dreams of addicts
+    There's nothing else to it.14.21 MONTE 3Monte explained that Modecai Jones is at a secret base somewhere,and somehow they learned that Monte's looking for them.
+    You willdestroy the drone for them if you can keep the gun.
+    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
     
-    Seems that the peopleof the village are becoming sick, you'll need to help them.GOOD SOLUTION
-    Avoid the pit by jumping over it.
+    A vortex will soon open up in the village.
+    Pays 10K.Random encounters only, nothing to it.14.4 MASTERSON 4Transport requests an escort to the jump point.
