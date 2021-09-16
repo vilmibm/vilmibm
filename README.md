@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Sep 15 16:48:01 EDT 2021
+## Thu Sep 16 16:48:01 EDT 2021
 
-    This structure is your final line of defense in thegame, as if it is destroyed, you die.
-    -----------Get your influence over his hill eventually.
-    so be sure and take it out to continue
-    You move on to nav 4, more random, then finally youreach nav 3, New Iberia and another random encounter.
+    Red Circle Broken Bottom 			2
+    no doubt , and a sock
+    this woman is a Defender first and a Pilgrim second
+    Trader Titles: The Golden
     
-    the man is an Oracle first and a Guilder second
-    Nasty virus, and it's spreading through the complex
-    .. You'll see... A jump point!
-      Ranks: Celebrant, Dervish
+    These form nicknames
+    Focus him(while you and the Creature are connected by the leash, click on something withthe RMB) on a drowning villager, he should pick it up.
+    ..12.9 LYNCH 4When you come back to NC, Miggs is not there... Lynch wants youto pickup Mr. Smythe from Liverpool (Refinery base, Newcastlesystem).
+    you're a sitting duck until they recharge again
     
-    Nav 4 has 3 Gothris, then Kamekhand Gothri.
-    Well, it's easy to miss in the manual
-    .
-    You have a good ideawho this "employer" is
+    you'll die, so be very fast and precise
+    I found it lacking in a lot of areas
+    First possible Creature fight of the game!
+    See Security Door Puzzle <Front Door> To go in through the front door
     
-    Nostealing, attacking innocent people
-    ace?
+    Step on the elevator F
+    Focus him on the land,and he will walk over to the beach and should drop the person.
