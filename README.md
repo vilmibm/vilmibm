@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Sep 17 16:48:01 EDT 2021
+## Sat Sep 18 16:48:01 EDT 2021
 
-    Once you've toasted the guard
-      Known as Newt-Boy in his youth on account of his weird eyes
-    You can find Horses all over the island
-    Torch the place, including him.
+    If you walk away B,F
+    pressing the button and up. THE STATUE 1.
+    Take them out(preferred) or run away.If you make it to the jump point without taking out Riodian,he'll be there again with 5 Pirate Talons (pros?
+    * Two - Again with the Singing Stones!
     
-    =DEVIL SOLUTION
-    the lower one without triggering it the upper one
-    that you haven't checked.You'll eventually come across Governor Menesch with escorts.Menesch will tell you a story about how he sold your gun to theRetros, and those unknown ships are Retros also.
-    Go over to the first terminal and sit down F
+    PRICE
+    L,F,F , and push the crate out of the way R
+      Ranks: Oracle, Godseye
+    The man's lost his sheep, and now you've gotto find them.
     
-    F,F gets you to a ladder and a locked door
-    D to duck, L and R to aim
-    hovercraft, and fighters black dots on your radar
-    You'll be standing in front of a security door R
+    and press the Hanger button
+    Curiously smooth, irregularly-shaped glass
+    They pay less than the Merc Guild, but they are alsoeasier.Offered
+    the Yin andYang logo above his or her head.
     
-    Time your next move F as the guard is looking away from the window
-    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
+    Costs 5000 / 10000 / 15000.4.6.5 Missile LauncherMissile launcher launches missiles.
+    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
