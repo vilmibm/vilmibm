@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Sep 18 16:48:01 EDT 2021
+## Sun Sep 19 16:48:01 EDT 2021
 
-    If you walk away B,F
-    pressing the button and up. THE STATUE 1.
-    Take them out(preferred) or run away.If you make it to the jump point without taking out Riodian,he'll be there again with 5 Pirate Talons (pros?
-    * Two - Again with the Singing Stones!
+    Valor, Red 4.
+    Enter the room F , and look through the window F
+    Determine what you want out of the act and what dangers you face before you roll
+    Some of these marks have weird stones in themthat "ping" now and again.
     
-    PRICE
-    L,F,F , and push the crate out of the way R
-      Ranks: Oracle, Godseye
-    The man's lost his sheep, and now you've gotto find them.
+    Quickly shoot him before he throws it R
+    so get up close to it to look around L
+    Exit the room back to the main hallway R
+    and given that street name as his geographical tag
     
-    and press the Hanger button
-    Curiously smooth, irregularly-shaped glass
-    They pay less than the Merc Guild, but they are alsoeasier.Offered
-    the Yin andYang logo above his or her head.
+    4.2 ORIONOrion is an odd ship
+    Repeat until you kill it.Return to Terrell's office at Perry Naval Base for the thanks ofthe Confederation
+    Leave the room and enter yet another hallway R
+    He was last seen on Palan.So to Palan you go
     
-    Costs 5000 / 10000 / 15000.4.6.5 Missile LauncherMissile launcher launches missiles.
-    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
+    and is standard practice they gave her the geographical tag Quill - she’s welcome wherever Quill is worshipped
+    all the while being attacked by hoverfighters
