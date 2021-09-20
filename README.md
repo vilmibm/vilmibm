@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Sep 19 16:48:01 EDT 2021
+## Mon Sep 20 16:48:01 EDT 2021
 
-    Valor, Red 4.
-    Enter the room F , and look through the window F
-    Determine what you want out of the act and what dangers you face before you roll
-    Some of these marks have weird stones in themthat "ping" now and again.
+    Nemesis will showup and accuse Guide of being a traitor, and then, like, kill the dude for beinga naughty Creature.
+    5 Max shields: 5A fully upgraded ship would have* level 5 shields and level 5 engines* tungsten armor* max ECM available* 1 missile launcher with IR or FF missiles* high-level scanner* repair droid* cargo expansion* all quadrant maps* rear turret* tractor beam in turret* GOOD energy guns (tachyon cannons would be good)* jump drive (of course!
+    You roll an eight-sided dice
+    or maybe a damning indictment of your shortcomings
     
-    Quickly shoot him before he throws it R
-    so get up close to it to look around L
-    Exit the room back to the main hallway R
-    and given that street name as his geographical tag
+    A structure vital to all villages.
+    The only goal here is to survive
+    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
+    which may only be used on your chosen way
     
-    4.2 ORIONOrion is an odd ship
-    Repeat until you kill it.Return to Terrell's office at Perry Naval Base for the thanks ofthe Confederation
-    Leave the room and enter yet another hallway R
-    He was last seen on Palan.So to Palan you go
+    in search of some very ominous goings-on there
+    * One - This is one Yogi that won't steal your picnic.
+      COMMERCIA, goddess of security
+    fly to Liverpool (Newcastle system) to pick up Smythe,30000 credits were promised.As you can guess, Miggs is out there, ready to do you harm.
     
-    and is standard practice they gave her the geographical tag Quill - she’s welcome wherever Quill is worshipped
-    all the while being attacked by hoverfighters
+    Reissman informed you of hisplans before the drone showed up.
+    )4.3 GALAXYGalaxy is the multi-function ship that has the largest cargo bay(esp.
