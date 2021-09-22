@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Sep 21 16:48:01 EDT 2021
+## Wed Sep 22 16:48:01 EDT 2021
 
-    swarms of birds, patterns and sigils in clouds
-    When it turns toward you, turnaway.
-    no matter how much you give, they'll never stop begging,meditating at the 8 Shrines of Virtue.Note: using "Q" won't actually quit the game.
-    Each of the sixty-nine systems can have severalplanets with bases that you can visit.There are four different ships you can own, plenty of differentequipment to create your own customized ship, over a dozendifferent commodities you can trade between systems, specialmissions that will pay you even MORE than standard fees, andmore.You will encounter friendly, neutral, and hostile traffic in yourtravel.
+    Travel up the mountain with Mr.
+    so it's not that big of a deal
+    However, there is a cheat code see below that allows you to see the censored scene s
+      Your geographical location will be bound to your name as an addendum
     
-    This scroll is useful however,in learning the fundamental skill of projectile throwing.GOOD SOLUTION
-    b'Weird Dreams Solve THE COTTON CANDY MACHINE 1.
-    Jump onto one of the light fixtures.
-    You're back in Britannia with all your ill-gotten gold. This trick can also result in some weird side-effects
+     Advances: Executioner
+    FA Long.
+    For example, when the first moon first turns to the New Moon, a moongate will open at Moonglow and itsdestination will be Moonglow, when the 2nd moon changes phase it will take youto Britain, another 2nd moon phase change and it will take you to Jhelom.
+    Sacrifice, Orange 6.
     
-    Check other mission sources first.Offered
-    ---------------------- Get the Bell of Courage at: NA LA Get the Skull of Mondain at: PF MF (double new moons only) Get a Magic Wheel (to improve your ship) at: NH GA A Telescope is at: AC BG After Becoming a full Avatar you can get these: Also be sure to get the Mystic Armor at Empath Abbey (in the grotto): AE BG And the Mystic Weapon at Serpent's Hold (on the mat): AP AI Trick: If you need money, you can sell these, then go back and get them again.When you become a partial avatar in each virtue you will be given a letter,all the letters add up to INFINITY.+=============================================================================+| 2.
-    Well, it's easy to miss in the manual
-    The result is both a map and a translation aid
+    You won Ultima IV!+=============================================================================+| Appendices
+    I am not sure which exact square you need to be on, but you can just peer at  a gem to make sure you are far enough north so that you wouldn't be blinking onto water
+    You can only find there-generating kind, and you can only make the packing kind. =============================================================================11 F R E Q U E N T L Y A S K E D Q U E S T I O N S =============================================================================Whats Belief?
+    Wow
     
-    Let us analyze themarkets, and see what kind of stuff is available to buy low andsell high.There are FIVE kinds of bases
     Walk into the room F DRUG STORE Have a seat L
+    Go find the guard in the windowed room L
