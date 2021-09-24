@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Sep 23 16:48:01 EDT 2021
+## Fri Sep 24 16:48:01 EDT 2021
 
-    If you use the IR twice
-    ..
-    *hint* The witch, likemost humans, burns easily.
-    perform an MRI scan to view the elevator pumps
+    You pick the first, the group picks the second
+    Admiral Terrell is in charge of the whole sector from his HQ atPerry Naval Base.
+    When you track or chase down an adversary
+    co-dependent worship - hoarding them in the form of bottled sprites
     
-    If anyone should eat this greenfood, they will become sick, and will soon die.
-    Use the soccer ball by pressing the
-      THE ROUTE  Draw pick a point
-    Otherwise, press fire or another direction
+    the falling heavens, the shifting sands
+    On theother hand, the university does need some work done
+    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
+    You shouldmake your way to Perry Naval Base
     
-    shields are shown by the green vertical bar
-    See [4] forrecommended loadout for your ship.
-    this village may or may not be converted to Lethys' cause, depending on howquickly you have played.
-    Take them all out,and return to ND.14.22 MONTE 4Monte doesn't know where the secret retro base is, but he doeshave a lead on where this Governor Menesch is
+    Instant Zebra Creature.
+    You'll find this one in Khazar's secondvillage, but only if you have control of it.GOOD SOLUTION
+    ---------On the edge of the village near the Temple Puzzle, you'll find this one.
+    General Information III
     
-    ..
-    walk towards the weapon
+    b'1 Game Information1.1 A LITTLE HISTORY LESSON
+    Not much going on here, apart from the crowding of people withnothing to do, or who are finished their tasks for the day.
