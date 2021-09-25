@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Sep 24 16:48:01 EDT 2021
+## Sat Sep 25 16:48:01 EDT 2021
 
-    You pick the first, the group picks the second
-    Admiral Terrell is in charge of the whole sector from his HQ atPerry Naval Base.
-    When you track or chase down an adversary
-    co-dependent worship - hoarding them in the form of bottled sprites
+    The large carriers are never targets
+    First possible Creature fight of the game!
+    If you've been paying attention so far
+    F,F,F , and step forward F
     
-    the falling heavens, the shifting sands
-    On theother hand, the university does need some work done
-    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
-    You shouldmake your way to Perry Naval Base
+    see
+    ..
+    Note
+      THE ROUTE  Draw pick a point
     
-    Instant Zebra Creature.
-    You'll find this one in Khazar's secondvillage, but only if you have control of it.GOOD SOLUTION
-    ---------On the edge of the village near the Temple Puzzle, you'll find this one.
-    General Information III
+    ARCADE LEVEL 1: Destroy 500f the virus
+    This Vortex will stay open until you gothrough.
+    This time the bee has finally broken through.
+    If not in your hands, a part must be on apole.
     
-    b'1 Game Information1.1 A LITTLE HISTORY LESSON
-    Not much going on here, apart from the crowding of people withnothing to do, or who are finished their tasks for the day.
+    BOOM.
+    Once its run outof power, a red X will appear over it, and you cannot use your Hand outside of Influence until you return it to your side of the Influence border.Whats Mana?
