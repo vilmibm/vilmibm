@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Sep 25 16:48:01 EDT 2021
+## Sun Sep 26 16:48:01 EDT 2021
 
-    The large carriers are never targets
-    First possible Creature fight of the game!
-    If you've been paying attention so far
-    F,F,F , and step forward F
+    Well, there's a lot of plot for this game
+    F,F , and head back L
+    Bend down to catch the ball.
+    then move around it F
     
-    see
-    ..
-    Note
-      THE ROUTE  Draw pick a point
+    you are subject to effect
+    Well, here we go from the end of the hall
+    I see the Freak Wave has been up to his old tricks.
+    UNSAFE DOOR Yes, it is
     
-    ARCADE LEVEL 1: Destroy 500f the virus
-    This Vortex will stay open until you gothrough.
-    This time the bee has finally broken through.
-    If not in your hands, a part must be on apole.
+    He wants to go to NewDetroit, and he's not paying a penny.
+    This can makethose slow-firing guns worth buying, if you have the energy topower them all.Shield Regen devices
+    There are three mirrors that you can enter right now.
+    explore nav points at Delta Prime, another 10000credits.There are a lot of random Kilrathi in Gamma...
     
-    BOOM.
-    Once its run outof power, a red X will appear over it, and you cannot use your Hand outside of Influence until you return it to your side of the Influence border.Whats Mana?
+    
+    You would seethem more in the quieter quadrants, like Potter and Humboldt, butthey do show up everywhere.Merchants hate any one who shoot them
