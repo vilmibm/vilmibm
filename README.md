@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Sep 26 16:48:01 EDT 2021
+## Mon Sep 27 16:48:01 EDT 2021
 
-    Well, there's a lot of plot for this game
-    F,F , and head back L
-    Bend down to catch the ball.
-    then move around it F
+    At nav 2, you'll find 3 Dralthis, 2 Gothris,and 3 Dralthis.
+    Regallis?
+    AtNew Detroit, two waves of Retros.
+    F , and listen to the conversation
     
-    you are subject to effect
-    Well, here we go from the end of the hall
-    I see the Freak Wave has been up to his old tricks.
-    UNSAFE DOOR Yes, it is
+    so perform an IR scan on it
+    so they gave her the name Compass
+    Tough, you'restuck here for a little while.
+    Once per scene, begin performing
     
-    He wants to go to NewDetroit, and he's not paying a penny.
-    This can makethose slow-firing guns worth buying, if you have the energy topower them all.Shield Regen devices
-    There are three mirrors that you can enter right now.
-    explore nav points at Delta Prime, another 10000credits.There are a lot of random Kilrathi in Gamma...
+    There's nothing else to it.14.21 MONTE 3Monte explained that Modecai Jones is at a secret base somewhere,and somehow they learned that Monte's looking for them.
+    Don't besurprised if you failed this a few times.12.11 MASTERSON 2Here's the second mission for Masterson.Objective
+    Rooms:------ Truth: Blue Green Purple White Courage: Red Orange Purple White Love: Yellow Orange Green WhiteStygian Abyss:--------------You should now have all 8 stones, the 3 part key, the Skull of Mondain, and the3 artifacts of Principle (Bell of Courage, Candle of Love, Book of Truth).
+    You will be paid 10000 credits.When you get there, Seelig pro?
     
-    
-    You would seethem more in the quieter quadrants, like Potter and Humboldt, butthey do show up everywhere.Merchants hate any one who shoot them
+    The Noble, The Urbane   Celebrant When you do your best to make people happy
+    *-*BACKGROUND
