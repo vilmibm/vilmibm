@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Sep 27 16:48:01 EDT 2021
+## Tue Sep 28 16:48:01 EDT 2021
 
-    At nav 2, you'll find 3 Dralthis, 2 Gothris,and 3 Dralthis.
-    Regallis?
-    AtNew Detroit, two waves of Retros.
-    F , and listen to the conversation
+    If you continue running down the hall
+    keep running past them.
+    Now all youneed to do is to start expanding your influence and capture villages.
+    Britain
     
-    so perform an IR scan on it
-    so they gave her the name Compass
-    Tough, you'restuck here for a little while.
-    Once per scene, begin performing
+    Make it over to Blockade Point Tango.
+    when you upgrade to afterburners.5.5 CAPITAL SHIPS5.5.1 ParadigmParadigm is a Confed corvette that can dish out quite a bit offirepower.
+    He'll investigate the artifact's hologram whileyou do the jobs for him.Objective
+    Useful throughout the game until you canafford missile launchers.4.5.2 Energy GunsThere are quite a few energy guns, which differ in firing rate,energy use, shot velocity, and damage.
     
-    There's nothing else to it.14.21 MONTE 3Monte explained that Modecai Jones is at a secret base somewhere,and somehow they learned that Monte's looking for them.
-    Don't besurprised if you failed this a few times.12.11 MASTERSON 2Here's the second mission for Masterson.Objective
-    Rooms:------ Truth: Blue Green Purple White Courage: Red Orange Purple White Love: Yellow Orange Green WhiteStygian Abyss:--------------You should now have all 8 stones, the 3 part key, the Skull of Mondain, and the3 artifacts of Principle (Bell of Courage, Candle of Love, Book of Truth).
-    You will be paid 10000 credits.When you get there, Seelig pro?
+    in search of some very ominous goings-on there
+    was Top: 2, Middle: 3
+    Serpent's Hold and surrounding Area (PB JC)
+    >=D*
     
-    The Noble, The Urbane   Celebrant When you do your best to make people happy
-    *-*BACKGROUND
+    .. And youneed to access the library.
+    Combine it with throwing/flaming/etc for even greater belief boosts.ONE
