@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Sep 28 16:48:01 EDT 2021
+## Wed Sep 29 16:48:01 EDT 2021
 
-    If you continue running down the hall
-    keep running past them.
-    Now all youneed to do is to start expanding your influence and capture villages.
-    Britain
+    You need tofinish at least two out of three before Masterson will give youthe lead you need.NOTE
+    9 More Tips* [Repeat] If you can't leave the system (no jump drive),don't accept missions that occur outside the system!* [Repeat] You cannot stop at ANY other base while a deliverymission is in progress!
+    With aCenturion, you can beat back any pirates that gets in your way,and make a ton of money on this route.When you're ready, head for New Detroit, go into the bar, andlocate Ernesto Sandoval in the bar to start the plot missions.11.4 SOME NOTES ON SPACE COMBATCheck back to section
+    The only thing that has to be on the map is the Maiden’s Hand
     
-    Make it over to Blockade Point Tango.
-    when you upgrade to afterburners.5.5 CAPITAL SHIPS5.5.1 ParadigmParadigm is a Confed corvette that can dish out quite a bit offirepower.
-    He'll investigate the artifact's hologram whileyou do the jobs for him.Objective
-    Useful throughout the game until you canafford missile launchers.4.5.2 Energy GunsThere are quite a few energy guns, which differ in firing rate,energy use, shot velocity, and damage.
+    fighter), Gothri (heavy fighter/bomber),and Kamekh (corvette) (see crafts)Kilrathi pilots are usually confident or fanatical pros or aces.Gothri are usually piloted by aces.
+    Winning = People will offer you 'Heal Increase' when they worship.EVIL SOLUTION
+      THE OTHERS  When you make a character
+    This time the bee has finally broken through.
     
-    in search of some very ominous goings-on there
-    was Top: 2, Middle: 3
-    Serpent's Hold and surrounding Area (PB JC)
-    >=D*
+    If you are escorting, make sure the ship being escorted has wavedyou off i.e.
+    ------------Um.
+    Basically, you discovera pile of rocks and a faraway rock on a pillar, and your consciences decide totorture you by making you try target practice.
+    A beach ball and a Heal Increase MiracleDispenser is yours!
     
-    .. And youneed to access the library.
-    Combine it with throwing/flaming/etc for even greater belief boosts.ONE
+    ..UNCONFIRMED: If you find Roman Lynch at New Constantinople, heasks you to kill Governor Menesch also (a lot of people wantsthat guy dead!).
+    Take your time to take stuff through to the next land.
