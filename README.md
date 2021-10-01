@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Sep 30 16:48:01 EDT 2021
+## Fri Oct  1 16:48:01 EDT 2021
 
-    Well, there's a lot of plot for this game
-    Some families jealously guard old names
-    Santos will tell you to go through the door on your right R
-    You can now take all these One-Shot Miracles through the next world, to help you there.Handy, non?*-* TEACHING YOUR CREATURE FIREBALL *-*When Khazar is teaching you how to attack with fireballs, use the Leash tobring your Creature over to where you are.
+    Full Moon Minoc Spirituality Trinsic Skara Brae6.
+    Enter the next room F
+    Militia can be found in all fourquadrants.Militia hates Pirates, Kilrathis, and Retros see factions
+    You simply try and convert it, but all convertingtools must be thrown into the village, such as food, wood, etc.
     
-    beggars
-    ------------Coming Soon.
-    Attach him to your hand with theLeash of Learning and charge a fireball into your hand.
-    (See the Simple Walkthrough)Bring a piece of your Creatures
+    Select one of the three antidotes
+    Basically, just the same as the Good Solutionbut harm the guy somehow.
+    It's time for revenge-- you're going after Devlin
+    .. You have threechoices: Lynn Murphy, Goodin (Confed), or Tayla.
     
-    Give him some nice food, distract him.
-    After you are subject to effect in a scene
-    GOOD SOLUTION
-    These ones give you nothing, you simply place a charged Miracle onthem, and it is turned into a One-Shot Miracle.
+    He knows where the Retrosecret base is
+    .. You may get something, orperhaps nothing at all.
+    Remember to turn it off when you get there.
+      COMMERCIA, goddess of security
     
-    you can almost always make it through
-    The Rune is found in the SE Tower.h.
+    She communicates in the migration of birds
+    He knows where the Retrosecret base is
