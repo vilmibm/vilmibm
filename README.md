@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Oct  1 16:48:01 EDT 2021
+## Sat Oct  2 16:48:01 EDT 2021
 
-    Full Moon Minoc Spirituality Trinsic Skara Brae6.
-    Enter the next room F
-    Militia can be found in all fourquadrants.Militia hates Pirates, Kilrathis, and Retros see factions
-    You simply try and convert it, but all convertingtools must be thrown into the village, such as food, wood, etc.
+    Some animals are worth more slaves thanothers, and only certain animals apply.
+    although this may just be my imagination
+    Basically, children are stealing a farmer's cattle, and he'dfind it ever so helpful if you'd make them stop.GOOD/BAD SOLUTION
+    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
     
-    Select one of the three antidotes
-    Basically, just the same as the Good Solutionbut harm the guy somehow.
-    It's time for revenge-- you're going after Devlin
-    .. You have threechoices: Lynn Murphy, Goodin (Confed), or Tayla.
+    May be good as a rear turret gun.4.6 EQUIPMENTI am not really going to list all the equipment, since they arein the manual and most are pretty obvious.
+    Turn on the light swith on the left to get rid of the bats. THE CHICKEN MONSTER 1.
+    so get up close to it to look around L
+    Can anyone help me outhere?
     
-    He knows where the Retrosecret base is
-    .. You may get something, orperhaps nothing at all.
-    Remember to turn it off when you get there.
-      COMMERCIA, goddess of security
+    Turn on the light swith on the left to get rid of the bats. THE CHICKEN MONSTER 1.
+    Introduction What is Cyberia
+    +D10 precision when you read someone’s desires
     
-    She communicates in the migration of birds
-    He knows where the Retrosecret base is
+    
+    Just kill them.14.3 MASTERSON 3Transport "books" to Burton, in Junction system.
+    Sell it for 7500 credits, and replace it with a torpedolauncher and full reloads instead.
