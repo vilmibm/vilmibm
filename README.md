@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Oct  4 16:48:01 EDT 2021
+## Tue Oct  5 16:48:01 EDT 2021
 
-    When you seek to uncover secrets
-    He'll jump out,so jump after him.
-    You must destroy it to complete the mission
-    Try the ultimateevil, find his sheep THEN kill him.
+    Escort Hunter Toth (Drayman) to Oxford.
+    see morale and experience
+    what your community think of you and what you’ll be
+    Can anyone help me outhere?
     
-    When you meet a strange culture for the first time
-    you'll instantly die and have to restart
-    perform an MRI scan to view the elevator pumps
-    When you make itinto Delta, you'll find a Steltek derelict
+    Thisenergy is used to create Miracles, and to hold up existing Miracles.
+     Advances; Performer
+    Instant Zebra Creature.
+    R to move in, X to fire
     
-    The actual missions are discussed in the nextsection.
-    =*
-    Fixermissions are always plot missions.
-    People live here.
+    0 March 12, 1996 			 Written by CJayC cjayc@flex
+    ..Tayla was in the bar instead.
+    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
+    Patrol the place
     
-    Sure there are battles along the way, but thetrue test of your courage is whether you can follow the Virtues, and eventuallybrave the foul Stygian Abyss and view the Codex of Ultimate Wisdom.In the game you have to follow the Virtues.
-    Now its yours to convert.
+    This is just the piano again, except it's faster and harder. THE FISH TANK 1.
+    "Buylow, sell high", and "take on missions".
