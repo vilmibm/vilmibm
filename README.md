@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Oct  5 16:48:01 EDT 2021
+## Wed Oct  6 16:48:01 EDT 2021
 
-    Escort Hunter Toth (Drayman) to Oxford.
-    see morale and experience
-    what your community think of you and what you’ll be
-    Can anyone help me outhere?
+    You're back in Britannia with all your ill-gotten gold. This trick can also result in some weird side-effects
+    1 Max shields: 2A fully upgraded ship would have* level 2 shields* tungsten armor* max ECM available* dual missile launchers with IR missiles* mid/high-level scanner* repair droid* cargo expansion* all quadrant maps* jump drive of course!
+    This is something that would be great to see in a horror movie. THE WOMAN WITH A BALL Note
+      COMMERCIA, goddess of security
     
-    Thisenergy is used to create Miracles, and to hold up existing Miracles.
-     Advances; Performer
-    Instant Zebra Creature.
-    R to move in, X to fire
+    His crime?
+    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
+    A guy with a grenade
+    As you're setting down
     
-    0 March 12, 1996 			 Written by CJayC cjayc@flex
-    ..Tayla was in the bar instead.
-    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
-    Patrol the place
+    Ctrl + [number]at his Temple and at your worship site.
+    For the evil people, just kill morechildren.
+    After taking these out
+      THE ROUTE  Draw pick a point
     
-    This is just the piano again, except it's faster and harder. THE FISH TANK 1.
-    "Buylow, sell high", and "take on missions".
+    >=D*
+    L1: Changes to arcade cursor mode up up
