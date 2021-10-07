@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Oct  6 16:48:01 EDT 2021
+## Thu Oct  7 16:48:01 EDT 2021
 
-    You're back in Britannia with all your ill-gotten gold. This trick can also result in some weird side-effects
-    1 Max shields: 2A fully upgraded ship would have* level 2 shields* tungsten armor* max ECM available* dual missile launchers with IR missiles* mid/high-level scanner* repair droid* cargo expansion* all quadrant maps* jump drive of course!
-    This is something that would be great to see in a horror movie. THE WOMAN WITH A BALL Note
-      COMMERCIA, goddess of security
+    go to the panel R,R,F
+    There are three mirrors that you can enter right now.
+    You'll be standing in front of a security door R
+    Kill the children, eat 'em, roast 'em, throw 'em, whatever the hell you can imagine
     
-    His crime?
-    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
-    A guy with a grenade
-    As you're setting down
+    You willdestroy the drone for them if you can keep the gun.
+    L,F,R,F,L,F and check out the V-Mail
+    Pays 10K.You'll likely meet quite a few pirate or Retro Talons (at least 6total).
+     The same applies to you with regards to your opponent
     
-    Ctrl + [number]at his Temple and at your worship site.
-    For the evil people, just kill morechildren.
-    After taking these out
-      THE ROUTE  Draw pick a point
+    His community saw that he was quite slow
+    .. You may get something, orperhaps nothing at all.
+    Now that you have your Creature, all you need to do is capture Lethys'final village, and hes yours.
+    You can get scout missions through Mercenaries' Guild and MissionComputer.8.7 PATROLPatrol is basically Scout mission that involves multiple navpoints.
     
-    >=D*
-    L1: Changes to arcade cursor mode up up
+    It's not entirely linear- there are two decision points where you can take two entirely different paths through the game
+    Muwhahahahha.STONES
