@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Oct  7 16:48:01 EDT 2021
+## Fri Oct  8 16:48:01 EDT 2021
 
-    go to the panel R,R,F
-    There are three mirrors that you can enter right now.
-    You'll be standing in front of a security door R
-    Kill the children, eat 'em, roast 'em, throw 'em, whatever the hell you can imagine
+    I am not sure which exact square you need to be on, but you can just peer at  a gem to make sure you are far enough north so that you wouldn't be blinking onto water
+    Check out the hologram on the desk F
+    Confed have noticed the green thing.
+    Get the Creature to throw them further out tosea.
     
-    You willdestroy the drone for them if you can keep the gun.
-    L,F,R,F,L,F and check out the V-Mail
-    Pays 10K.You'll likely meet quite a few pirate or Retro Talons (at least 6total).
-     The same applies to you with regards to your opponent
+    =D
+    Empath Abbey (DC BM)
+    Fire a shot at the sitting man to get his attention R
+    If you ever take out the governor, come back and collectmore credits.From here on, you either head to Tayla or go see Sandra Goodin(Confed)
     
-    His community saw that he was quite slow
-    .. You may get something, orperhaps nothing at all.
-    Now that you have your Creature, all you need to do is capture Lethys'final village, and hes yours.
-    You can get scout missions through Mercenaries' Guild and MissionComputer.8.7 PATROLPatrol is basically Scout mission that involves multiple navpoints.
+    hit the submarine with everything you've got left
+    ---------When you capture the first of Lethys' snowy villages, then this scroll willbecome available.
+    Go on the third time and you should be able to make it past her.
+    Found all nine?The chance to exchange for the Sheep Creature is winging its way towards you,right now.EVIL SOLUTION
     
-    It's not entirely linear- there are two decision points where you can take two entirely different paths through the game
-    Muwhahahahha.STONES
+    F , and check out the terminal
+    Confeds quickly found to theirdismay that they can't destroy the drone either.
