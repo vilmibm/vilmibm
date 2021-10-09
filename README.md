@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Oct  8 16:48:01 EDT 2021
+## Sat Oct  9 16:48:01 EDT 2021
 
-    I am not sure which exact square you need to be on, but you can just peer at  a gem to make sure you are far enough north so that you wouldn't be blinking onto water
-    Check out the hologram on the desk F
-    Confed have noticed the green thing.
-    Get the Creature to throw them further out tosea.
+    F until you get to a door
+    KILL THEM ALL.
+    BIG SHOCK Walk over to Santos's body
+    F , and wait for the guard to notice
     
-    =D
-    Empath Abbey (DC BM)
-    Fire a shot at the sitting man to get his attention R
-    If you ever take out the governor, come back and collectmore credits.From here on, you either head to Tayla or go see Sandra Goodin(Confed)
+    Good storyline, great graphics
+    Be warned, sacrificing people will make you evil, and also,people worshipping at your site need food and the occassional rest.
+    L1: Changes to arcade cursor mode up up
+    The result is both a map and a translation aid
     
-    hit the submarine with everything you've got left
-    ---------When you capture the first of Lethys' snowy villages, then this scroll willbecome available.
-    Go on the third time and you should be able to make it past her.
-    Found all nine?The chance to exchange for the Sheep Creature is winging its way towards you,right now.EVIL SOLUTION
+    are earned when people start calling you them
+    your name might refer to a street
+    BIG SHOCK Walk over to Santos's body
+    You can't hurtit though, even with that Steltek gun.
     
-    F , and check out the terminal
-    Confeds quickly found to theirdismay that they can't destroy the drone either.
+    Back in another hallway
+    Escort Hunter Toth (Drayman) to Oxford.
