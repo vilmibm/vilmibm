@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Oct  9 16:48:01 EDT 2021
+## Sun Oct 10 16:48:01 EDT 2021
 
-    F until you get to a door
-    KILL THEM ALL.
-    BIG SHOCK Walk over to Santos's body
-    F , and wait for the guard to notice
+    A vortex will soon open up in the village.
+    For the evil people, just kill morechildren.
+    R,F,R,F GOING UP To activate the elevator
+    Ike.
     
-    Good storyline, great graphics
-    Be warned, sacrificing people will make you evil, and also,people worshipping at your site need food and the occassional rest.
-    L1: Changes to arcade cursor mode up up
-    The result is both a map and a translation aid
+    Eating one removes sensations of hunger and refreshes the user
+    Again, you should afterburner past them, ignoringtheir fire.
+    Kline knows the mantra: SUMM (in the tavern)e.
+    Nasty virus, and it's spreading through the complex
     
-    are earned when people start calling you them
-    your name might refer to a street
-    BIG SHOCK Walk over to Santos's body
-    You can't hurtit though, even with that Steltek gun.
+    This Vortex will stay open until you gothrough.
+    Evil factor is very, VERY high.
+    Thesecret base is in Valhalla system.
+    You will recieve a pile of grain for your efforts.
     
-    Back in another hallway
-    Escort Hunter Toth (Drayman) to Oxford.
+    walk into the next room F
+      You have chosen to honour a deity with your life in exchange for blessings
