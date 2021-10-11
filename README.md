@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Oct 10 16:48:01 EDT 2021
+## Mon Oct 11 16:48:01 EDT 2021
 
-    A vortex will soon open up in the village.
-    For the evil people, just kill morechildren.
-    R,F,R,F GOING UP To activate the elevator
-    Ike.
+    This means you can accept only ONEdelivery destination at once!* You can accept multiple delivery missions IF they are allgoing to the SAME BASE.
+    LI GK---------- - Dupre, a paladin, will join you here. - Talk to Terrin in the SE corner of town to learn that the Rune of Honor is in the SW corner of town.
+    Here is a list of them
+    your character is retired from the story - select another from the caravan to play
     
-    Eating one removes sensations of hunger and refreshes the user
-    Again, you should afterburner past them, ignoringtheir fire.
-    Kline knows the mantra: SUMM (in the tavern)e.
-    Nasty virus, and it's spreading through the complex
+    This is best done alone no partymembers slowing you down, you'll need them later, but not now
+    The best method is to attack right the long thrust
+    hit the submarine with everything you've got left
+    and where you’re from
     
-    This Vortex will stay open until you gothrough.
-    Evil factor is very, VERY high.
-    Thesecret base is in Valhalla system.
-    You will recieve a pile of grain for your efforts.
+    Introduction What is Cyberia
+    KJ LL----------- - Katrina, a shepherd, will join you here.
+    The entry pad is to your left F
+    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
     
-    walk into the next room F
-      You have chosen to honour a deity with your life in exchange for blessings
+    L E V E L T H R E E - S I M P L E W A L K T H R O U G H =============================================================================Well, the difficulty of the game *has* just been stepped up a notch.
+    you want to cut the connection to the detonator far right
