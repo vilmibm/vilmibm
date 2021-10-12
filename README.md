@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Oct 11 16:48:01 EDT 2021
+## Tue Oct 12 16:48:01 EDT 2021
 
-    This means you can accept only ONEdelivery destination at once!* You can accept multiple delivery missions IF they are allgoing to the SAME BASE.
-    LI GK---------- - Dupre, a paladin, will join you here. - Talk to Terrin in the SE corner of town to learn that the Rune of Honor is in the SW corner of town.
-    Here is a list of them
-    your character is retired from the story - select another from the caravan to play
+    Otherwise, press fire or another direction
     
-    This is best done alone no partymembers slowing you down, you'll need them later, but not now
-    The best method is to attack right the long thrust
-    hit the submarine with everything you've got left
-    and where you’re from
+    Everybody else is random.
+    Not much of interest here
     
-    Introduction What is Cyberia
-    KJ LL----------- - Katrina, a shepherd, will join you here.
-    The entry pad is to your left F
-    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
+    Spirituality, White 8.
+    and you will see the inside of it
+    ..fish.
+    You now have access to the base's personnel files
     
-    L E V E L T H R E E - S I M P L E W A L K T H R O U G H =============================================================================Well, the difficulty of the game *has* just been stepped up a notch.
-    you want to cut the connection to the detonator far right
+    This does take a hunk out of your energy
+    L,F,F , and push the crate out of the way R
+    you don't have to worry about energy
+    Leave the room and enter yet another hallway R
+    
+    that flit beneath the sand like fish
+    Defender 5: Guilder 6
