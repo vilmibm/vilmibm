@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Oct 13 16:48:01 EDT 2021
+## Thu Oct 14 16:48:01 EDT 2021
 
-    It'll behelpful, believe me.BACKGROUND
-    While theConfeds can't hurt the drone, the Confeds can hurt you!
-    Timing is important in catching the ball.
-    It has a recognizable compactdesign.Talons are mainly used by Retros and Pirates, though occasionallyused by the Militia.5.2.2 GladiusGladius has a very "wide" design, and is somewhat better armedthan the Talon.Gladius is only flown by the Militia.5.2.3 StilettoStiletto is an extremely fast fighter and very good at catchingsmugglers.
+    and then move to the switches on the left
+    >>Transfighter Missions<< Time for some action missions
+    b'You really should win this battle.
+    These rooms are located at the bottom of dungeons.
     
-    Puzzle level, well, it's up to you
-    Then, stand back and enjoy the ending all 20 seconds of it
-    Yes, the button says Hanger
-    the babbling tongues of the faithful and faithless
+    You'll want to go all the way back to the second door you went through in the base Security Door Puzzle
+    you can return to the hall B
+    Or youmay wish to keep the wolves for now, for use in a later Silver Scroll.If you've converted that village, or you simply cannot be bothered, move ontoLethys' villages.
+    L to move back, X to shoot
     
-    The Drayman is REALLY weak, so you have to let themissiles fly as soon as you get in range.
-    Wow
-    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
-    it is quite slow and make sure it jumps out beforeyou head back to Oxford and land.14.5 MASTERSON 5Transport "artwork" to Perry Naval Base.
+    She communicates in the shine of gold
+    Watch out, as the circus dudes willtry to seek revenge by inconveniencing your village.
+    ..UNCONFIRMED: If you find Roman Lynch at New Constantinople, heasks you to kill Governor Menesch also (a lot of people wantsthat guy dead!).
+    The measure of how much a Village believes in you, this will usuallyaffect the size of your influence.
     
-    Hit the statue up and down until it crumbles.
-    that you play in.'
+    You can get them from under trees and rocks,should fireflys go underneath them, and also from Miracle Dispensers.BEACH BALL
+    !Don't accept any combat mission (yet).
