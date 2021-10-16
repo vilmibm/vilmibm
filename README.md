@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Oct 15 16:48:02 EDT 2021
+## Sat Oct 16 16:48:01 EDT 2021
 
-      Sample names:  Known as Hungry-Girl in her youth
-    You will alsonotice that I've numbered the poles.
-    Bend down to catch the ball.
-    and it's decision time again
+    +D10 security when money is involved
+    If you've been paying attention so far
+    Tell him that you aren't perfect, and serve your penance.
+    You'll come to a back door
     
-    In order to get your Creature back, you must take back threevillages on the "floor" of the island, each one power a different pillar, outof three that are keeping your Creature frozen.So, all affairs in order and your Village is running smoothly?
-    Monkhouse want to get over to Basra.
-     Advances: Shipwright
-    ..12.2 TAYLA 1Objective: Take plastics to Oakham (Pirate base, Pentonvillesystem).
+      Ranks: Oracle, Godseye
+    Instant Chimp Creature.EVIL SOLUTION
+    ---------Seems theres a nasty idol going around these parts.
+    Otherwise, press fire or another direction
     
-    Cannot repairdestroyed items.
-    0.5 sec Energy: 12 GJ Damage: 6.6 cmae Price: 10000013.4 OTHER CHANGESRetros are noticeably nastier.You'll encounter some new ships.14 Righteous Fire Plot Missions Righteous Fire starts quite simple...
-    The only goal here is to survive
-      WEB, or COBWEB - Woven by spiders in the houses of the dying
+    the master password has been changed to Alexei's hero
+    Lots of air and ground targets
+    Or let them live, and use the food to infectLethys' villages.
+    You'll get a bonus later and don't worry about themany more.When you return, you complain to Tayla about how hot her missionshave become.
     
-      Your resistance is 3
-    Yes, Virginia, there is a cheat code
+    Her community saw that she had a great roving spirit and knew that she couldn’t stay in one place for long
+    Take anything else you want through with you.
