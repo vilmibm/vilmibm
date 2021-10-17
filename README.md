@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Oct 16 16:48:01 EDT 2021
+## Sun Oct 17 16:48:01 EDT 2021
 
-    +D10 security when money is involved
-    If you've been paying attention so far
-    Tell him that you aren't perfect, and serve your penance.
-    You'll come to a back door
+    like Kamekh, bring torpedolaunchers.
+    Nav 4 has 3 Gothris, then Kamekhand Gothri.
+    write down how you claw yourself back from the brink
+    Now it's time to do some SERIOUS back-tracking
     
-      Ranks: Oracle, Godseye
-    Instant Chimp Creature.EVIL SOLUTION
-    ---------Seems theres a nasty idol going around these parts.
-    Otherwise, press fire or another direction
+    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
+    with help from the original PC Cyberia walkthrough author unknown
+    PRICE
+    Leave the room and enter yet another hallway R
     
-    the master password has been changed to Alexei's hero
-    Lots of air and ground targets
-    Or let them live, and use the food to infectLethys' villages.
-    You'll get a bonus later and don't worry about themany more.When you return, you complain to Tayla about how hot her missionshave become.
+    Rinse and repeatfor the other drowning villagers.
+    You pick the first, the group picks the second
+    You don'tnessessarily have to cast it into the Village Store, just make sure thereare lots of people near where you cast it.
+    three active switches
     
-    Her community saw that she had a great roving spirit and knew that she couldn’t stay in one place for long
-    Take anything else you want through with you.
+    roll on this table four times
+      Ranks: Constable, Blade
