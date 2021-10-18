@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Oct 17 16:48:01 EDT 2021
+## Mon Oct 18 16:48:01 EDT 2021
 
-    like Kamekh, bring torpedolaunchers.
-    Nav 4 has 3 Gothris, then Kamekhand Gothri.
-    write down how you claw yourself back from the brink
-    Now it's time to do some SERIOUS back-tracking
+    Exit the room L,F Head back down the hall L
+    Simple actions: point the crosshairs at the targeted box and fire
+    You will alsonotice that I've numbered the poles.
+    It's a renter in my book this FAQ has been written from a rental weekend
     
-    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
-    with help from the original PC Cyberia walkthrough author unknown
-    PRICE
-    Leave the room and enter yet another hallway R
+    At nav 2, you'll find 3 Dralthis, 2 Gothris,and 3 Dralthis.
+    Some collect these godlings and use them in parasitic
+    Codes and Cheats Is there a cheat code for this game
+      There are numberless SMALL GODS
     
-    Rinse and repeatfor the other drowning villagers.
-    You pick the first, the group picks the second
-    You don'tnessessarily have to cast it into the Village Store, just make sure thereare lots of people near where you cast it.
-    three active switches
+    Instead ofquesting to remove some all-powerful evil, you are questing toward self-improvement to become an Avatar.
+    Hit the bee with an uppercut. THE DESERT 1.
+    If you want firepower, this is the ship you want.
+      THE OTHERS  When you make a character
     
-    roll on this table four times
-      Ranks: Constable, Blade
+    The best method is to attack right the long thrust
+    ---------In the middle village, there lives a man.
