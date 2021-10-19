@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Oct 18 16:48:01 EDT 2021
+## Tue Oct 19 16:48:01 EDT 2021
 
-    Exit the room L,F Head back down the hall L
-    Simple actions: point the crosshairs at the targeted box and fire
-    You will alsonotice that I've numbered the poles.
-    It's a renter in my book this FAQ has been written from a rental weekend
+    Quickly shoot him before he throws it R
+    =*
+    then you will defeat Nemesis, Guide's old God.
+    >>Cyberia Complex Level 3<< You made it
     
-    At nav 2, you'll find 3 Dralthis, 2 Gothris,and 3 Dralthis.
-    Some collect these godlings and use them in parasitic
-    Codes and Cheats Is there a cheat code for this game
-      There are numberless SMALL GODS
+    D to duck, L and R to aim
+    hit the submarine with everything you've got left
+    hovercraft, and fighters black dots on your radar
+    and that would be MOST of them, esp.
     
-    Instead ofquesting to remove some all-powerful evil, you are questing toward self-improvement to become an Avatar.
-    Hit the bee with an uppercut. THE DESERT 1.
+    Generally, referring to the whole city as your domain is only done by the richest
+    Once per game, when you need a burst of vigour
+    Yes, that really wasn't relevant.
+    when you upgrade to afterburners.5.5 CAPITAL SHIPS5.5.1 ParadigmParadigm is a Confed corvette that can dish out quite a bit offirepower.
+    
     If you want firepower, this is the ship you want.
-      THE OTHERS  When you make a character
-    
-    The best method is to attack right the long thrust
-    ---------In the middle village, there lives a man.
+    .. And it's all up toyou.Here are some combat tips against the drone:-- Don't get between the Confed fleet and the drone!
