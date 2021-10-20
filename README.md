@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Oct 19 16:48:01 EDT 2021
+## Wed Oct 20 16:48:01 EDT 2021
 
-    Quickly shoot him before he throws it R
-    =*
-    then you will defeat Nemesis, Guide's old God.
-    >>Cyberia Complex Level 3<< You made it
+    F,F,F,R,F,L,F for a little piece and quiet
+    Get ready, THEN enter the first door on your right
+    It hasmultiple turrets and has quite a bit of firepower.Only Confed fly Broadsword5.3.2 GothriGothri is a fast and quite maneuverable heavy fighter.
+    Monkhouse want to get over to Basra.
     
-    D to duck, L and R to aim
-    hit the submarine with everything you've got left
-    hovercraft, and fighters black dots on your radar
-    and that would be MOST of them, esp.
+    a trade cartel that offers protection and law enforcement to the far-apart towns
+    Once per scene, your precision is equal to your extent
+      Ranks: Defender, Paladin
+    Solution: PUZZLE LEVEL 1
     
-    Generally, referring to the whole city as your domain is only done by the richest
-    Once per game, when you need a burst of vigour
-    Yes, that really wasn't relevant.
-    when you upgrade to afterburners.5.5 CAPITAL SHIPS5.5.1 ParadigmParadigm is a Confed corvette that can dish out quite a bit offirepower.
+    like Kamekh, bring torpedolaunchers.
+    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
+    He'sin a Talon ace?
+    simplyplace practically anything on the altar, and it will be destroyed, giving youMana for Miracles.
     
-    If you want firepower, this is the ship you want.
-    .. And it's all up toyou.Here are some combat tips against the drone:-- Don't get between the Confed fleet and the drone!
+    Cyberia FAQ for the Sony Playstation 			 Version 1
+    In summary, you're ZAK
