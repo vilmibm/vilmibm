@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Oct 20 16:48:01 EDT 2021
+## Thu Oct 21 16:48:01 EDT 2021
 
-    F,F,F,R,F,L,F for a little piece and quiet
-    Get ready, THEN enter the first door on your right
-    It hasmultiple turrets and has quite a bit of firepower.Only Confed fly Broadsword5.3.2 GothriGothri is a fast and quite maneuverable heavy fighter.
-    Monkhouse want to get over to Basra.
+    Now all youneed to do is to start expanding your influence and capture villages.
+    although this may just be my imagination
+    > Walk back out to the hallway F
+    Go to thebay near your temple, and pick up fish from there.
     
-    a trade cartel that offers protection and law enforcement to the far-apart towns
-    Once per scene, your precision is equal to your extent
-      Ranks: Defender, Paladin
-    Solution: PUZZLE LEVEL 1
+    You'll learn that the janitor has been fired
+    Blast everything in sight
+    Orange is on, yellow is off
+    ..
     
-    like Kamekh, bring torpedolaunchers.
-    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
-    He'sin a Talon ace?
-    simplyplace practically anything on the altar, and it will be destroyed, giving youMana for Miracles.
+    Pays 10K.The place is full of Gothris.
+    Once it, and its pillar, is takendown, Lethys will make wolves run towards your village, and you've got to dealwith them as usual.
+    ..
+    The goddesses are deep beneath the sand
     
-    Cyberia FAQ for the Sony Playstation 			 Version 1
-    In summary, you're ZAK
+    There's only one active switch
+    ITTS.
