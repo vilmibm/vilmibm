@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Oct 21 16:48:01 EDT 2021
+## Fri Oct 22 16:48:01 EDT 2021
 
-    Now all youneed to do is to start expanding your influence and capture villages.
-    although this may just be my imagination
-    > Walk back out to the hallway F
-    Go to thebay near your temple, and pick up fish from there.
+    Humility, BlackYou will now be at the final destination in your quest.
+    You've got a bomb in your brain
+    Switch to tractor beam, aim at the cargo, andhit the trigger.
+    .. No mission is needed.Interesting note: If you managed to tractor in someone's escapepod, you can sell it as 1 ton of slave.Piracy usually require heavy combat and should only be handled bya hefty ship like Centurion or maybe Orion.
     
-    You'll learn that the janitor has been fired
-    Blast everything in sight
-    Orange is on, yellow is off
-    ..
+    so try not to hit too many of them
+    You can either follow himnow, or get the final Lethys' village, and finalise any business you have inthis land.
+    Good boy/girl.
+    Quickly shoot him before he throws it R
     
-    Pays 10K.The place is full of Gothris.
-    Once it, and its pillar, is takendown, Lethys will make wolves run towards your village, and you've got to dealwith them as usual.
-    ..
-    The goddesses are deep beneath the sand
+    !Don't accept any combat mission (yet).
+    IH OI------------------- - Mariah, a mage, will join you here. - The rune is in the room with Mariah, by her gold. - Cromwell the Paladin knows the mantra: AHMl.
+    PIT STOP - Zubrovska Blue targets are friendly
+    If people see spare woodor food lying about in the village, they will usually take it to the VillageStore for easy storage.
     
-    There's only one active switch
-    ITTS.
+    Once you've taken out the guards
+    Walkthrough with Passwords >>The Rig<< RIG DOCK Once you have arrived at The Rig
