@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Oct 22 16:48:01 EDT 2021
+## Sat Oct 23 16:48:01 EDT 2021
 
-    Humility, BlackYou will now be at the final destination in your quest.
-    You've got a bomb in your brain
-    Switch to tractor beam, aim at the cargo, andhit the trigger.
-    .. No mission is needed.Interesting note: If you managed to tractor in someone's escapepod, you can sell it as 1 ton of slave.Piracy usually require heavy combat and should only be handled bya hefty ship like Centurion or maybe Orion.
+    You have to throw the ball to her 6 times.
+    Back in another hallway
+    Paws (JB GC)
+    Take an advance in either one
     
-    so try not to hit too many of them
-    You can either follow himnow, or get the final Lethys' village, and finalise any business you have inthis land.
-    Good boy/girl.
-    Quickly shoot him before he throws it R
+    Diviner Titles: The Wise
+    Try not to kill any Militia orConfed ships while you're at it.
+    Instant Zebra Creature.
+    This structure is your final line of defense in thegame, as if it is destroyed, you die.
     
-    !Don't accept any combat mission (yet).
-    IH OI------------------- - Mariah, a mage, will join you here. - The rune is in the room with Mariah, by her gold. - Cromwell the Paladin knows the mantra: AHMl.
-    PIT STOP - Zubrovska Blue targets are friendly
-    If people see spare woodor food lying about in the village, they will usually take it to the VillageStore for easy storage.
+    Like the boat, if you fail to destroy it
+    Do the quest, then kill the hippy.Whatever floats your boat.
+    Codes and Cheats Is there a cheat code for this game
+    Seven of them, so be ready
     
-    Once you've taken out the guards
-    Walkthrough with Passwords >>The Rig<< RIG DOCK Once you have arrived at The Rig
+    Then, stand back and enjoy the ending all 20 seconds of it
+    Levels: Stats: Damage:------ ------- ------ -------Covetous 3, 6 STR, DEX 400Deceit 3, 5, 6 IQ 200Despise 4, 8 DEX 200Destard 3, 6 STR 200Hythloth* 5, 3, 1 STR, DEX, IQ 800Shame 1, 4, 8 STR, IQ 400Wrong 2, 6, 7 DEX, IQ 400* the spheres in Hythloth do not appear until you have gone to the eighth  level, and are on the way out.+=============================================================================+| Walkthrough: |+=============================================================================++=============================================================================+| 1.
