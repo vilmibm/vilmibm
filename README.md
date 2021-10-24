@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Oct 23 16:48:01 EDT 2021
+## Sun Oct 24 16:48:01 EDT 2021
 
-    You have to throw the ball to her 6 times.
-    Back in another hallway
-    Paws (JB GC)
-    Take an advance in either one
+    shifting tattoos, exotic diseases
+    May be good as a rear turret gun.4.6 EQUIPMENTI am not really going to list all the equipment, since they arein the manual and most are pretty obvious.
+    High-ranking Official from your church    THE WAYS  There are three ways
+    and meet the security guard
     
-    Diviner Titles: The Wise
-    Try not to kill any Militia orConfed ships while you're at it.
-    Instant Zebra Creature.
-    This structure is your final line of defense in thegame, as if it is destroyed, you die.
     
-    Like the boat, if you fail to destroy it
-    Do the quest, then kill the hippy.Whatever floats your boat.
-    Codes and Cheats Is there a cheat code for this game
-    Seven of them, so be ready
+    boththese things increase the size of your Influence.
+    so get up close to it to look around L
+    but for the arcade sequences
     
-    Then, stand back and enjoy the ending all 20 seconds of it
-    Levels: Stats: Damage:------ ------- ------ -------Covetous 3, 6 STR, DEX 400Deceit 3, 5, 6 IQ 200Despise 4, 8 DEX 200Destard 3, 6 STR 200Hythloth* 5, 3, 1 STR, DEX, IQ 800Shame 1, 4, 8 STR, IQ 400Wrong 2, 6, 7 DEX, IQ 400* the spheres in Hythloth do not appear until you have gone to the eighth  level, and are on the way out.+=============================================================================+| Walkthrough: |+=============================================================================++=============================================================================+| 1.
+    ..what are you waiting for?
+    ..12.14 LYNN MURPHY 1When you get there, you find Palan is currently under a blockadeby bounty hunters.
+    * Two - Again with the Singing Stones!
+    Once per game, +D10 when you involve an NPC
+    
+    Then makeit back to Oakham yes, again
+    It requires a heavy amount ofscaffolds, six for each time you do this.
