@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Oct 24 16:48:01 EDT 2021
+## Mon Oct 25 16:48:01 EDT 2021
 
-    shifting tattoos, exotic diseases
-    May be good as a rear turret gun.4.6 EQUIPMENTI am not really going to list all the equipment, since they arein the manual and most are pretty obvious.
-    High-ranking Official from your church    THE WAYS  There are three ways
-    and meet the security guard
+    This section talks about how you get missions and whattype of missions each source would give.TIP
+    Friends and acquaintances will use your given name
+    I have no idea.
+    There can also be several "hidden" points between thenav points.For example, in ND-57 (Potter Quadrant, SE), the system has 3 navpoints
     
+    They are simply almost any object, infused with the beliefof your villagers.
+    Enter that one by pushing up. THE PIANO 1.
+    Its built almost into the side of ahill, but the giant stones should tip you off to its location.GOOD SOLUTION
+    If not, a "random" encounter is generated.The "random" enemies are randomly chosen based on a series ofprobability tables.
     
-    boththese things increase the size of your Influence.
-    so get up close to it to look around L
-    but for the arcade sequences
+    BOOM.
+    ducking R to cover, standing L and R to aim
+    R,F,F,R,F,F , and quickly get to the computer R
+    whatever raw material) and of course,contraband.If you can find a good route between mining and refinery, you canmake a bit of money, but usually these routes go by piratesystems and such.6.6 NEW CONSTANTINOPLEThe only thing NC produces that sells well is art (and only onpleasure planets)NC is one of the few places that will NOT buy contraband, thoughyou may get special fixer missions that need you to delivercontraband here.6.7 NEW DETROITNew Detroit is essentially a huge refinery.
     
-    ..what are you waiting for?
-    ..12.14 LYNN MURPHY 1When you get there, you find Palan is currently under a blockadeby bounty hunters.
-    * Two - Again with the Singing Stones!
-    Once per game, +D10 when you involve an NPC
-    
-    Then makeit back to Oakham yes, again
-    It requires a heavy amount ofscaffolds, six for each time you do this.
+    ..Head to Troy, and explore the nearby nav points.
+    ..Objective: Land at Romulus (mining base, Castor system).
