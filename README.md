@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Oct 26 16:48:01 EDT 2021
+## Wed Oct 27 16:48:01 EDT 2021
 
-    Take anything else you want through with you.
-    The focus of all your influence.
-    Drop a rock on him.
-    Go over to the other door and walk though it L
+    BE JP-------- - Julia, a tinker, will join you here.
+    mission computer,Mercenaries' Guild, Merchants' Guild, or the fixers in the bars.In general, the fixers pay best, then Merchants' Guild, thenMercenaries' Guild, then mission computer pays the least.
+    that you haven't checked.You'll eventually come across Governor Menesch with escorts.Menesch will tell you a story about how he sold your gun to theRetros, and those unknown ships are Retros also.
+    Once you've taken out the guards
     
-      THE OTHERS  When you make a character
-    Protector 9: Witness 10
-    you don't have to worry about energy
-    I found it lacking in a lot of areas
+    Not much of interest here
+    a beach ball, and of course, some of your alignment will start swinging towardsevil.
+    You have heard the whispers of something greater than you in your sleep
+    Otherwise, press fire or another direction
     
-    Walk towards the Cyberia weapon F
-    >>Transfighter Missions<< Time for some action missions
-    There is another way out of the dark room
-    These rooms are located at the bottom of dungeons.
+    When you struggle to survive
+      You have chosen to honour a deity with your life in exchange for blessings
+    Your gun ammo is the horizontal red bar
+    You have a good ideawho this "employer" is
     
-    X and run to the elevator control F
-    You can now enter the Unsafe Door F
+    
+    They willalso attack more.
