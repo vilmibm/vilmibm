@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Nov  4 16:48:01 EDT 2021
+## Fri Nov  5 16:48:01 EDT 2021
 
-    in the heartof the Potter quadrant, around New Constantinople, New Detroit,and Oxford (NC/ND/OX).
-    Well, it's easy to miss in the manual
-    Friends and acquaintances will use your given name
-    and again, and again
+    shields are shown by the green vertical bar
+    F,F , and head back L
+    Your gun ammo is the horizontal red bar
+    Target Lock.
     
-    GL NK)---------- - Search the library (in the 't' section, for truth) for the Book of Truth. - Frasier tells you that part of the WORD is VERm.
-    When you struggle to survive
-    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
-    Just set nav to thejump point and set autopilot
+    Itis usually equipped with torpedo launchers, making them quitedangerous.Only Bounty Hunters fly Demons.5.2.5 DralthiDralthi is the Kilrathi medium fighter that escorts Gothris.
+    I found it lacking in a lot of areas
+    There is another way out of the dark room
+    the Seven-Leagued, the Lost  Witness When you seek to find what is hidden
     
-    it's half standard adventure with amazing graphics and play
-    you get what you want
-    She will start to come after you wait till she is halfway across the screen and throw the ball.
-    This oneis quite faraway, so there are three ways you can convert it to your side.1
+    If you've been paying attention so far
+    Nostealing, attacking innocent people
+    so get up close to it to look around L
+    ..UNCONFIRMED: If you find Roman Lynch at New Constantinople, heasks you to kill Governor Menesch also (a lot of people wantsthat guy dead!).
     
-    and enter the complex F
-    ------------I get tired of typing these, I really do.
+    Chorister  Titles: the Joyful
+    Remove the grating F
