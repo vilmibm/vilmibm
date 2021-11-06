@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Nov  5 16:48:01 EDT 2021
+## Sat Nov  6 16:48:01 EDT 2021
 
-    shields are shown by the green vertical bar
-    F,F , and head back L
-    Your gun ammo is the horizontal red bar
-    Target Lock.
+    but the SELECT button changes the game's brightness gamma adjust
+    This can makethose slow-firing guns worth buying, if you have the energy topower them all.Shield Regen devices
+    Beware
+    Remember, NOTHING OUTSIDE THE SYSTEM!Look for multiple missions you can do in one trip once you can doscout or patrol missions.Keep upgrading your ship.
     
-    Itis usually equipped with torpedo launchers, making them quitedangerous.Only Bounty Hunters fly Demons.5.2.5 DralthiDralthi is the Kilrathi medium fighter that escorts Gothris.
-    I found it lacking in a lot of areas
-    There is another way out of the dark room
-    the Seven-Leagued, the Lost  Witness When you seek to find what is hidden
+    Take Brilliance (contraband!)
+    You've got a bomb in your brain
+    and from the sea by magnetic mines green dots
+    pro?
     
-    If you've been paying attention so far
-    Nostealing, attacking innocent people
-    so get up close to it to look around L
-    ..UNCONFIRMED: If you find Roman Lynch at New Constantinople, heasks you to kill Governor Menesch also (a lot of people wantsthat guy dead!).
+    the smoke-stains on ceilings
+    Honesty, Blue 2.
+    You'll get a bonus later and don't worry about themany more.When you return, you complain to Tayla about how hot her missionshave become.
+    Excellent for wiping out enemyvillages for your takeover.ABODE
     
-    Chorister  Titles: the Joyful
-    Remove the grating F
+    Enter that one by pushing up. THE PIANO 1.
+    Eating one removes sensations of hunger and refreshes the user
