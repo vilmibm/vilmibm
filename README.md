@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Nov  6 16:48:01 EDT 2021
+## Sun Nov  7 16:48:01 EST 2021
 
-    but the SELECT button changes the game's brightness gamma adjust
-    This can makethose slow-firing guns worth buying, if you have the energy topower them all.Shield Regen devices
-    Beware
-    Remember, NOTHING OUTSIDE THE SYSTEM!Look for multiple missions you can do in one trip once you can doscout or patrol missions.Keep upgrading your ship.
+    A structure vital to all villages.
+    When you jump into Nexus system, you'll see some moreof those Unknowns, and when you get to nav 4, you'll face A LOTof Retro Talons.
+    See [7] formission sources
+    !Don't accept any combat mission (yet).
     
-    Take Brilliance (contraband!)
-    You've got a bomb in your brain
-    and from the sea by magnetic mines green dots
-    pro?
+    However, here's a listof the more important items4.6.1 ShieldsShields vary from level 1 (worst) to level 5 (best).
+    through the bird cage, and her cousin through theknife in the study.Enjoy, it is a great game!I would like to hear any thoughts about the ending from others whohave seen it.'
+    Usually involves killing everyone.
+    F,F,F , reach through the open vent for the key L
     
-    the smoke-stains on ceilings
-    Honesty, Blue 2.
-    You'll get a bonus later and don't worry about themany more.When you return, you complain to Tayla about how hot her missionshave become.
-    Excellent for wiping out enemyvillages for your takeover.ABODE
+    you'll instantly die and have to restart
+    Climb the ladder F,F to get on the Catwalk
+    Crescent Waxing Britain Yew Minoc Trinsic3.
+    On theother hand, the university does need some work done
     
-    Enter that one by pushing up. THE PIANO 1.
-    Eating one removes sensations of hunger and refreshes the user
+      When an adversary causes effect to you
+    Retros can be found all over, though mainly inClarke and Fariss quadrants.Retros hate everybody
