@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Nov  9 16:48:01 EST 2021
+## Wed Nov 10 16:48:01 EST 2021
 
-    Turn on the light swith on the left to get rid of the bats. THE CHICKEN MONSTER 1.
-    Too early
-    CL DK------ - Jaana, a druid, will join you here. - The Rune of Justice is in a cell with a criminal.
-    You can find them just about everywhere, but esp.around Perry Naval Base.Confed hates Pirates, Kilrathis, and Retros see factions
+    D Firewood is useful for,well, burning, and then throwing into your enemy's villages.
+    ..When you get to Rygannon to claim the final 10000, Taryn Crosswill thank you for your services.12.22 GOODIN 1If you go to ANY mining base other than Rygannon, you'll findSandra Goodin, attach to Admiral Terrell, in the bar.If you can't make it to any mining base, turn oninvulnerability.
+    Apparently someone brokeinto your hangar and stole your Steltek gun.
+    Clicking on the Silver Scroll above the hut startsthis quest.
     
-    F takes you further into the warehouse
-    Then makeit back to Oakham yes, again
-    * Nine - Children.
-    you're a sitting duck until they recharge again
+    and gave him the name Boulder
+    Monkhouse want to get over to Basra.
+    *-*BACKGROUND
+    Eats power.In general, get the same level of shields as you have engines,and you should be all right.
     
-    Pays 10K.You'll likely meet quite a few pirate or Retro Talons (at least 6total).
-    Walk over to the door R
-    Confeds quickly found to theirdismay that they can't destroy the drone either.
-    Run through the door L
+    perform an MRI scan to view the elevator pumps
+    You must line up all four valves with the pump to open the door
+    You'll reach a junction
+    The result is both a map and a translation aid
     
-    MUWHAHAHAHA
-    go to the panel R,R,F
+    You can't hurtit though, even with that Steltek gun.
+    re-arm your weapon, and walk into the warehouse F
