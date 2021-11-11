@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Nov 10 16:48:01 EST 2021
+## Thu Nov 11 16:48:01 EST 2021
 
-    D Firewood is useful for,well, burning, and then throwing into your enemy's villages.
-    ..When you get to Rygannon to claim the final 10000, Taryn Crosswill thank you for your services.12.22 GOODIN 1If you go to ANY mining base other than Rygannon, you'll findSandra Goodin, attach to Admiral Terrell, in the bar.If you can't make it to any mining base, turn oninvulnerability.
-    Apparently someone brokeinto your hangar and stole your Steltek gun.
-    Clicking on the Silver Scroll above the hut startsthis quest.
+    ---------In the middle village, there lives a man.
+    Pays 10K.
+    If you wish to make one of these, place it near your VillageCentre, where people chill out and relax.
+    (Thank you,Geography class.)
     
-    and gave him the name Boulder
-    Monkhouse want to get over to Basra.
-    *-*BACKGROUND
-    Eats power.In general, get the same level of shields as you have engines,and you should be all right.
+    Try the ultimateevil, find his sheep THEN kill him.
+    L to move back, X to shoot
+     The Small Gods grant a general blessing
+    It's a blast.'
     
-    perform an MRI scan to view the elevator pumps
-    You must line up all four valves with the pump to open the door
-    You'll reach a junction
-    The result is both a map and a translation aid
+    It'll behelpful, believe me.BACKGROUND
+    everybody theyhate2.2 MILITIAThe Confed forces can't be everywhere, so local systems havetheir own militias.
+    Codes and Cheats Is there a cheat code for this game
+    You have a good ideawho this "employer" is
     
-    You can't hurtit though, even with that Steltek gun.
-    re-arm your weapon, and walk into the warehouse F
+    He promised you themoney when you come back.You should get some commodity that Liverpool would want and sellthem there.Enemies are randomly generated based on local distribution.When you return, you found Sandoval is nowhere to be found
+    But he needsanother mission done.
