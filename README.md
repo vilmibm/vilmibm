@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Nov 11 16:48:01 EST 2021
+## Fri Nov 12 16:48:01 EST 2021
 
-    ---------In the middle village, there lives a man.
-    Pays 10K.
-    If you wish to make one of these, place it near your VillageCentre, where people chill out and relax.
-    (Thank you,Geography class.)
+    you'll die, so be very fast and precise
+    ------------The sheep can be found at the following places...pick them up and return themto the farmer's pen.1) Its nearby the house where you got the third Gate Stone, AKA, the Sculptor'shouse.2) Its behind the Gate that you had to open.3) Its where you found the sick man for the second Gate Stone quest.4) Its next to the hut where you practiced stone throwing.5) Its on the edge of the village, in a pen with some pigs.6) Remember the path that you came along when you first started?
+    I see the Freak Wave has been up to his old tricks.
+    Join Mercenaries Guild to get moreassignments.
     
-    Try the ultimateevil, find his sheep THEN kill him.
-    L to move back, X to shoot
-     The Small Gods grant a general blessing
-    It's a blast.'
+    No-one can read them reliably
+    Usually involves killing everyone.
+    And frankly, he's a jerk  trying to "destroy the living" or what not, so he probably deserves the bad  treatment.
+      Ranks: Agent, Crownsman
     
-    It'll behelpful, believe me.BACKGROUND
-    everybody theyhate2.2 MILITIAThe Confed forces can't be everywhere, so local systems havetheir own militias.
-    Codes and Cheats Is there a cheat code for this game
-    You have a good ideawho this "employer" is
+    Since you have no Creature, you're gonna have towait for your influence to grow before you can start to convert the firstvillage.
+    ..Privateer is a spiritual descendent of the game called Elite,which is a VERY old game, having first came out for the 8-bitcomputers using monochrome screens.
+    Usually involves killing everyone.
+    ..on testostorone.
     
-    He promised you themoney when you come back.You should get some commodity that Liverpool would want and sellthem there.Enemies are randomly generated based on local distribution.When you return, you found Sandoval is nowhere to be found
-    But he needsanother mission done.
+    A vortex will soon open up in the village.
+    To get in, go to the inn and unlock the door
