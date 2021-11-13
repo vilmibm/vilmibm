@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Nov 12 16:48:01 EST 2021
+## Sat Nov 13 16:48:01 EST 2021
 
-    you'll die, so be very fast and precise
-    ------------The sheep can be found at the following places...pick them up and return themto the farmer's pen.1) Its nearby the house where you got the third Gate Stone, AKA, the Sculptor'shouse.2) Its behind the Gate that you had to open.3) Its where you found the sick man for the second Gate Stone quest.4) Its next to the hut where you practiced stone throwing.5) Its on the edge of the village, in a pen with some pigs.6) Remember the path that you came along when you first started?
-    I see the Freak Wave has been up to his old tricks.
-    Join Mercenaries Guild to get moreassignments.
+    A structure vital to all villages.
+    aceflying a Demon, and 2 more Demons
+    Return."Unknowns" ambush you at the Metsor jumppoint in NewcastleSystem!
+    Expect to see arival gang, Salman Kroiz.When you reach Rikel's jump point, you'll encounter Kroiz ?
     
-    No-one can read them reliably
-    Usually involves killing everyone.
-    And frankly, he's a jerk  trying to "destroy the living" or what not, so he probably deserves the bad  treatment.
-      Ranks: Agent, Crownsman
+    You'llbe paid 30000 credits.As you can imagine, Confeds want Lynch's cousin bad
+    .. You have threechoices: Lynn Murphy, Goodin (Confed), or Tayla.
+    Look for the moon, andfly toward it
+    you're a sitting duck until they recharge again
     
-    Since you have no Creature, you're gonna have towait for your influence to grow before you can start to convert the firstvillage.
-    ..Privateer is a spiritual descendent of the game called Elite,which is a VERY old game, having first came out for the 8-bitcomputers using monochrome screens.
-    Usually involves killing everyone.
-    ..on testostorone.
+    If you have a "scoop", you canget free fuel from the local star, and salvage cargo.
+    Double-tap also halves their ECM'seffectiveness against your missiles.
+    ..freak wave has swept a woman's husband and his friends out tosea.
+    When you're there, jump.
     
-    A vortex will soon open up in the village.
-    To get in, go to the inn and unlock the door
+    With dual missile launchers it may even get quickkills.Max engine
+    Be warned, sacrificing people will make you evil, and also,people worshipping at your site need food and the occassional rest.
