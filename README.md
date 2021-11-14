@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Nov 13 16:48:01 EST 2021
+## Sun Nov 14 16:48:01 EST 2021
 
-    A structure vital to all villages.
-    aceflying a Demon, and 2 more Demons
-    Return."Unknowns" ambush you at the Metsor jumppoint in NewcastleSystem!
-    Expect to see arival gang, Salman Kroiz.When you reach Rikel's jump point, you'll encounter Kroiz ?
+    you'll instantly die and have to restart
+    Exit the room back to the main hallway R
+    You'll get 30000credits if you succeed.On your way
+    Fly up next toit
     
-    You'llbe paid 30000 credits.As you can imagine, Confeds want Lynch's cousin bad
-    .. You have threechoices: Lynn Murphy, Goodin (Confed), or Tayla.
-    Look for the moon, andfly toward it
-    you're a sitting duck until they recharge again
+    ..12.17 MONKHOUSE 1Dr.
+    One final arcade sequence--this time it's in space
+    PORT FLYBY - Archangel Military Port Tons of air and ground targets
+    Pirates, Kilrathis, andRetros (see factions)Merchants fly Drayman (transport), Galaxy (transport), Tarsus(scout/transport) (see crafts)Merchant pilots are usually timid, maybe confident rookie or pro(see morale and experience)Their initial attitude toward you is neutral.To make Merchants like you, you should:* not attack merchantsTechnically merchants won't really "like" you.
     
-    If you have a "scoop", you canget free fuel from the local star, and salvage cargo.
-    Double-tap also halves their ECM'seffectiveness against your missiles.
-    ..freak wave has swept a woman's husband and his friends out tosea.
-    When you're there, jump.
+    .. Like encounter ancient civilizations...You can choose to be a merchant, a bounty hunter, a smuggler, oreven a pirate.1.3 OTHER WING COMMANDER GAMESDon't forget Wing Commander (two special mission packs), WingCommander 2 (two special operations packs), Wing Commander III,Wing Commander IV, Wing Commander Prophecy (and Secret Ops), WingCommander: Armada, and Wing Commander Academy.1.4 AND AFTER THIS.There is a semi-sequel called Privateer II: The Darkening.1.5 OTHER RELATED GAMESIf you like this kind of flexibility, check out the followinggames:X: Beyond the Frontier (Southpeak Interactive) and its expansionpack, called X-Tension.Tachyon: The Fringe (Novalogic)Hardwar (Interplay)Freelancer (Microsoft, coming soon)1.6 MODERN MACHINE COMPATIBILITYWC:P is a DOS-era game, and thus it has severe problems workingon modern Windows machines.However, http://www.angelfire.com/yt/privater/ seems to havefound some ways to get WC:P to run on 95/98/ME.2 Introducing the factions...There are SEVEN different major factions in the Gemini Sector.You can choose to align with most of them.To get a particular side to HATE you, just do the opposite ofwhatever you need to do to make that side like you.2.1 CONFEDERATIONYou are in Confed territory, so in general, you should be nice toConfed forces.
+    the dreams of addicts
+    Credits This FAQ was written by CJayC
+    ace?
     
-    With dual missile launchers it may even get quickkills.Max engine
-    Be warned, sacrificing people will make you evil, and also,people worshipping at your site need food and the occassional rest.
+    I suggest you go sit at the computer terminal R
+    It's a basic logic diagram
