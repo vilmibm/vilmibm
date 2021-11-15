@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Nov 14 16:48:01 EST 2021
+## Mon Nov 15 16:48:01 EST 2021
 
-    you'll instantly die and have to restart
-    Exit the room back to the main hallway R
-    You'll get 30000credits if you succeed.On your way
-    Fly up next toit
+    ------------------------------------- - Talk to Sentri to get the Word: CORn.
+    .. No mission is needed.Interesting note: If you managed to tractor in someone's escapepod, you can sell it as 1 ton of slave.Piracy usually require heavy combat and should only be handled bya hefty ship like Centurion or maybe Orion.
+    F , turn around and lock it behind you L
+    Once per scene, begin performing
     
-    ..12.17 MONKHOUSE 1Dr.
-    One final arcade sequence--this time it's in space
-    PORT FLYBY - Archangel Military Port Tons of air and ground targets
-    Pirates, Kilrathis, andRetros (see factions)Merchants fly Drayman (transport), Galaxy (transport), Tarsus(scout/transport) (see crafts)Merchant pilots are usually timid, maybe confident rookie or pro(see morale and experience)Their initial attitude toward you is neutral.To make Merchants like you, you should:* not attack merchantsTechnically merchants won't really "like" you.
+    People live here.
+    Tayla will give you 10000 credits when you get there.Oakham is a pirate base with an asteroid field.
+      Sample names:  Known as Hungry-Girl in her youth
+    (See the Simple Walkthrough)Bring a piece of your Creatures
     
-    .. Like encounter ancient civilizations...You can choose to be a merchant, a bounty hunter, a smuggler, oreven a pirate.1.3 OTHER WING COMMANDER GAMESDon't forget Wing Commander (two special mission packs), WingCommander 2 (two special operations packs), Wing Commander III,Wing Commander IV, Wing Commander Prophecy (and Secret Ops), WingCommander: Armada, and Wing Commander Academy.1.4 AND AFTER THIS.There is a semi-sequel called Privateer II: The Darkening.1.5 OTHER RELATED GAMESIf you like this kind of flexibility, check out the followinggames:X: Beyond the Frontier (Southpeak Interactive) and its expansionpack, called X-Tension.Tachyon: The Fringe (Novalogic)Hardwar (Interplay)Freelancer (Microsoft, coming soon)1.6 MODERN MACHINE COMPATIBILITYWC:P is a DOS-era game, and thus it has severe problems workingon modern Windows machines.However, http://www.angelfire.com/yt/privater/ seems to havefound some ways to get WC:P to run on 95/98/ME.2 Introducing the factions...There are SEVEN different major factions in the Gemini Sector.You can choose to align with most of them.To get a particular side to HATE you, just do the opposite ofwhatever you need to do to make that side like you.2.1 CONFEDERATIONYou are in Confed territory, so in general, you should be nice toConfed forces.
-    the dreams of addicts
-    Credits This FAQ was written by CJayC
-    ace?
+    key!
     
-    I suggest you go sit at the computer terminal R
-    It's a basic logic diagram
+    Try to get missions that need you todeliver to NC or ND.The enemies outside Troy are significantly smarter and deadlier.You should NOT perform a patrol or scout mission in a Tarsusoutside the Troy system until you reach NC/ND/OX.Once you made it to NC/ND/OX area, accept delivery missions untilyou can upgrade to an Orion.
+    Use five consecutive long jab to kill the first one.
+    
+    He'sin a Talon ace?
+    Enter the contaminated zone F
