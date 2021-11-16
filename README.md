@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Nov 15 16:48:01 EST 2021
+## Tue Nov 16 16:48:01 EST 2021
 
-    ------------------------------------- - Talk to Sentri to get the Word: CORn.
-    .. No mission is needed.Interesting note: If you managed to tractor in someone's escapepod, you can sell it as 1 ton of slave.Piracy usually require heavy combat and should only be handled bya hefty ship like Centurion or maybe Orion.
-    F , turn around and lock it behind you L
-    Once per scene, begin performing
+    everybody theyhate2.2 MILITIAThe Confed forces can't be everywhere, so local systems havetheir own militias.
+    Once its fully infused, yoursymbol will appear above it.
+    in addition to your core three six-sided dice
+    4 the ships for more advice onoutfitting.Some of these hints are obvious, but worth repeating* Shoot other ships in the rear, where armor/shields are theweakest* Concentrate on the strongest ship, kill it before continuingto the next one.* Keep moving.
     
-    People live here.
-    Tayla will give you 10000 credits when you get there.Oakham is a pirate base with an asteroid field.
-      Sample names:  Known as Hungry-Girl in her youth
-    (See the Simple Walkthrough)Bring a piece of your Creatures
+    Take your time to take stuff through to the next land.
+    Go through the door and along the wall next to the window F
+    Exit the room back to the main hallway R
+    Use anyremaining credits to join Merchants' Guild so you get higher-paying missions.Remember NOT to accept missions that require you to go outsidethe Troy system
     
-    key!
+    You caneven mine asteroids with a mining laser.
+    F,R,F,F,L,F,F,F,F into Hallway 	F
+    escorted by 3 other Talons in the Newcastlesystem waiting for you.
+    and gave him the name Boulder
     
-    Try to get missions that need you todeliver to NC or ND.The enemies outside Troy are significantly smarter and deadlier.You should NOT perform a patrol or scout mission in a Tarsusoutside the Troy system until you reach NC/ND/OX.Once you made it to NC/ND/OX area, accept delivery missions untilyou can upgrade to an Orion.
-    Use five consecutive long jab to kill the first one.
-    
-    He'sin a Talon ace?
-    Enter the contaminated zone F
+    Well, it's easy to miss in the manual
+    you'll die, so be very fast and precise
