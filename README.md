@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Nov 17 16:48:01 EST 2021
+## Thu Nov 18 16:48:01 EST 2021
 
-    Follow him.GOOD SOLUTION
-    hovercraft, and fighters black dots on your radar
-    After using the top and bottom icons for more informaiton
-    All four pumps fall at different rates
+    Lord British's Castle (GL FG)
+    Just kill them.14.3 MASTERSON 3Transport "books" to Burton, in Junction system.
+    *hint* The witch, likemost humans, burns easily.
+    Enter the first door on your right R
     
-    Take more Brilliance to New Constantinople (yes, thatone).
-    When you cause great effect on an evildoer
-    
-    This Vortex will stay open until you gothrough.
-    
-    It is a combination of genres
-    Instant Chimp Creature.EVIL SOLUTION
-      Name each and write them down
-    Use five consecutive long jab to kill the first one.
-    
+      WEB, or COBWEB - Woven by spiders in the houses of the dying
+    Once you've toasted the guard
+    Usually involves killing everyone.
     Well done, soldier.
-    They will kill ANY humans they find.Kilrathi fly Dralthi
+    
+      The first, and main
+    the Seven-Leagued, the Lost  Witness When you seek to find what is hidden
+    Deliver a message to Seelig, who will be at Nav 2 inPentonville (Pirate) System.
+    On theother hand, the university does need some work done
+    
+    NewConstantinople, New Detroit, Oxford, and Perry Naval Base, for atotal of NINE different bases.Look at the list below and figure out what makes money... Andcreate your own "trade route".See section [7] on the other way to make money: take on missions.6.1 AGRICULTURAL BASEProduces wood, generic food, luxury food, grain, and so on.Buys contraband, plastics, home appliances, and so on.6.2 MINING BASEProduces iron, uranium, and other metalsBuys contraband, plastics, mining equipment, food dispenser, homeappliance, and so on.If you can find a good route between mining and refinery, you canmake a bit of money, but usually these routes go by piratesystems and such.6.3 PIRATE BASEProduces contraband (Brilliance, slaves, Ultimate, tobacco, andso on)Buys just about everything, but likes food dispensers andholographic equipmentIf you want to be a smuggler, you must find a pirate base you canget to, as it's your only access to contraband stuff.6.4 PLEASURE BASEDon't produce anythingBuys anything that makes life easier, including home appliances,robot servants, food, and esp.
+    but only if you've got a lot of remaining ammo to hit it with
