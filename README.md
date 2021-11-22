@@ -9,22 +9,21 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Nov 21 16:48:01 EST 2021
+## Mon Nov 22 16:48:01 EST 2021
 
-    With aCenturion, you can beat back any pirates that gets in your way,and make a ton of money on this route.When you're ready, head for New Detroit, go into the bar, andlocate Ernesto Sandoval in the bar to start the plot missions.11.4 SOME NOTES ON SPACE COMBATCheck back to section
-    To convert Lethys' villages, you should use the same tactics as you used for the neutral villages, but you will require a lot morebelief to overcome Lethys' belief.Once you capture all but one of Lethys' villages, Nemesis will show on thescene.
-    +D8 precision when working out what someone wants
-    Swat the brain cells with the fish when the eye is open.
+    Remember to look for missions that you can do withina single trip, hopefully within the same system.When you have Orion fully decked out, it's time to move intoClarke Quadrant and start taking on some tougher missions, likehunting down Kilrathi.Remember though, no fixer missions until you're completely ready.11.3 NOW IT GETS INTERESTINGEventually you'll want to switch to a Centurion.
+    ..When you return, visit the Admiral in his office at Perry NavalBase.14.24 TERRELL 1 OR TERRELL 2 (DEPENDING ON HOW YOU COUNT)Admiral Terrell needs privateers to search the various systemsfor signs of Modecai Jones.
+    Excellent for wiping out enemyvillages for your takeover.ABODE
+    Rinse and repeatfor the other drowning villagers.
     
-    and then move to the switches on the left
-    The path you choose forms your rank - the one chosen for you forms your title
-    F,F,F through Security Door Turn left
-    ---------Seems theres a nasty idol going around these parts.
+    and when you hit one move to the right one and attack again.
+    Drop a rockon his house.
+    =*
+    They willalso attack more.
     
-    Nothing can be damaged here.
-    In general, theseare pretty easy missions, because they don't pay much.
-    it's half standard adventure with amazing graphics and play
-    Allyou have to do is solve a riddle.GOOD SOLUTION
+    Follow thetransport
+    regenerate shields 25 0.000000asterThruster Enhancer: improved turn rate by about 20      You have chosen to honour a deity with your life in exchange for blessings
+    His cousin needs to "get out of town","away from the heat"
     
-    Allyou have to do is solve a riddle.GOOD SOLUTION
-    ------------------------------------------------------------------------------The following is from Gordon Cameron:1 There is a great glitch on the Commodore 64 version -- it may apply to any version that originally plays the game off 4 floppies and requires swapping. What you do is, you put the Underworld disk in the drive while you are on  the surface.
+    They speak to us through a series of inscrutable signs and symbols
+    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
