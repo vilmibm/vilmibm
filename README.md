@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Nov 24 16:48:01 EST 2021
+## Thu Nov 25 16:48:01 EST 2021
 
-    It's a basic logic diagram
-    you get what you want
-    This will allow you to destroy Lethys' temple, and use theVortex to get through to level three.
-      ELSEWHERE  There are other places
+    Enter the elevator R
+    Climb the ladder F,F to get on the Catwalk
+    Once ineach room you need to use the stone on the altar, the following is a list ofwhich stones go in which rooms
+    the dreams of addicts
     
-    It's a basic logic diagram
-    Problem solved.No more moaning villagers.*-* ULTIMATE POWER *-* Warning
-    Clicking on the Silver Scroll above the hut startsthis quest.
-    Elite itself is partiallybased on Game Designer Workshop's paper-and-pencil sci-fi role-playing game called Travellers.Elite basically starts you in a small ship with very littlearmament or money, and a rating of harmless.
+    To get into the cell, go up to the Ruler of the Castle, and talk to him.
+    You can also gain Mana by sacrifice
+    LOCKED OUT Walk through the doorway
+    Santos will tell you to go through the door on your right R
     
-    L1: Changes to arcade cursor mode up up
-    The All-Seeing, The God-tongue    Persecutor When you attempt to bring a criminal to justice
-    and often opted out when group tasks came up
-    Shrines, Runes, and Mantras |+=============================================================================+Compassion
+    You actually get to see thisone when the man is talking to you about this quest.8
+    However, you justneed them to NOT hate you
+    Remember to turn it off when you get there.
+    before you land,or you won't get credit for it.8.3 ATTACK MISSIONDestroy certain number of targets at a certain nav point.
     
-    This includes, but isn't limited to, using trees.
-    Note
+    Altough there is a neat death sequence on the other side of the door
+    ---------------------------------- Use "T" to talk to someone. The Britannians have a great deal of information for you, all you need to do is learn how to ask them for it.
