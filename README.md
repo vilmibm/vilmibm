@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Nov 25 16:48:01 EST 2021
+## Fri Nov 26 16:48:01 EST 2021
 
-    Enter the elevator R
-    Climb the ladder F,F to get on the Catwalk
-    Once ineach room you need to use the stone on the altar, the following is a list ofwhich stones go in which rooms
-    the dreams of addicts
+    Takeout their base ship, the Black Rhombus.
+    A smaller part cannot go underneath a larger part.
+    Once at the left immediately drop one cotton candy then move one space over to the left and drop the remaining.
+    Food, Heal, Lightning, Strengthen Creature,Water and perhaps Heal Increase.
     
-    To get into the cell, go up to the Ruler of the Castle, and talk to him.
-    You can also gain Mana by sacrifice
-    LOCKED OUT Walk through the doorway
-    Santos will tell you to go through the door on your right R
+    It's a basic logic diagram
+    Of course, you will have to go get it from the girl again. THE PIANO 1.
+    write down how you claw yourself back from the brink
+    in search of some very ominous goings-on there
     
-    You actually get to see thisone when the man is talking to you about this quest.8
-    However, you justneed them to NOT hate you
-    Remember to turn it off when you get there.
-    before you land,or you won't get credit for it.8.3 ATTACK MISSIONDestroy certain number of targets at a certain nav point.
+    These ones give you nothing, you simply place a charged Miracle onthem, and it is turned into a One-Shot Miracle.
+    You'llsee at least 3 at every navpoint, except the last, which has NINEships
+    ---------Well, if you capture the third village (the one thats kinda circular), then youwill see this Silver Scroll above a house in the village.
+    ..When you return, visit the Admiral in his office at Perry NavalBase.14.24 TERRELL 1 OR TERRELL 2 (DEPENDING ON HOW YOU COUNT)Admiral Terrell needs privateers to search the various systemsfor signs of Modecai Jones.
     
-    Altough there is a neat death sequence on the other side of the door
-    ---------------------------------- Use "T" to talk to someone. The Britannians have a great deal of information for you, all you need to do is learn how to ask them for it.
+    DOOR MAN Keep walking towards the complex F
+    If you find any incorrect or missing information from this FAQ
