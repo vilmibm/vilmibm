@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Nov 26 16:48:01 EST 2021
+## Sat Nov 27 16:48:01 EST 2021
 
-    Takeout their base ship, the Black Rhombus.
-    A smaller part cannot go underneath a larger part.
-    Once at the left immediately drop one cotton candy then move one space over to the left and drop the remaining.
-    Food, Heal, Lightning, Strengthen Creature,Water and perhaps Heal Increase.
+    Well, there's a lot of plot for this game
+    so get up close to it to look around L
+    Raise the totem in your village, and worshipperswill flock here to worship around the altar.
+    You will recieve a pile of grain for your efforts.
     
-    It's a basic logic diagram
-    Of course, you will have to go get it from the girl again. THE PIANO 1.
-    write down how you claw yourself back from the brink
-    in search of some very ominous goings-on there
+    Costs 5000 / 10000 / 15000.4.6.5 Missile LauncherMissile launcher launches missiles.
+    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
+    Tell him that you aren't perfect, and serve your penance.
+    Attach him to your hand with theLeash of Learning and charge a fireball into your hand.
     
-    These ones give you nothing, you simply place a charged Miracle onthem, and it is turned into a One-Shot Miracle.
-    You'llsee at least 3 at every navpoint, except the last, which has NINEships
-    ---------Well, if you capture the third village (the one thats kinda circular), then youwill see this Silver Scroll above a house in the village.
-    ..When you return, visit the Admiral in his office at Perry NavalBase.14.24 TERRELL 1 OR TERRELL 2 (DEPENDING ON HOW YOU COUNT)Admiral Terrell needs privateers to search the various systemsfor signs of Modecai Jones.
+    Watch out, as the circus dudes willtry to seek revenge by inconveniencing your village.
+    derived from your paths
+    First Quarter Jhelom Skara Brae Magincia Moonglow4.
+    Once per scene, when you invoke the authority of The Crown
     
-    DOOR MAN Keep walking towards the complex F
-    If you find any incorrect or missing information from this FAQ
+    Inc, distributed by Interplay Productions
+      Ranks: Corpus, Hollow
