@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Nov 27 16:48:01 EST 2021
+## Sun Nov 28 16:48:01 EST 2021
 
-    Well, there's a lot of plot for this game
-    so get up close to it to look around L
-    Raise the totem in your village, and worshipperswill flock here to worship around the altar.
-    You will recieve a pile of grain for your efforts.
+    boats, and aircraft that happen to be in your vicinity
+    Go find him near where you fought your battle with Guide.GOOD SOLUTION
+    Serpent's Hold and surrounding Area (PB JC)
+    Follow thetransport
     
-    Costs 5000 / 10000 / 15000.4.6.5 Missile LauncherMissile launcher launches missiles.
-    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
-    Tell him that you aren't perfect, and serve your penance.
-    Attach him to your hand with theLeash of Learning and charge a fireball into your hand.
+    Jump through, andJones will be there
+    You shouldmake your way to Perry Naval Base
+    Sure enough, there are still heat traces left on the pad
+    Balled up and placed under the top lip
     
-    Watch out, as the circus dudes willtry to seek revenge by inconveniencing your village.
-    derived from your paths
-    First Quarter Jhelom Skara Brae Magincia Moonglow4.
-    Once per scene, when you invoke the authority of The Crown
+    Take anything else you want through with you.
+    .If you don't kill Kroiz in the first encounter, he'll show upagain with FIVE Demons as escort when you almost reach yourdestination.12.8 LYNCH 3Lynch confirmed that the artifact is alien
+    When you try to outpace someone or something
+    F into Conference Room 	F
     
-    Inc, distributed by Interplay Productions
-      Ranks: Corpus, Hollow
+    Examine the patient status
+    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
