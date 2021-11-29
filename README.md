@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Nov 28 16:48:01 EST 2021
+## Mon Nov 29 16:48:01 EST 2021
 
-    boats, and aircraft that happen to be in your vicinity
-    Go find him near where you fought your battle with Guide.GOOD SOLUTION
-    Serpent's Hold and surrounding Area (PB JC)
-    Follow thetransport
+    When you're through, you can enter the next room which only contains a broken terminal
+    ..you'll get nothing if everyone dies, though.
+    Costs 30000In Righteous Fire, you get access to "Advanced Repair Droid",which costs twice as much and repairs 50 0.000000aster.4.6.8 Cargo expansionMakes your cargo bay slightly larger.
+    Curiously smooth, irregularly-shaped glass
     
-    Jump through, andJones will be there
-    You shouldmake your way to Perry Naval Base
-    Sure enough, there are still heat traces left on the pad
-    Balled up and placed under the top lip
+    Up
+    Climb the ladder F,F to get on the Catwalk
+    When you track or chase down an adversary
+    Charge a Miracle in your hand, click on theMiracle Dispenser, and it will be turned into a One-Shot Miracle!
     
-    Take anything else you want through with you.
-    .If you don't kill Kroiz in the first encounter, he'll show upagain with FIVE Demons as escort when you almost reach yourdestination.12.8 LYNCH 3Lynch confirmed that the artifact is alien
-    When you try to outpace someone or something
-    F into Conference Room 	F
+    How dare she ask you to, like, do,like, stuff!
+    You can browse through Alexei's V-mail the four icons on the right
+    and then step on the innoculator F
+    F,F,F,R,F,L,F for a little piece and quiet
     
-    Examine the patient status
-    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
+    Take more Brilliance to New Constantinople (yes, thatone).
+    you may only place it on the way it is associated with
