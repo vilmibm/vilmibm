@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Nov 29 16:48:01 EST 2021
+## Tue Nov 30 16:48:01 EST 2021
 
-    When you're through, you can enter the next room which only contains a broken terminal
-    ..you'll get nothing if everyone dies, though.
-    Costs 30000In Righteous Fire, you get access to "Advanced Repair Droid",which costs twice as much and repairs 50 0.000000aster.4.6.8 Cargo expansionMakes your cargo bay slightly larger.
-    Curiously smooth, irregularly-shaped glass
+    ..UNCONFIRMED: If you find Roman Lynch at New Constantinople, heasks you to kill Governor Menesch also (a lot of people wantsthat guy dead!).
+    To get in, go to the inn and unlock the door
+    Now all you do is alternate between thetwo areas, picking up a villager at him Temple, and sacrificing it at yourTemple.
+    ----------------------- - Make sure to talk to Lord British and accept the Quest of the Avatar  otherwise this will be a very short game!
     
-    Up
-    Climb the ladder F,F to get on the Catwalk
-    When you track or chase down an adversary
-    Charge a Miracle in your hand, click on theMiracle Dispenser, and it will be turned into a One-Shot Miracle!
+    0.5 sec Energy: 12 GJ Damage: 6.6 cmae Price: 10000013.4 OTHER CHANGESRetros are noticeably nastier.You'll encounter some new ships.14 Righteous Fire Plot Missions Righteous Fire starts quite simple...
+    Pays 10K.You're almost at the border, so expect LOTS of Kilrathi presence,up to even Kamekh corvettes.
+    At the base of it, you'll find a Wood MiracleDispenser.
+    When the message is delivered,return to NC.
     
-    How dare she ask you to, like, do,like, stuff!
-    You can browse through Alexei's V-mail the four icons on the right
-    and then step on the innoculator F
-    F,F,F,R,F,L,F for a little piece and quiet
+    Try to avoid a fight if it's possible.
+    Even those merchants with theirpopguns will come after you.
+    You'll get 10000 credits.When you get to Beta's nav 3, you'll find Captain Garrovick in aCenturion, and he's completely wacko.
+    Take them out(preferred) or run away.If you make it to the jump point without taking out Riodian,he'll be there again with 5 Pirate Talons (pros?
     
-    Take more Brilliance to New Constantinople (yes, thatone).
-    you may only place it on the way it is associated with
+    The admiral believe that green blob is a Kilrathi secretweapon that somehow thought you're its guide.
+    Problem solved.No more moaning villagers.*-* ULTIMATE POWER *-* Warning
