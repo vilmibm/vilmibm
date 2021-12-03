@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Dec  2 16:48:01 EST 2021
+## Fri Dec  3 16:48:01 EST 2021
 
-    Once you have a good antidote
-    Grab one of the sticks and then attack the rose bush.
-    ISLAND RUN - Military Islands Blow up the munitions dumps
-    They're drowning and they need rescued, quickity quick.
+    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
+    So you can get the picture, my A is a Wrigley's Spearmintwrapper, B is a MiniDisc, C is a folded up piece of A4 and D is a dentistappointment card.
+    Itseems Miracle Dispensers are also a prime target for the reflection of Templedamage.VILLAGE CENTRE
+    .. 1.
     
-    so walk to the door, go through it F
-    Exit the room back to the main hallway R
-    When you meet a strange culture for the first time
-    ..12.9 LYNCH 4When you come back to NC, Miggs is not there... Lynch wants youto pickup Mr. Smythe from Liverpool (Refinery base, Newcastlesystem).
+    Givingmoney to beggars
+    In case you've never had to deal with this kind of logic
+    Choose either door.
+    Again, you should afterburner past them, ignoringtheir fire.
     
-    ---------In the middle village, there lives a man.
-    Throwing the skull of Mondain into the Abyss -5
-    We call this the Village Drop manuouever.
-    F , and listen to the conversation
+    F into Conference Room 	F
+    You've got a bomb in your brain
+    The only thingthat can hurt the drone is your Steltek gun
+    ..
     
-    See [7] for mission sources
-    take the right path R
+    ..butdamn; thats one nasty act.
+    Press the
