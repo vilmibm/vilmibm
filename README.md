@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Dec  3 16:48:01 EST 2021
+## Sat Dec  4 16:48:01 EST 2021
 
-    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
-    So you can get the picture, my A is a Wrigley's Spearmintwrapper, B is a MiniDisc, C is a folded up piece of A4 and D is a dentistappointment card.
-    Itseems Miracle Dispensers are also a prime target for the reflection of Templedamage.VILLAGE CENTRE
-    .. 1.
+    The goddesses are deep beneath the sand
+    Defender 5: Guilder 6
+    (The format is: His/her name, his/her type, the town/castle he/she resides) Talfourd, Druid, Yew Flamis, Fire, Yew Guards, Guard, Yew Julio, Bard, Britain Mentar, Shepherd, Britain Silver John, Villager, Den Gate Guard, Guard, Empath Abbey Diane, Villager, Empath Abbey Sir Hrothgar, Fighter, Jhelom X, Fighter, Jhelom Estro, Druid, Lycaeum Katrina, Shepherd, Magincia Faultless, Ghost, Magincia Heywood, Ghost, Magincia Slim, Skeleton, Magincia Virtuebane, Devil, Magincia Patric, Shepherd, Moonglow White, Fighter, Skara Brae Nameless Prisoner, Beggar, Britannia Shawn, Shepherd, Britannia Guards, Guard, Britannia+=============================================================================+| vii.
+    You can now take all these One-Shot Miracles through the next world, to help you there.Handy, non?*-* TEACHING YOUR CREATURE FIREBALL *-*When Khazar is teaching you how to attack with fireballs, use the Leash tobring your Creature over to where you are.
     
-    Givingmoney to beggars
-    In case you've never had to deal with this kind of logic
-    Choose either door.
-    Again, you should afterburner past them, ignoringtheir fire.
+    Some families jealously guard old names
+    The artifact is apparently Steltek, whohaven't been seen for millennia.
+    .Kill them all.12.15 LYNN MURPHY 2Destroy more enemy patrols.Objective
+    F,F , and approach the plane F
     
-    F into Conference Room 	F
-    You've got a bomb in your brain
-    The only thingthat can hurt the drone is your Steltek gun
-    ..
+    you'll die, so be very fast and precise
+    See [4] forrecommended loadout for your ship.
+    In order to get your Creature back, you must take back threevillages on the "floor" of the island, each one power a different pillar, outof three that are keeping your Creature frozen.So, all affairs in order and your Village is running smoothly?
+    Even those merchants with theirpopguns will come after you.
     
-    ..butdamn; thats one nasty act.
     Press the
+    This does take a hunk out of your energy
