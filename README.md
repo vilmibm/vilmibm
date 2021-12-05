@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Dec  4 16:48:01 EST 2021
+## Sun Dec  5 16:48:01 EST 2021
 
-    The goddesses are deep beneath the sand
-    Defender 5: Guilder 6
-    (The format is: His/her name, his/her type, the town/castle he/she resides) Talfourd, Druid, Yew Flamis, Fire, Yew Guards, Guard, Yew Julio, Bard, Britain Mentar, Shepherd, Britain Silver John, Villager, Den Gate Guard, Guard, Empath Abbey Diane, Villager, Empath Abbey Sir Hrothgar, Fighter, Jhelom X, Fighter, Jhelom Estro, Druid, Lycaeum Katrina, Shepherd, Magincia Faultless, Ghost, Magincia Heywood, Ghost, Magincia Slim, Skeleton, Magincia Virtuebane, Devil, Magincia Patric, Shepherd, Moonglow White, Fighter, Skara Brae Nameless Prisoner, Beggar, Britannia Shawn, Shepherd, Britannia Guards, Guard, Britannia+=============================================================================+| vii.
-    You can now take all these One-Shot Miracles through the next world, to help you there.Handy, non?*-* TEACHING YOUR CREATURE FIREBALL *-*When Khazar is teaching you how to attack with fireballs, use the Leash tobring your Creature over to where you are.
+    Note
+    Ifyou have a fast ship, just keep your shields up and afterburnerpast them.Tip
+    continue down until you find the next room F
+    Now, I'm aboutto do this puzzle on the desk in front of me, so it may not be the quickest way, but it'll do.
     
-    Some families jealously guard old names
-    The artifact is apparently Steltek, whohaven't been seen for millennia.
-    .Kill them all.12.15 LYNN MURPHY 2Destroy more enemy patrols.Objective
-    F,F , and approach the plane F
+    L1: Changes to arcade cursor mode up up
+    Rooms:------ Truth: Blue Green Purple White Courage: Red Orange Purple White Love: Yellow Orange Green WhiteStygian Abyss:--------------You should now have all 8 stones, the 3 part key, the Skull of Mondain, and the3 artifacts of Principle (Bell of Courage, Candle of Love, Book of Truth).
+    and often opted out when group tasks came up
+    but he can't see you through the crate
     
-    you'll die, so be very fast and precise
-    See [4] forrecommended loadout for your ship.
-    In order to get your Creature back, you must take back threevillages on the "floor" of the island, each one power a different pillar, outof three that are keeping your Creature frozen.So, all affairs in order and your Village is running smoothly?
-    Even those merchants with theirpopguns will come after you.
-    
+    It's a basic logic diagram
+    Walk back to the junction from the box
+    <<Bomb Puzzle>> Scan the bomb with your MRI
     Press the
-    This does take a hunk out of your energy
+    
+    Go visit him and bring the Creature once again.
+    BIG SHOCK Walk over to Santos's body
