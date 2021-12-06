@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Dec  5 16:48:01 EST 2021
+## Mon Dec  6 16:48:01 EST 2021
 
-    Note
-    Ifyou have a fast ship, just keep your shields up and afterburnerpast them.Tip
-    continue down until you find the next room F
-    Now, I'm aboutto do this puzzle on the desk in front of me, so it may not be the quickest way, but it'll do.
+    UNDERGROUND - Freight Tunnel This one is rough
+    When you have 4 to 5 pieces on you jump up to grab the stick and exit out. THE AMUSEMENT PARK 1.
+    to Hector Mining base,Troy system
+    However, you justneed them to NOT hate you
     
-    L1: Changes to arcade cursor mode up up
-    Rooms:------ Truth: Blue Green Purple White Courage: Red Orange Purple White Love: Yellow Orange Green WhiteStygian Abyss:--------------You should now have all 8 stones, the 3 part key, the Skull of Mondain, and the3 artifacts of Principle (Bell of Courage, Candle of Love, Book of Truth).
-    and often opted out when group tasks came up
-    but he can't see you through the crate
+    and it's decision time again
+    Usually involves killing everyone.
+    When you track or chase down an adversary
+    re-arm your weapon, and walk into the warehouse F
     
-    It's a basic logic diagram
-    Walk back to the junction from the box
-    <<Bomb Puzzle>> Scan the bomb with your MRI
-    Press the
+    shields are shown by the green vertical bar
+    Decreases cursor speed R1 and R2 are great for fine-tuning your cursor speed in the action sequences if you're using a standard game pad
+    Your gun ammo is the horizontal red bar
+    and you're ready to get back to the adventure part of the game
     
-    Go visit him and bring the Creature once again.
-    BIG SHOCK Walk over to Santos's body
+    NOT FRIENDS No, they're not
+    In order to get your Creature back, you must take back threevillages on the "floor" of the island, each one power a different pillar, outof three that are keeping your Creature frozen.So, all affairs in order and your Village is running smoothly?
