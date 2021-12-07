@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Dec  6 16:48:01 EST 2021
+## Tue Dec  7 16:48:01 EST 2021
 
-    UNDERGROUND - Freight Tunnel This one is rough
-    When you have 4 to 5 pieces on you jump up to grab the stick and exit out. THE AMUSEMENT PARK 1.
-    to Hector Mining base,Troy system
-    However, you justneed them to NOT hate you
+    Too late
+    Go over to the large crate blocking a door F
+     Advances: Hundred-eyes
+    You have 4 differentquadrants you can fly to, total of SIXTY-NINE total systems youcan explore.
     
-    and it's decision time again
-    Usually involves killing everyone.
-    When you track or chase down an adversary
-    re-arm your weapon, and walk into the warehouse F
+    Use some of the tactics I've described above togain his village, if you wish, and once his village is yours, you can sparehim, or defeat him.
+    F takes you further into the warehouse
+    Its in amongstsome trees near the end of that path.7
+    You will recieve a pile of grain for your efforts.
     
-    shields are shown by the green vertical bar
-    Decreases cursor speed R1 and R2 are great for fine-tuning your cursor speed in the action sequences if you're using a standard game pad
-    Your gun ammo is the horizontal red bar
-    and you're ready to get back to the adventure part of the game
+    b'Ultima 4 is unlike every other RPG ever made.
+    roll three six-sided dice and allot them to each
+    Yew
+    So instead of 3shots, you'll shoot 4 times during the same period.
     
-    NOT FRIENDS No, they're not
-    In order to get your Creature back, you must take back threevillages on the "floor" of the island, each one power a different pillar, outof three that are keeping your Creature frozen.So, all affairs in order and your Village is running smoothly?
+    Second time or later willcost you some credits.'
+    The only place I really 		noticed is at the Slice-O-Matic death scene
