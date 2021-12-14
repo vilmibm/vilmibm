@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Dec 13 16:48:01 EST 2021
+## Tue Dec 14 16:48:01 EST 2021
 
-    On the 6th time hold the ball down DON'T throw it
-    but you think they would have invested a few dollars in a dictionary
-    ------ - In the south part of town are some mountains, in a nook find the Rune of Humility. - Find the Magic Shop (secret wall in Armory East) and buy reagants, pay the right amount to increase virtue.
-    what your community think of you and what you’ll be
+    You can find Horses all over the island
+    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
+    The actual size depends onthe particular craft being fitted.4.6.9 Quadrant mapsMaps of all quadrants, you can buy these separately, or get allfour for a bundle discount.4.6.10 TurretNeeded for tractor beam and rear guns.Some ships may allow more than one turret
+    Nasty virus, and it's spreading through the complex
     
-    His community saw that he was quite slow
-    Credits This FAQ was written by CJayC
-    ..removed.GOOD SOLUTION-------------The idol that the people are worshipping is suseptible to fire.
-    You now have access to the base's personnel files
+    You will get 2friendly Talons as wingmen.
+    Or feed them all to the Sheep Creature yougain.Behind the second (Aztec) village, near the coast, is a small hut in front ofa ring of marks in the ground.
+    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
+    you're a sitting duck until they recharge again
     
-    Santos will tell you to go through the door on your right R
-    Climb the ladder F,F to get on the Catwalk
-    what your community think of you and what you’ll be
-    Trust me.Well, that was one hell of a ride now wasn't it?
+    Go find the guard in the windowed room L
+    ..
+    Nate the Snake in Magincia will come after you over and over again, just enter, fight, let him run, and leave.
+    To be used once only.
     
-    In the dark room, head towards the door B
-    ---------Oh, wait, the children have just decided to go swimming.
+    R,F,R,F GOING UP To activate the elevator
+    Upgrade engines BEFORE you upgrade shields.
