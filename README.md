@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Dec 14 16:48:01 EST 2021
+## Wed Dec 15 16:48:01 EST 2021
 
-    You can find Horses all over the island
-    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
-    The actual size depends onthe particular craft being fitted.4.6.9 Quadrant mapsMaps of all quadrants, you can buy these separately, or get allfour for a bundle discount.4.6.10 TurretNeeded for tractor beam and rear guns.Some ships may allow more than one turret
-    Nasty virus, and it's spreading through the complex
+    Part One, The Avatar |+=============================================================================+This game isn't all that complicated, so the walkthrough isn't all that long orcomplicated either.You need to become an Avatar first off.
+    Pays30K.Again, militia doesn't like you smuggling.
+    Pays 10K.No scripted enemies, just random stuff.14.2 MASTERSON 2Patrol Oxford's nav points for enemies.
+    Then follow thejump to the next system
     
-    You will get 2friendly Talons as wingmen.
-    Or feed them all to the Sheep Creature yougain.Behind the second (Aztec) village, near the coast, is a small hut in front ofa ring of marks in the ground.
-    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
-    you're a sitting duck until they recharge again
+    If you don't like ANY of the missions being offered fromMercenaries' Guild, Merchants' Guild, OR the Mission Computer,take off, then land again.
+    !Don't accept any combat mission (yet).
     
-    Go find the guard in the windowed room L
-    ..
-    Nate the Snake in Magincia will come after you over and over again, just enter, fight, let him run, and leave.
-    To be used once only.
+    Take more Brilliance to New Constantinople (yep,again), 10000 credits as compensation, and the secretcompartment.When you leave Oakham, William Riodian (ace?, flying Centurion)shows up.
     
-    R,F,R,F GOING UP To activate the elevator
-    Upgrade engines BEFORE you upgrade shields.
+    ------------Don't harm the poor Creature!
+    but using the IR scan triggers an explosive
+    travelling on sand-skimmers and light gliders
+    Follow him.GOOD SOLUTION
+    
+    They offerthe really challenging missions, and they pay quite well.
+    !Don't accept any combat mission (yet).
