@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Dec 15 16:48:01 EST 2021
+## Thu Dec 16 16:48:01 EST 2021
 
-    Part One, The Avatar |+=============================================================================+This game isn't all that complicated, so the walkthrough isn't all that long orcomplicated either.You need to become an Avatar first off.
-    Pays30K.Again, militia doesn't like you smuggling.
-    Pays 10K.No scripted enemies, just random stuff.14.2 MASTERSON 2Patrol Oxford's nav points for enemies.
-    Then follow thejump to the next system
+    Beware, as wolves reside inthe nearby forest, and will frequently come out at night to kill villagers inthe village.
+    BE JP-------- - Julia, a tinker, will join you here.
+    Wait 30 seconds and you'll see that it's in your brain
+    ------------You're a God.
     
-    If you don't like ANY of the missions being offered fromMercenaries' Guild, Merchants' Guild, OR the Mission Computer,take off, then land again.
-    !Don't accept any combat mission (yet).
+    It's a basic logic diagram
+    You'll want to go all the way back to the second door you went through in the base Security Door Puzzle
+    was Top: 2, Middle: 3
+    His cousin needs to "get out of town","away from the heat"
     
-    Take more Brilliance to New Constantinople (yep,again), 10000 credits as compensation, and the secretcompartment.When you leave Oakham, William Riodian (ace?, flying Centurion)shows up.
+    If you want to convert the village, give them a hand and disposeof the wolves.
+    Drop a rock on him.
+    Don't go to the fish part until later.
+    8.5 DEFEND BASETake out the attackers, simple enough, right?You can get base defense missions through Mercenaries' Guild andMission Computer.
     
-    ------------Don't harm the poor Creature!
-    but using the IR scan triggers an explosive
-    travelling on sand-skimmers and light gliders
-    Follow him.GOOD SOLUTION
-    
-    They offerthe really challenging missions, and they pay quite well.
-    !Don't accept any combat mission (yet).
+    .You'll find the Drayman at nav 1, along with 5 Pirate Talons(pros?).
+    But once you have found one, you can talk to her/him, answer with unproud manner, and then talk to her/him again.
