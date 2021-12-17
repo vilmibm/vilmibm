@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Dec 16 16:48:01 EST 2021
+## Fri Dec 17 16:48:01 EST 2021
 
-    Beware, as wolves reside inthe nearby forest, and will frequently come out at night to kill villagers inthe village.
-    BE JP-------- - Julia, a tinker, will join you here.
-    Wait 30 seconds and you'll see that it's in your brain
-    ------------You're a God.
+    A structure vital to all villages.
+    Non-evil creatures are: spiders, insects, rats, bats, snakes and seahorses.+=============================================================================+| vi.
+    =P Guide will healyour Creature, and then go to sleep again.Guide woken up?
+    F , and wait for the guard to notice
     
-    It's a basic logic diagram
-    You'll want to go all the way back to the second door you went through in the base Security Door Puzzle
-    was Top: 2, Middle: 3
-    His cousin needs to "get out of town","away from the heat"
+    the good ones,anyway) are found here...1) Close to where you found the woman's sick brother.2) In some trees near to where the circle of singing stones are.3) Near the beach where you rescued the kid just before the tutorial.
+    It also sucks up tremendous amountof energy.
+    Place a skeleton in it, andthe person will be revived!BAD SOLUTION
+    you will be attacked from the air by helicopters
     
-    If you want to convert the village, give them a hand and disposeof the wolves.
-    Drop a rock on him.
-    Don't go to the fish part until later.
-    8.5 DEFEND BASETake out the attackers, simple enough, right?You can get base defense missions through Mercenaries' Guild andMission Computer.
+      The first, and main
+    You'll lead thedrone there and let the Confeds kill it.Objective
+    so follow Gia F, F to the guns
+    Enemies may or maynot show up, but you'll get paid nonetheless.
     
-    .You'll find the Drayman at nav 1, along with 5 Pirate Talons(pros?).
-    But once you have found one, you can talk to her/him, answer with unproud manner, and then talk to her/him again.
+    Spirituality, White 8.
+    ..
