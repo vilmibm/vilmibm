@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Dec 18 16:48:01 EST 2021
+## Sun Dec 19 16:48:01 EST 2021
 
-    Take out the escorts.
-    After you are subject to effect in a scene
-    so be sure and save some ammo for them
-    change your highest dice to a D6 until the end of next scene
+    Then follow thejump to the next system
+    Enter that one by pushing up. THE PIANO 1.
+    Thesecret base is in Valhalla system.
+    See [7] for mission sources
     
-    All you have to do to becomean avatar is to go to each place and do good deeds
-    They are picked up likenormal grain.
-    Friends and acquaintances will use your given name
-      Your adult name is chosen to reflect your time as a child
+    On the other hand, to make REALLYsignificant money in smuggling you need to move LARGE amounts ofcontraband.Tip
+    Push up and the button and you will return to the mirror screen. THE MIRROR ROOM 1.
+    Last Quarter Skara Brae Jhelom Yew Minoc8.
+    A few scaffolds will beplaced near where you start to build your Temple, Village Center, Store andWorkshop.
     
-    -------------- - Lord Robert will tell you a word: AMOk.
-    To get in, go to the inn and unlock the door
-    Or CoolThang for short.EVIL SOLUTION
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
     
-    Or feed them all to the Sheep Creature yougain.Behind the second (Aztec) village, near the coast, is a small hut in front ofa ring of marks in the ground.
-    F , and look through it
+    Rinse and repeatfor the other drowning villagers.
+    When you try to outpace someone or something
+    When you act and are challenged
+    
+    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
+    Not a very friendly guard
