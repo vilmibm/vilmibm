@@ -9,22 +9,21 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Dec 19 16:48:01 EST 2021
+## Mon Dec 20 16:48:01 EST 2021
 
-    Then follow thejump to the next system
-    Enter that one by pushing up. THE PIANO 1.
-    Thesecret base is in Valhalla system.
-    See [7] for mission sources
+    You can let your Creaturebe nice and help out the villagers with his Miracles, or you can just kick thevillage's ass with fireballs and lightning and stuff.Once that village is converted, you should be close enough to convert thevillage inbetween Khazar's influence and your's.
+    regenerate shields 25 0.000000asterThruster Enhancer: improved turn rate by about 20    that you play in.'
+    ThreePirate Talons
     
-    On the other hand, to make REALLYsignificant money in smuggling you need to move LARGE amounts ofcontraband.Tip
-    Push up and the button and you will return to the mirror screen. THE MIRROR ROOM 1.
-    Last Quarter Skara Brae Jhelom Yew Minoc8.
-    A few scaffolds will beplaced near where you start to build your Temple, Village Center, Store andWorkshop.
+    Thanks to Khazar's generous gift to let you operate in hisinfluence, you should be able to access the first of Lethys' villages.
+    Allyou have to do is solve a riddle.GOOD SOLUTION
+    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
+    ducking R to cover, standing L and R to aim
     
+    For example, when the first moon first turns to the New Moon, a moongate will open at Moonglow and itsdestination will be Moonglow, when the 2nd moon changes phase it will take youto Britain, another 2nd moon phase change and it will take you to Jhelom.
+    Once per game, when you need a burst of vigour
+    Try to avoid a fight if it's possible.
+      WEB, or COBWEB - Woven by spiders in the houses of the dying
     
-    Rinse and repeatfor the other drowning villagers.
-    When you try to outpace someone or something
-    When you act and are challenged
-    
-    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
-    Not a very friendly guard
+    Kill.
+    through the bird cage, and her cousin through theknife in the study.Enjoy, it is a great game!I would like to hear any thoughts about the ending from others whohave seen it.'
