@@ -9,21 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Dec 20 16:48:01 EST 2021
+## Tue Dec 21 16:48:01 EST 2021
 
-    You can let your Creaturebe nice and help out the villagers with his Miracles, or you can just kick thevillage's ass with fireballs and lightning and stuff.Once that village is converted, you should be close enough to convert thevillage inbetween Khazar's influence and your's.
-    regenerate shields 25 0.000000asterThruster Enhancer: improved turn rate by about 20    that you play in.'
-    ThreePirate Talons
+    After using the top and bottom icons for more informaiton
+    See [4] forrecommended loadout for your ship.
+    Fly up next toit
+    Just fire and run, great indogfights.4.5.1.6 Torpedo LauncherNeeded to launch proton torpedoes, holds 10 torpedoes.4.5.1.7 Proton TorpedoLock
     
-    Thanks to Khazar's generous gift to let you operate in hisinfluence, you should be able to access the first of Lethys' villages.
-    Allyou have to do is solve a riddle.GOOD SOLUTION
-    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
-    ducking R to cover, standing L and R to aim
+    to throw it back.
+    DL MJ)--------- - If you don't have a sextant, buy one here at the Guild (option D, even though you can't see it, it's there) for 900 goldi.
+    Double-tap also halves their ECM'seffectiveness against your missiles.
+    You'll want to go all the way back to the second door you went through in the base Security Door Puzzle
     
-    For example, when the first moon first turns to the New Moon, a moongate will open at Moonglow and itsdestination will be Moonglow, when the 2nd moon changes phase it will take youto Britain, another 2nd moon phase change and it will take you to Jhelom.
-    Once per game, when you need a burst of vigour
-    Try to avoid a fight if it's possible.
-      WEB, or COBWEB - Woven by spiders in the houses of the dying
+    You pick the first, the group picks the second
+    L1: Changes to arcade cursor mode up up
+    You can find Horses all over the island
+    That explainsthose "unknown" ships flying about
     
-    Kill.
-    through the bird cage, and her cousin through theknife in the study.Enjoy, it is a great game!I would like to hear any thoughts about the ending from others whohave seen it.'
+    Levels: Stats: Damage:------ ------- ------ -------Covetous 3, 6 STR, DEX 400Deceit 3, 5, 6 IQ 200Despise 4, 8 DEX 200Destard 3, 6 STR 200Hythloth* 5, 3, 1 STR, DEX, IQ 800Shame 1, 4, 8 STR, IQ 400Wrong 2, 6, 7 DEX, IQ 400* the spheres in Hythloth do not appear until you have gone to the eighth  level, and are on the way out.+=============================================================================+| Walkthrough: |+=============================================================================++=============================================================================+| 1.
+    You'll get a bonus later and don't worry about themany more.When you return, you complain to Tayla about how hot her missionshave become.
