@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Dec 21 16:48:01 EST 2021
+## Wed Dec 22 16:48:01 EST 2021
 
-    After using the top and bottom icons for more informaiton
-    See [4] forrecommended loadout for your ship.
-    Fly up next toit
-    Just fire and run, great indogfights.4.5.1.6 Torpedo LauncherNeeded to launch proton torpedoes, holds 10 torpedoes.4.5.1.7 Proton TorpedoLock
+    A smaller part cannot go underneath a larger part.
+    You can't hurtit though, even with that Steltek gun.
+    So nav 2 you would expect Militia, Retro, or Pirates,with maybe some merchants.
+    The only thingthat can hurt the drone is your Steltek gun
     
-    to throw it back.
-    DL MJ)--------- - If you don't have a sextant, buy one here at the Guild (option D, even though you can't see it, it's there) for 900 goldi.
-    Double-tap also halves their ECM'seffectiveness against your missiles.
-    You'll want to go all the way back to the second door you went through in the base Security Door Puzzle
+    Position yourself in the hedge that is empty, which is at the far left. 2.
+    Infact, if you real the manual, mission computer missions are NOTguaranteed payment, while the guilds do.Therefore, you should search for missions that pays best, thenlook for other missions you can do while on your way.7.1 MISSION COMPUTERYou can get missions from the mission computer.
+    and meet the security guard
+    Forexample, if you are on a mission to locate a Retro, butconversation shows you found a Pirate, you can run away.* [Repeat] Don't like the missions being offered?
     
-    You pick the first, the group picks the second
-    L1: Changes to arcade cursor mode up up
-    You can find Horses all over the island
-    That explainsthose "unknown" ships flying about
+    D*-* Three - Where's Seano?
+    down down 	L2: Changes to flightsim cursor mode up down
+    Once its run outof power, a red X will appear over it, and you cannot use your Hand outside of Influence until you return it to your side of the Influence border.Whats Mana?
+    Go through the door and along the wall next to the window F
     
-    Levels: Stats: Damage:------ ------- ------ -------Covetous 3, 6 STR, DEX 400Deceit 3, 5, 6 IQ 200Despise 4, 8 DEX 200Destard 3, 6 STR 200Hythloth* 5, 3, 1 STR, DEX, IQ 800Shame 1, 4, 8 STR, IQ 400Wrong 2, 6, 7 DEX, IQ 400* the spheres in Hythloth do not appear until you have gone to the eighth  level, and are on the way out.+=============================================================================+| Walkthrough: |+=============================================================================++=============================================================================+| 1.
-    You'll get a bonus later and don't worry about themany more.When you return, you complain to Tayla about how hot her missionshave become.
+    >>Cyberia Complex Level 3<< You made it
+    magic or temptation, +D12 security
