@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Dec 22 16:48:01 EST 2021
+## Thu Dec 23 16:48:01 EST 2021
 
-    A smaller part cannot go underneath a larger part.
-    You can't hurtit though, even with that Steltek gun.
-    So nav 2 you would expect Militia, Retro, or Pirates,with maybe some merchants.
-    The only thingthat can hurt the drone is your Steltek gun
+    You'll get nothing for anything else you do.Woo!
+    Then Retro Talons at one Nav point, waves of Pirates atthe other wait for you.Upon return, Lynn Murphy offers you 30K bounty on GovernorMenesch.
+     Advances: Doomsayer
+    If you don't win this battle using thatfiend of a Creature, the Tiger, then theres something wrong.
     
-    Position yourself in the hedge that is empty, which is at the far left. 2.
-    Infact, if you real the manual, mission computer missions are NOTguaranteed payment, while the guilds do.Therefore, you should search for missions that pays best, thenlook for other missions you can do while on your way.7.1 MISSION COMPUTERYou can get missions from the mission computer.
-    and meet the security guard
-    Forexample, if you are on a mission to locate a Retro, butconversation shows you found a Pirate, you can run away.* [Repeat] Don't like the missions being offered?
+    She organizes the resistance, trying to breakthe blockade.Objective
+    The area in which you can interact with the environment.
+    Taking out the guard on the right first may make it easier to survive this one
+    Thank you, and goodnight.*
     
-    D*-* Three - Where's Seano?
-    down down 	L2: Changes to flightsim cursor mode up down
-    Once its run outof power, a red X will appear over it, and you cannot use your Hand outside of Influence until you return it to your side of the Influence border.Whats Mana?
-    Go through the door and along the wall next to the window F
+    are earned when people start calling you them
+    ------------I get tired of typing these, I really do.
+    Sure, its to show his belief in you
+    .Note: the config below is based on "Privateer".
     
-    >>Cyberia Complex Level 3<< You made it
-    magic or temptation, +D12 security
+    Thankfully, you'll only need to playthem this time, as they're all here already.
+    Such artifacts remain indefinitely after you have returned from the glitch-world which I call the twilight zone.
