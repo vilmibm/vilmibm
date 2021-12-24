@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Dec 23 16:48:01 EST 2021
+## Fri Dec 24 16:48:01 EST 2021
 
-    You'll get nothing for anything else you do.Woo!
-    Then Retro Talons at one Nav point, waves of Pirates atthe other wait for you.Upon return, Lynn Murphy offers you 30K bounty on GovernorMenesch.
-     Advances: Doomsayer
-    If you don't win this battle using thatfiend of a Creature, the Tiger, then theres something wrong.
+    Then tractor in the ejected cargoand continue.
+    Again, 10000credits and access to library really, after this mission
+    it's half standard adventure with amazing graphics and play
+    L,F,R,F,L,F and check out the V-Mail
     
-    She organizes the resistance, trying to breakthe blockade.Objective
-    The area in which you can interact with the environment.
-    Taking out the guard on the right first may make it easier to survive this one
-    Thank you, and goodnight.*
+    Seeker Titles: of Secrets
+    You move on to nav 4, more random, then finally youreach nav 3, New Iberia and another random encounter.
+    The focus of all your influence.
+    Try the ultimateevil, find his sheep THEN kill him.
     
-    are earned when people start calling you them
-    ------------I get tired of typing these, I really do.
-    Sure, its to show his belief in you
-    .Note: the config below is based on "Privateer".
+    Not a very friendly guard
+    Toget more information, you'll have to join the ExploratoryServices at Rygannon.
+    This file is Copyright 1996 by CJayC
+    BOOM BOOM!
     
-    Thankfully, you'll only need to playthem this time, as they're all here already.
-    Such artifacts remain indefinitely after you have returned from the glitch-world which I call the twilight zone.
+    
+    As with most evil acts,you win nothing.*
