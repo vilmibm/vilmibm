@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Dec 24 16:48:01 EST 2021
+## Sat Dec 25 16:48:01 EST 2021
 
-    Then tractor in the ejected cargoand continue.
-    Again, 10000credits and access to library really, after this mission
-    it's half standard adventure with amazing graphics and play
-    L,F,R,F,L,F and check out the V-Mail
+    Or want animals.You know the drill.
+    or see something truly remarkable
+    Jump onto one of the light fixtures.
+    You land on Basra instead, and found LynnMurphy in the bar.
     
-    Seeker Titles: of Secrets
-    You move on to nav 4, more random, then finally youreach nav 3, New Iberia and another random encounter.
-    The focus of all your influence.
-    Try the ultimateevil, find his sheep THEN kill him.
+    Browse through them, and note the new janitor's key code
+    Run through the door L
+      Agent  When you act in service of The Crown
+    Blast everything in sight
     
-    Not a very friendly guard
-    Toget more information, you'll have to join the ExploratoryServices at Rygannon.
-    This file is Copyright 1996 by CJayC
-    BOOM BOOM!
+    This does take a hunk out of your energy
+    Muwhahahahha.STONES
+    you don't have to worry about energy
+    Watch your shields, conserve your shots
     
-    
-    As with most evil acts,you win nothing.*
+    F , and down the hall
+    ------------ - Shamino, a ranger, will join you here. - Mitre knows of the White Stone and tells you to ask about it in the Pub in Trinsic. - Barren (kid) knows the mantra: OM - Talk to the Ankh to learn that the Rune is in Lord B.'s castle, and to get to the Shrine of Spirituality you must enter a moongate at 2 full moons. (this only works at the Minoc moongate!
