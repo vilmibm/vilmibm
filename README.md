@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Dec 27 16:48:01 EST 2021
+## Tue Dec 28 16:48:01 EST 2021
 
-    Failingthat, locate commodities that you can sell for a profit at thatbase.TIP
-    Inc, distributed by Interplay Productions
-    Your basic destructive tool in the game; these babies will allow youto cause substantial damage, when thrown, to practically all structures, apartfrom the Temple.
-    Found all nine?The chance to exchange for the Sheep Creature is winging its way towards you,right now.EVIL SOLUTION
+    Credit will be given.ARTIFACTS
+    It is a good idea to teach him all this on the first island as you will betoo bogged down with micro-management of Villages in the next island for youto have much time for him.When fighting Guide and Sleg, practice that Special Attack gesture, it will beuseful in the fights in the future.
+    Take a look around at your newhome, and a God, going by the name of Khazar, will come and visit you.
+    Enter in the antidote
     
-    Walk through the vent F
-    This is knownas the eject/retrieve trick.4 Your ship and equipmentThere are four player own-able ships in Privateer
-    Let the drowning villagers die.
+    Press the
     The Rig will then come under attack
+    Walk around to the far side of the conference table and check out the boring reading material R
+     The same applies to you with regards to your opponent
     
-    +D8 Security when you are threatened with physical harm by evildoers Unstoppable
-    ..Head to Troy, and explore the nearby nav points.
-    Enter the temple.
-    Basically, you'll find all yourvillage's kids in the Creche.
+    NC CE--------- - Geoffrey, a fighter, will join you here.
+    Tons of targets, and tons of fuel trucks
+    This time the bee has finally broken through.
+    Your objective is totravel the known universe
     
-    >_>BACKGROUND
-    Then follow thejump to the next system
+    I found it lacking in a lot of areas
+    In the dark room, head towards the door B
