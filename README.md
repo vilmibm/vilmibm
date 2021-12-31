@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Dec 30 16:48:01 EST 2021
+## Fri Dec 31 16:48:01 EST 2021
 
-    Take a look around at your newhome, and a God, going by the name of Khazar, will come and visit you.
-    Curiously smooth, irregularly-shaped glass
-    If you've been paying attention so far
-    You'll get another chance.8 MissionsHere we discuss the types of missions you may encounter, and howbest to approach them, what type of enemies you can expect, andso on.TIP
+    They, like trees, can also be heated up by fire, and sometimeseven burn, allowing you to set enemy villages alight.
+    F,F,F,F , and walk to the next room F
+    You can get scout missions through Mercenaries' Guild and MissionComputer.8.7 PATROLPatrol is basically Scout mission that involves multiple navpoints.
+    beggars
     
-    in which case the blink will simply not move you at all).3) I have been able to get the White Stone by Blinking West from coordinates Lat.
-    Valor, Red 4.
-    The Miracles these people will give you by worshippingare also shown at the Village Centre.VILLAGE STORE
-    *-*Seems that a um
-    
-    Not a lot, but it's uncensored
+    Jump through, andJones will be there
+    Not really essential to a village, although if people die, theirfellow villagers will get on with their lives, and not publicly mourn whilethis structure is built.WORSHIP SITE - Well, this is the source of all your offensive and defensive(ie, your Miracles) power.
+    If you are escorting, make sure the ship being escorted has wavedyou off i.e.
     When you cause great effect on an evildoer
-    Arcade difficulty changes how large the targets are for you to shoot at the harder you select
-    Nasty virus, and it's spreading through the complex
     
-    Your objective is totravel the known universe
-    the master password has been changed to Alexei's hero
+    Repeat this at much as you can, and your humility virtue will increase. The hard thing, is to find those people.
+      Known as Newt-Boy in his youth on account of his weird eyes
+    Yes, dood burns.
+    They'll put the power of a single Miracle intoyour hand.
+    
+    Three levels available, eachlevel adds approximately 25 0.000000e+00ffectiveness of making enemymissiles lose lock.
+    On the 6th time hold the ball down DON'T throw it
