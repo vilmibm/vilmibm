@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jan  2 16:48:01 EST 2022
+## Mon Jan  3 16:48:01 EST 2022
 
-    Go through the door and along the wall next to the window F
-    The only place I really 		noticed is at the Slice-O-Matic death scene
-    Take out the Gothris first.12.21 CROSS 4One last mission for the Exploratory Services
-    You have to throw the ball to her 6 times.
+    When you convince someone of a falsehood
+    and press the Hanger button
+    You got three missions
+    Extremely large shield and enginepossible, but not that maneuverable, and only one missilelauncher possible makes it not that effective in heavy combat.Max engine
     
-    Then theres the PackingFactory.
-    A vortex will soon open up in the village.
-    Drop a rockon his house.
-    *-*BACKGROUND
+    and meet the security guard
+    You can't hurtit though, even with that Steltek gun.
+    F and enter the next room R
+    Don't bother, yourCreature will pass out and be teleported back to the Temple.
     
-    Britain
-    it's the most value for your money in the scannercategory.
-    Grab the donut looking thing by pushing down and then run the hell outta there. THE MIRROR ROOMS 1.
-    The possibilities with chemical warfare are boundless!
+    owned as they were by ancestors
+    If you came in through the back door
+    When you meet a strange culture for the first time
+    Your low-level scannercan't even tell friend from foe yet.
     
-    Costs 30000In Righteous Fire, you get access to "Advanced Repair Droid",which costs twice as much and repairs 50 0.000000aster.4.6.8 Cargo expansionMakes your cargo bay slightly larger.
-    Escort Hunter Toth (Drayman) to Oxford.
+    (See the Simple Walkthrough)Bring a piece of your Creatures
+    People may start to dance around it,this is the process of infusing it with belief.
