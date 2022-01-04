@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jan  3 16:48:01 EST 2022
+## Tue Jan  4 16:48:01 EST 2022
 
-    When you convince someone of a falsehood
-    and press the Hanger button
-    You got three missions
-    Extremely large shield and enginepossible, but not that maneuverable, and only one missilelauncher possible makes it not that effective in heavy combat.Max engine
+    But he needsanother mission done.
+    Bounty hunters can be found all over.Bounty hunters hate Pirates, Kilrathis, and Retros see factions
+    that you haven't checked.You'll eventually come across Governor Menesch with escorts.Menesch will tell you a story about how he sold your gun to theRetros, and those unknown ships are Retros also.
+     Commercia grants a blessing to security
     
-    and meet the security guard
-    You can't hurtit though, even with that Steltek gun.
-    F and enter the next room R
-    Don't bother, yourCreature will pass out and be teleported back to the Temple.
+    You can find them just about everywhere, but esp.around Perry Naval Base.Confed hates Pirates, Kilrathis, and Retros see factions
+    X and run to the elevator control F
+    After you take care of them, you can headfor Oxford.You can actually go directly to Oxford and ignore Miggsaltogether.
+    Now all youneed to do is to start expanding your influence and capture villages.
     
-    owned as they were by ancestors
-    If you came in through the back door
-    When you meet a strange culture for the first time
-    Your low-level scannercan't even tell friend from foe yet.
+    Three companies make scanners, each of 3levels, for nine different modelsHunter AW 6i is probably the best radar for the money, until youcan afford top-of-the-line model like B&S Omni.NOTE
+    F,F,F,F , back to the dock R
+    *-*BACKGROUND
+      Ranks: Guilder, Silverhand
     
-    (See the Simple Walkthrough)Bring a piece of your Creatures
-    People may start to dance around it,this is the process of infusing it with belief.
+    Now, I'm aboutto do this puzzle on the desk in front of me, so it may not be the quickest way, but it'll do.
+    Target Lock.
