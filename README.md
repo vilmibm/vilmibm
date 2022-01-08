@@ -9,21 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jan  7 16:48:01 EST 2022
+## Sat Jan  8 16:48:01 EST 2022
 
-    Pays 10k.Random encounters only.
-    Nothing can be damaged here.
-    You find 3Dralthi at nav 1.
-    These Upsearching are tokens of the goddesses
+    Big time.The situation
+    After you take care of them, you can headfor Oxford.You can actually go directly to Oxford and ignore Miggsaltogether.
+    ..
+    This section talks about how you get missions and whattype of missions each source would give.TIP
     
-    .. Stay in his office to watch some funnydialog.13 Righteous Fire Changes Righteous Fire introduced many changes, most of them are listedas below.13.1 NEW EQUIPMENTIsometal Armor is now the best armor, twice as good as tungsten,twice as expensive.Advanced Repair Droid is now available, twice as expensive, twiceas fast.Gun cooler is now available, decreases refire delay by 25    It is a combination of genres
-    ---------Yep, its more Singing Stone related fun.
-      If you have multiple dice of the same size but of different types
+    You should be able to do this 5 times in a row enabling you to quickly and easily finish this part. For an interesting part wait a few seconds without doing anything.
+      Each time you are subject to great effect that would end your life or career
+    Jump through, andJones will be there
+    Try building a Wonder, that always boosts your Area of Influence greatly.You surely know how to convert Villages by now, right?
     
-    but this one is kind of neat looking
-    Focus him(while you and the Creature are connected by the leash, click on something withthe RMB) on a drowning villager, he should pick it up.
-    Empath Abbey (DC BM)
-    Britain
+    This file is Copyright 1996 by CJayC
+    see factions)Retros fly Talon (fighter) (see crafts)Retro pilots are fanatical rookies or pros.
+    Usually involves killing everyone.
+    Enemies may or maynot show up, but you'll get paid nonetheless.
     
-    When you have the Orion nicelyequipped think level 5 shields
-    
+    Pays 20K.Retros are ALL OVER the area, kill them all, and try to keep yourship intact.When you head back, a Pirate ship tell you that his "employer"wants to meet you at Drake, Capello system.
+    Great.EVIL SOLUTION
