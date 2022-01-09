@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jan  8 16:48:01 EST 2022
+## Sun Jan  9 16:48:01 EST 2022
 
-    Big time.The situation
-    After you take care of them, you can headfor Oxford.You can actually go directly to Oxford and ignore Miggsaltogether.
-    ..
-    This section talks about how you get missions and whattype of missions each source would give.TIP
+    The tables are populated based on where thesystem is, what systems are connected, and so on.For example, let's say you are at Troy.You got a contract to deliver some stuff to New Iberia, inPyrenees system in a mission from Merchants' Guild.You also found a contract to patrol Pyrenees system, all navpoints from Mercenaries' Guild.You also found a contract that had you hunt down a pirate at nav5 of Pyrenees system from the Mission Computer.So you jump in from Troy and arrive at nav 2 of Pyrenees.Pyrenees is in Humboldt Quadrant, which is Retro and Pirateterritory.
+    but using the IR scan triggers an explosive
+    if you can get to them are "infinite" -- i.e., you can keep opening them over and over again.
+      DIFFERENT DICE  Sometimes you may roll additional dice due to your skills
     
-    You should be able to do this 5 times in a row enabling you to quickly and easily finish this part. For an interesting part wait a few seconds without doing anything.
-      Each time you are subject to great effect that would end your life or career
-    Jump through, andJones will be there
-    Try building a Wonder, that always boosts your Area of Influence greatly.You surely know how to convert Villages by now, right?
+    and examine the diagram
+    and meet the security guard
+    Just blowpast them or kill them.
+    OrJust torch him from afar.*
     
-    This file is Copyright 1996 by CJayC
-    see factions)Retros fly Talon (fighter) (see crafts)Retro pilots are fanatical rookies or pros.
-    Usually involves killing everyone.
-    Enemies may or maynot show up, but you'll get paid nonetheless.
+      Your rank and your title
+    Again, you should afterburner past them, ignoringtheir fire.
+    Remember to turn it off when you get there.
+    ducking R to cover, standing L and R to aim
     
-    Pays 20K.Retros are ALL OVER the area, kill them all, and try to keep yourship intact.When you head back, a Pirate ship tell you that his "employer"wants to meet you at Drake, Capello system.
-    Great.EVIL SOLUTION
+    If you shoot one down, Confedswill love you.5.5.3 DraymanDrayman is the standard capital-ship transport, larger than evenGalaxy, but very lightly armed.6 Commodity tradingOne of the most often asked question in Privateer is "how do Imake money"?
+     Commercia grants a blessing to security
