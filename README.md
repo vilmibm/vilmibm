@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jan  9 16:48:01 EST 2022
+## Mon Jan 10 16:48:01 EST 2022
 
-    The tables are populated based on where thesystem is, what systems are connected, and so on.For example, let's say you are at Troy.You got a contract to deliver some stuff to New Iberia, inPyrenees system in a mission from Merchants' Guild.You also found a contract to patrol Pyrenees system, all navpoints from Mercenaries' Guild.You also found a contract that had you hunt down a pirate at nav5 of Pyrenees system from the Mission Computer.So you jump in from Troy and arrive at nav 2 of Pyrenees.Pyrenees is in Humboldt Quadrant, which is Retro and Pirateterritory.
-    but using the IR scan triggers an explosive
-    if you can get to them are "infinite" -- i.e., you can keep opening them over and over again.
-      DIFFERENT DICE  Sometimes you may roll additional dice due to your skills
+    Again, tell the group one thing that marks it out
+    1 = left 9 = right =P'1 1 8 8 9 9 6 6 5 5 3 3 1' If you play that, then the stones will transform.Then you should play '2 2 2 2 5 4 4 2 2 1 2', and a circle will appear.Say hello to your reward for your musical talent!
+    Drop a few rocks intoa clear patch of land in the middle of your village, ie.
+    swarms of birds, patterns and sigils in clouds
     
-    and examine the diagram
-    and meet the security guard
-    Just blowpast them or kill them.
-    OrJust torch him from afar.*
+    Itis usually equipped with torpedo launchers, making them quitedangerous.Only Bounty Hunters fly Demons.5.2.5 DralthiDralthi is the Kilrathi medium fighter that escorts Gothris.
+    8.4 BOUNTY HUNTING MISSIONHunt down pirate, Retro, or even a Kilrathi... pays better thanAttack.You can get bounty hunting missions through Mercenaries' Guild,Merchants' Guild, and Mission Computer.
+    <If you don't kiss Gia
+     If your extent beats your opponent’s resistance
     
-      Your rank and your title
-    Again, you should afterburner past them, ignoringtheir fire.
-    Remember to turn it off when you get there.
-    ducking R to cover, standing L and R to aim
+    Enlarge Creature Miracle Dispenser.
+    When you have the Orion nicelyequipped think level 5 shields
+    When you attempt to take something that isn't yours
+    Get through this section as quickly as possible F
     
-    If you shoot one down, Confedswill love you.5.5.3 DraymanDrayman is the standard capital-ship transport, larger than evenGalaxy, but very lightly armed.6 Commodity tradingOne of the most often asked question in Privateer is "how do Imake money"?
-     Commercia grants a blessing to security
+    ..When you return, visit the Admiral in his office at Perry NavalBase.14.24 TERRELL 1 OR TERRELL 2 (DEPENDING ON HOW YOU COUNT)Admiral Terrell needs privateers to search the various systemsfor signs of Modecai Jones.
+    bounty hunt, delivery (see [8] for mission types)Typical mission pays one to three thousand7.4 FIXERSIn some bars, there are fixers ready to give you missions.
