@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jan 12 16:48:01 EST 2022
+## Thu Jan 13 16:48:01 EST 2022
 
-    You'll want to go all the way back to the second door you went through in the base Security Door Puzzle
-    Examine the patient status
-    ..Objective: explore the nav points of Gamma, return to RygannonWhen you get there, you found a LOT of Kilrathi.
-    Now it's time to do some SERIOUS back-tracking
+    (in the Inn)
+    Seven active switches
+      You joined a trade caravan under the Crown
+    or maybe a damning indictment of your shortcomings
     
-    *-*BACKGROUND
-    .. problems investigating the artifact.Objective: Deliver weapons from NC to Siva (agricultural base,Rikel system).
-    Good boy/girl.
-    Wait until he is on the other side
+    The artifact is apparently Steltek, whohaven't been seen for millennia.
+    F,F,F,F Head to the door at the end and check out the sign F
+    Thesecret base is in Valhalla system.
+    The All-Seeing, The God-tongue    Persecutor When you attempt to bring a criminal to justice
     
-    Decision time, although it's kind of minor
-    continue down until you find the next room F
-    Remember to turn it off when you get there.
-    jlevy@azstarnet.com (Jerry Levy)Date: Fri, 19 Jan 1996 06:01:42 GMTWith this game you just have to stay at it, and at it, and at it.Remember you are living a nightmare so frustration is part of thepain.The game does seem to like a certain order of play as I found fromstarting over once or twice, infact I recommend starting over once youare thorughly confused and realize this is no longer a "game" it willallow you to concentrate more on the stories.I would recommend this in terms of order of play, not spoilers(remember to listen for the whispering voices...):1) in the upstairs study, do the wine bottle for the carnival, souljump first chance you get;2) second time you hear the whispering in the house go back to thewine bottle and play through again w/o soul jumping.3) Tell tale heart: First time through soul jump, 2nd time do not,go in through the cleaver both times.4) Do the poem in the second floor Bedroom to the left, the Red Deathin the basement, 5) Play Berniece(?)
+    If you continue running down the hall
+    you'll instantly die and have to restart
+    F,F,F through Security Door Turn left
+    a series of cruise missiles will be fired at you from the middle of the screen
     
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
-    Sure, its to show his belief in you
+    move behind the column L
+     The Small Gods grant a general blessing
