@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jan 13 16:48:01 EST 2022
+## Fri Jan 14 16:48:01 EST 2022
 
-    (in the Inn)
-    Seven active switches
-      You joined a trade caravan under the Crown
-    or maybe a damning indictment of your shortcomings
+    You actually get to see thisone when the man is talking to you about this quest.8
+    roll three six-sided dice and allot them to each
+    They speak to us through a series of inscrutable signs and symbols
+    Hmmm
     
-    The artifact is apparently Steltek, whohaven't been seen for millennia.
-    F,F,F,F Head to the door at the end and check out the sign F
-    Thesecret base is in Valhalla system.
-    The All-Seeing, The God-tongue    Persecutor When you attempt to bring a criminal to justice
+      Ranks: Constable, Blade
+    Their initial attitude toward you is hostile.To make Kilrathi like you, you should:* attack/destroy Confederation and/or Militia shipsOf course, why would you want to do so is the great mystery...2.6 RETROSRetros refers to a fanatical offshoot group from Church of Man.While Church of Man advocates a quiet agrarian lifestyle awayfrom technology, Retros are willing to use technology to destroyall technology.
+    Go over to the large crate blocking a door F
+    Your reward for this evil-doing is exactly the same
     
-    If you continue running down the hall
-    you'll instantly die and have to restart
-    F,F,F through Security Door Turn left
-    a series of cruise missiles will be fired at you from the middle of the screen
+    all the while being attacked by hoverfighters
+    storms, stars and prediction
+    don't bump it!
+    You'll be in a room with four guards
     
-    move behind the column L
-     The Small Gods grant a general blessing
+    I T E M S I N T H E E N V I R O N M E N T  =============================================================================TREES - The basic resource in the game, fundamental in building and repairing structures; simply place the tree in the Village Store, and it will beconverted into wood.
+    yes, that'srandomly generated also.
