@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jan 16 16:48:01 EST 2022
+## Mon Jan 17 16:48:01 EST 2022
 
-    Givingmoney to beggars
-    Immediately shoot the two standing ones R
-    so be sure and take it out to continue
-    Nasty virus, and it's spreading through the complex
+    d.
+      You have seen miracles in the streets
+    Nav 3 is clear.
+    You should afterburnerpast them, ignoring their fire.
     
-    Tons of targets, and tons of fuel trucks
-    yes, sorry,some tiny amount of musical affinity may be required here you will recievea Food Miracle Dispenser.
-    Inside, you'll locate a scanner, and then you'll get alink to Dr. Monkhouse.
-    It's best to have MORE poweravailable though.4.6.2 EnginesThere are five levels of engines, from 1 (worst) to 5 (best).
+    Choose either door.
+    Aesop knows the mantra: RA - You want to get into the walls to get the Rune.
+    PUZZLE LEVEL 2: Okay
+    Quickly shoot him before he throws it R
     
-    yes, that'srandomly generated also.
-    A vortex will soon open up in the village.
-    Blue Circle 			3: Red Square 			4
-    The first time you have access to a store of knowledge
+    three active switches
+    ------------You're a God.
+      If you have multiple dice of the same size but of different types
+    Pays 10K.You'll likely meet quite a few pirate or Retro Talons (at least 6total).
     
-    Don't letthem die, they're making you really powerful.
-    The large carriers are never targets
+    Start training him once you have foughtGuide.
+    When you cause great effect
