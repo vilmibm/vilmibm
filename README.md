@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jan 21 16:48:01 EST 2022
+## Sat Jan 22 16:48:01 EST 2022
 
-     Advances: Stalwart
-    Thesecret base is in Valhalla system.
-    the detonators will explode in six seconds
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
+    Let them all die.
+    Monkhouse want to get over to Basra.
+    If you have a "scoop", you canget free fuel from the local star, and salvage cargo.
+    .You'll find the Drayman at nav 1, along with 5 Pirate Talons(pros?).
     
-    You aren't going to get paid any way.
-    Magincia
-    You'll get 30000credits if you succeed.On your way
-    so wait to make your move L
+    Not really essential to a village, although if people die, theirfellow villagers will get on with their lives, and not publicly mourn whilethis structure is built.WORSHIP SITE - Well, this is the source of all your offensive and defensive(ie, your Miracles) power.
+    I just managed to get justice in about 15-30 minutes of doing  that and I just wanted to share the joy.Honor
+    Prehaps you'd better check it out L
+    theMerchants' Guild missions
     
-    ..Move A to 2Move B to 3Move A to 3Move C to 2Move A to 1Move B to 2Move A to 2Move D to 3 - D is in place.Move A to 3Move B to 1Move A to 1Move C to 3 - C is in place.Move A to 2Move B to 3 - B is in place.Move A to 3 - A is in place.Done that?
-    boththese things increase the size of your Influence.
-    Kill.
-    Take out the two guards U to stand
+    If you are escorting, make sure the ship being escorted has wavedyou off i.e.
+    .. You have threechoices: Lynn Murphy, Goodin (Confed), or Tayla.
+    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
+    Mmm.Cast fireball on a rock and bring it.Now, cast Spiritual Shield around them all.
     
-    Failingthat, locate commodities that you can sell for a profit at thatbase.TIP
-    He was raised by a loving ish family on the street of Greensward in the Riverdeep arcology
+    Prevent reinforcements from reaching the blockade.You'll be paid 15000 credits.When you get to Palan's nav 1, you'll find 4+3+3 Demons aces?
+    Click on the Gold Story Scroll to go through.
