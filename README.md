@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jan 24 16:48:01 EST 2022
+## Tue Jan 25 16:48:01 EST 2022
 
-     If your extent beats your opponent’s resistance
-    Get the Creature to throw them further out tosea.
-    Tell him that you aren't perfect, and serve your penance.
-    Try the ultimateevil, find his sheep THEN kill him.
+    They're scattered around the map
+    The hut is made of wood.
+    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
+    Yep, you alsoguessed that you're getting nothing for your evil deeds, right?*-* WOOD MIRACLE DISPENSER *-*Near your village is a waterfall.
     
-    Empath Abbey (DC BM)
-    See [7] for mission sources
-    Escort Vulcan's Forge (Drayman) to Oxford.
-    That explainsthose "unknown" ships flying about
+    It's very helpful in some of the dark rooms and arcade sequences
+    If you haven't, choose between Murphy and Tayla.14.14 TAYLA 1Move her personal effects from Oakham (Pentonville) to Tuck's(Sherwood).
+    4.5 WEAPONS4.5.1 Missiles and TorpedoesThe standard WC missiles are here
+    Go to thebay near your temple, and pick up fish from there.
     
-    <<Bomb Puzzle>> Scan the bomb with your MRI
-    Another crosshair arcade sequence-just kill ALL the creatures
-    Then follow thejump to the next system
-    If you are playing with a digital control standard Sony pad
+    in addition to your core three six-sided dice
+    ------------Get your Creature on the Leash of Compassion, and get him out to sea.
+    - The drone will accelerate away from you, then turn back at youto shoot you, go PAST you, then turn back to repeat.--To beat it, you have to hit it while it's heading away, thendodge its shots as it heads back past you, and hit it again whileit's heading away.
+    and meet the security guard
     
-    Toget more information, you'll have to join the ExploratoryServices at Rygannon.
-    If you're reading this, then you must have saved your village from wolves!If you haven't, then your village has been converted back to Lethys' command,and you're gonna have a fun time of re-converting the village back.
+    For the evil people, just kill morechildren.
+    Push down to drop one cotton candy for the huge bee.
