@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jan 25 16:48:01 EST 2022
+## Wed Jan 26 16:48:01 EST 2022
 
-    They're scattered around the map
-    The hut is made of wood.
-    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
-    Yep, you alsoguessed that you're getting nothing for your evil deeds, right?*-* WOOD MIRACLE DISPENSER *-*Near your village is a waterfall.
+    Nice game, but why is everything so dark
+    They offerthe really challenging missions, and they pay quite well.
+    When you attempt to take something that isn't yours
+    If you ever take out the governor, come back and collectmore credits.From here on, you either head to Tayla or go see Sandra Goodin(Confed)
     
-    It's very helpful in some of the dark rooms and arcade sequences
-    If you haven't, choose between Murphy and Tayla.14.14 TAYLA 1Move her personal effects from Oakham (Pentonville) to Tuck's(Sherwood).
-    4.5 WEAPONS4.5.1 Missiles and TorpedoesThe standard WC missiles are here
-    Go to thebay near your temple, and pick up fish from there.
+    You'll be using this a hell of a lot
+    and given that street name as his geographical tag
+    Note
+    *-*BACKGROUND
     
-    in addition to your core three six-sided dice
-    ------------Get your Creature on the Leash of Compassion, and get him out to sea.
-    - The drone will accelerate away from you, then turn back at youto shoot you, go PAST you, then turn back to repeat.--To beat it, you have to hit it while it's heading away, thendodge its shots as it heads back past you, and hit it again whileit's heading away.
-    and meet the security guard
+    good interface, but it is kind of short in the long run without a lot of replayability
+    A guard is around that crate
+    L E V E L T H R E E - S I M P L E W A L K T H R O U G H =============================================================================Well, the difficulty of the game *has* just been stepped up a notch.
+    - but instead of getting Britannia, you get a weird mixture of  dungeon floors, walls, creatures (some that just sit there like statues,  etc.)
     
-    For the evil people, just kill morechildren.
-    Push down to drop one cotton candy for the huge bee.
+    If you take shots at a enemy that hasn't been targeted yet
+    the ball eats you.
