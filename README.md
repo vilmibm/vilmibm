@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jan 27 16:48:01 EST 2022
+## Fri Jan 28 16:48:01 EST 2022
 
-    so wait until he fires a stray shot and blast him R to move out
-    If you can't outrun them... Eject the contraband and stop.They will eventually go away.
-    Why take achance?12.10 MASTERSON 1You arrive on Oxford, but Masterson refuses you entry.
-    Three companies make scanners, each of 3levels, for nine different modelsHunter AW 6i is probably the best radar for the money, until youcan afford top-of-the-line model like B&S Omni.NOTE
+    Well, it's easy to miss in the manual
+    As with most evil acts,you win nothing.*
+    You'll come to a back door
+    ------ +5 ... solving quests (finding items) +3 ... giving to a beggar +2 ... being honest to herbs (reagants) woman -1 ... stealing a chest -3 ... attacking non-evil creatures -10... cheating herbs (reagants) womanValor:------ +0/1 (random)... killing an enemy (evil) -2 ... fleeing from enemySacrifice:---------- +5 ... giving blood at the healer +1 ... getting killed -2 ... fleeing from enemy -5 ... not giving blood at the healerHonesty:-------- +2 ... being honest to herbs (reagants) woman (it is also rumored that if you overpay that you will get even more points) -1 ... stealing a chest -10... cheating herbs (reagants) womanSpirituality:------------- +(3 * cycle) ... meditating at a shrine +3 ... talking the Hawkwind the Seer -3 ... using wrong mantra at a shrineHumility:--------- +10... Talking unproud (humble) -5 ... Talking proud Note: Check General Strategies below for a list of people that you can talk "Unproud" to.All Virtues:------------ +10...
     
-    Your reward is a nice shiny beach ball.
-    Another crosshair arcade sequence-just kill ALL the creatures
-    <<Elevator Puzzle>> This one's tricky- first
-    If you walk away B,F
+    F,F,F , and step forward F
+    CATWALK Santos's guards will be after you now
+     The Small Gods grant a general blessing
+    Depending on your family pride and social standing
     
-    +D10 security when money is involved
-    All four pumps fall at different rates
-    Kline knows the mantra: SUMM (in the tavern)e.
-    Introduction What is Cyberia
+    they change their ways
+    ..
+    Once per scene, your precision is equal to your extent
+    When the pendulum swings to that side enter the door Timing is critical! THE BRAIN 1.
     
-    Get your Creatureto wade out and rescue the pesky beggars.
-    and a shield generator to destroy
+    If you feellike it, take him out, else run for it.12.7 LYNCH 2You're not happy at Lynch who tried to use you as a freebiebounty hunter, and he's not happy at investigating your artifact,as he's running into
+    NOT same system, same PLANET BASE.* In general, the further away the mission calls for you togo, the better the payment* Try to locate multiple missions that you can fly in onetrip.
