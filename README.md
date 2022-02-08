@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Feb  7 16:48:01 EST 2022
+## Tue Feb  8 16:48:01 EST 2022
 
-    L1: Changes to arcade cursor mode up up
-    They're scattered around the map
-    go to the panel R,R,F
-    Galaxy also has sideturrets.4.6.11 Tractor beamRequires turret to mount one, needed to salvage things.4.6.12 Jump driveRequired to travel to other star systems.
+    Theyaren't listed in the walkthrough, but you must get to all 8 eventually!a.
+    change your highest dice to a D6
+    =P Guide will healyour Creature, and then go to sleep again.Guide woken up?
+    Not really essential to a village, although if people die, theirfellow villagers will get on with their lives, and not publicly mourn whilethis structure is built.WORSHIP SITE - Well, this is the source of all your offensive and defensive(ie, your Miracles) power.
     
-    !Don't accept any combat mission (yet).
-    Enter the temple.
-    You'll want to go all the way back to the second door you went through in the base Security Door Puzzle
-    You shouldmake your way to Perry Naval Base
+    must be placed in sunlight for a week or so to recharge it
+    See [7] for missionsources
+    4.5 WEAPONS4.5.1 Missiles and TorpedoesThe standard WC missiles are here
+    (See the Simple Walkthrough)Bring a piece of your Creatures
     
-    Godsvessel Titles: the Vessel
-    re-arm your weapon, and walk into the warehouse F
-    This scroll is useful however,in learning the fundamental skill of projectile throwing.GOOD SOLUTION
-    Immediately shoot the two standing ones R
+    Evil factor is very, VERY high.
+    Causes mind-bending euphoria and togetherness
+    Exit the room L,F Head back down the hall L
+    somesinging stones you encounter will be broken, and just make a really crappynoise of some description.GOOD SOLUTION-------------Go find the stones and make the scale, what else?
     
-    ..you'll get nothing if everyone dies, though.
-    ------------Provide her with old folk until she starts to become dizzy, and then give hera sneaky dose of a child.
+    Use anyremaining credits to join Merchants' Guild so you get higher-paying missions.Remember NOT to accept missions that require you to go outsidethe Troy system
+    Confeds quickly found to theirdismay that they can't destroy the drone either.
