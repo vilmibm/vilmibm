@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Feb  9 16:48:01 EST 2022
+## Thu Feb 10 16:48:01 EST 2022
 
-    It's a basic logic diagram
-    Then return.
+    - The drone will accelerate away from you, then turn back at youto shoot you, go PAST you, then turn back to repeat.--To beat it, you have to hit it while it's heading away, thendodge its shots as it heads back past you, and hit it again whileit's heading away.
+    Decreases cursor speed R1 and R2 are great for fine-tuning your cursor speed in the action sequences if you're using a standard game pad
+    F,F, then B,F,F to leave
+    ----------------------- - Make sure to talk to Lord British and accept the Quest of the Avatar  otherwise this will be a very short game!
+    
+    Raise the totem in your village, and worshipperswill flock here to worship around the altar.
+    You should have enough shields toignore their fire.
+    Otherwise, it's just randomKilrathi.14.12 GOODIN 3Patrol New Caledonia System, destroy all intruders.
+    Warm to the touch until used
+    
     At the top of the hill, a house, a Scroll anda crazy old man can be found.
-    Check other mission sources first.Offered
+    Hit the following switches
+    Militia have somehow gotten past it
+    Toggle the vibration sensor second from the right
     
-    Take them all out and land.As you've killed a lot of Bounty Hunters, don't be surprised ifMilitia, Confed, or Bounty Hunters are after your hide.Upon landing, you found Dr. Monkhouse in the bar.
-    Then return.
-    In Win95 use ALT-ESC to minimize the window, then right click, and close after saving it with "Q" of course
-    ARCADE LEVEL 2: Destroy 720f the virus
-    
-      COMMERCIA, goddess of security
-    A vortex will soon open up in the village.
-    He'll meet you at the barthere, so go there.14.18 MONTE 1You found Monte in the bar at Palan.
-    The first time you have access to a store of knowledge
-    
-      Ranks: Guilder, Silverhand
-    covered in auspicious markings
+    Towards the end, you'll reach the launch bay for the swarm-- just keep firing at the center of it to take out any fighers launched
+    10,000MK II: Target Lock.
