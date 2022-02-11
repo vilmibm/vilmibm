@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Feb 10 16:48:01 EST 2022
+## Fri Feb 11 16:48:01 EST 2022
 
-    - The drone will accelerate away from you, then turn back at youto shoot you, go PAST you, then turn back to repeat.--To beat it, you have to hit it while it's heading away, thendodge its shots as it heads back past you, and hit it again whileit's heading away.
-    Decreases cursor speed R1 and R2 are great for fine-tuning your cursor speed in the action sequences if you're using a standard game pad
-    F,F, then B,F,F to leave
-    ----------------------- - Make sure to talk to Lord British and accept the Quest of the Avatar  otherwise this will be a very short game!
+    If you take shots at a enemy that hasn't been targeted yet
+    the Bard, the Gods-song  Corpus When you give up your body in service to your mistress
+    Timing is crucial here
+    They cost less thanfriend-or-foe (FF) missiles.TIP
     
-    Raise the totem in your village, and worshipperswill flock here to worship around the altar.
-    You should have enough shields toignore their fire.
-    Otherwise, it's just randomKilrathi.14.12 GOODIN 3Patrol New Caledonia System, destroy all intruders.
-    Warm to the touch until used
+    L E V E L T H R E E - S I M P L E W A L K T H R O U G H =============================================================================Well, the difficulty of the game *has* just been stepped up a notch.
+    Climb the ladder F,F to get on the Catwalk
+    One final arcade sequence--this time it's in space
+    or maybe a damning indictment of your shortcomings
     
-    At the top of the hill, a house, a Scroll anda crazy old man can be found.
-    Hit the following switches
-    Militia have somehow gotten past it
-    Toggle the vibration sensor second from the right
+    L to move back, X to shoot
+    boththese things increase the size of your Influence.
+    1 Max shields: 2A fully upgraded ship would have* level 2 shields* tungsten armor* max ECM available* dual missile launchers with IR missiles* mid/high-level scanner* repair droid* cargo expansion* all quadrant maps* jump drive of course!
+    Well done, soldier.
     
-    Towards the end, you'll reach the launch bay for the swarm-- just keep firing at the center of it to take out any fighers launched
-    10,000MK II: Target Lock.
+    Nothing else will go inthere.12.5 TAYLA 4Objective
+    Remember to turn it off when you get there.
