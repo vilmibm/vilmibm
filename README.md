@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Feb 11 16:48:01 EST 2022
+## Sat Feb 12 16:48:01 EST 2022
 
-    If you take shots at a enemy that hasn't been targeted yet
-    the Bard, the Gods-song  Corpus When you give up your body in service to your mistress
-    Timing is crucial here
-    They cost less thanfriend-or-foe (FF) missiles.TIP
+    BURN THEM ALL!
+    Go visit him and bring the Creature once again.
+    When you attempt to take something that isn't yours
     
-    L E V E L T H R E E - S I M P L E W A L K T H R O U G H =============================================================================Well, the difficulty of the game *has* just been stepped up a notch.
-    Climb the ladder F,F to get on the Catwalk
-    One final arcade sequence--this time it's in space
-    or maybe a damning indictment of your shortcomings
     
-    L to move back, X to shoot
-    boththese things increase the size of your Influence.
-    1 Max shields: 2A fully upgraded ship would have* level 2 shields* tungsten armor* max ECM available* dual missile launchers with IR missiles* mid/high-level scanner* repair droid* cargo expansion* all quadrant maps* jump drive of course!
-    Well done, soldier.
+    Tons of targets, and tons of fuel trucks
+    Worshipping will give you mana,which can be spent on Miracles.
+    ------------Just the same as the one where the fishermen were drowning.
+    you will be attacked from the air by helicopters
     
-    Nothing else will go inthere.12.5 TAYLA 4Objective
-    Remember to turn it off when you get there.
+    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
+    Some animals are worth more slaves thanothers, and only certain animals apply.
+    Scanning it with the MRI and Bio-Scan shows something interesting
+    ..on testostorone.
+    
+    Or youmay wish to keep the wolves for now, for use in a later Silver Scroll.If you've converted that village, or you simply cannot be bothered, move ontoLethys' villages.
+    D Firewood is useful for,well, burning, and then throwing into your enemy's villages.
