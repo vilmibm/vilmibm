@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Feb 12 16:48:01 EST 2022
+## Sun Feb 13 16:48:01 EST 2022
 
-    BURN THEM ALL!
-    Go visit him and bring the Creature once again.
-    When you attempt to take something that isn't yours
+    Nostealing, attacking innocent people
+    you can shoot fast enough if you slow down,then full guns.
+    it's not a billion-seller
+    They are easier to use than heat-seeking (HS)missiles as they are faster to lock-on.
     
+    Here is a list of them
+    The further you go away, the faster it loses power.
+    You'll get 30000credits if you succeed.On your way
+    On the fifth pass, you will see a blue target on the carrier
     
-    Tons of targets, and tons of fuel trucks
-    Worshipping will give you mana,which can be spent on Miracles.
-    ------------Just the same as the one where the fishermen were drowning.
-    you will be attacked from the air by helicopters
+    Brewed into a bitter concoction that bestows alertness and energy
+    * Four - Ah.
+    before you land,or you won't get credit for it.8.3 ATTACK MISSIONDestroy certain number of targets at a certain nav point.
+    Santos will tell you to go through the door on your right R
     
-    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
-    Some animals are worth more slaves thanothers, and only certain animals apply.
-    Scanning it with the MRI and Bio-Scan shows something interesting
-    ..on testostorone.
-    
-    Or youmay wish to keep the wolves for now, for use in a later Silver Scroll.If you've converted that village, or you simply cannot be bothered, move ontoLethys' villages.
-    D Firewood is useful for,well, burning, and then throwing into your enemy's villages.
+    This does take a hunk out of your energy
+    When you struggle to survive
