@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Feb 14 16:48:01 EST 2022
+## Tue Feb 15 16:48:01 EST 2022
 
-    When you’re struggling to survive
-    X,R,X , and duck for cover R after Yikes
-    All four pumps fall at different rates
+    No-one can read them reliably
+      There are numberless SMALL GODS
+    To get through the whirling blades
+    He was last seen on Palan.So to Palan you go
     
-    
-    10,000MK II: Target Lock.
-    This doesn't seem to accomplish much of anything that I can tell
-    Once per scene, when you invoke the authority of The Crown
-    They can be dropped in your Village Store for extra food.Always a good idea to stock up while you have the chance.
-    
-    in addition to your core three six-sided dice
-    Nasty virus, and it's spreading through the complex
+    Save your missiles for that.
+    Your Creature lives here, in his penin front of the entrance.
+    ..you'll get nothing if everyone dies, though.
     ..
-    You don'tnessessarily have to cast it into the Village Store, just make sure thereare lots of people near where you cast it.
     
-    Walk over to the door R
-    These Upsearching are tokens of the goddesses
+    ..Masterson is finally impressed, and he tells you that his friendMonte, who is in hiding, is on Palan.
+     The Small Gods grant a general blessing
+    Remember to turn it off when you get there.
+    He will go upthe mountain, and tell you to come too.
+    
+    Other things to do
+    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
