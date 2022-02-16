@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Feb 15 16:48:01 EST 2022
+## Wed Feb 16 16:48:01 EST 2022
 
-    No-one can read them reliably
-      There are numberless SMALL GODS
-    To get through the whirling blades
-    He was last seen on Palan.So to Palan you go
+    Notice that shitty grin on her face and one arm behind her back.
+    I may place one of the D8s anywhere
+    ---------------------- Get the Bell of Courage at: NA LA Get the Skull of Mondain at: PF MF (double new moons only) Get a Magic Wheel (to improve your ship) at: NH GA A Telescope is at: AC BG After Becoming a full Avatar you can get these: Also be sure to get the Mystic Armor at Empath Abbey (in the grotto): AE BG And the Mystic Weapon at Serpent's Hold (on the mat): AP AI Trick: If you need money, you can sell these, then go back and get them again.When you become a partial avatar in each virtue you will be given a letter,all the letters add up to INFINITY.+=============================================================================+| 2.
+    I knew my mum was wrong when she said greens were good forme.
     
-    Save your missiles for that.
-    Your Creature lives here, in his penin front of the entrance.
-    ..you'll get nothing if everyone dies, though.
-    ..
+    Findhim and destroy him.
+    When you’re struggling to survive
+    Seems that the peopleof the village are becoming sick, you'll need to help them.GOOD SOLUTION
+    With dual missile launchers it may even get quickkills.Max engine
     
-    ..Masterson is finally impressed, and he tells you that his friendMonte, who is in hiding, is on Palan.
-     The Small Gods grant a general blessing
-    Remember to turn it off when you get there.
-    He will go upthe mountain, and tell you to come too.
+    WAIT for the bee to pick up the cotton candy BEFORE you go to the left. 2.
+    Ifyou have a fast ship, just keep your shields up and afterburnerpast them.Tip
+    You get the picture.Woo!
+    Just patrolt he points.14.7 LYNN MURPHY 2Run the blockade to Liverpool at New Castle.
     
-    Other things to do
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
+    There are just random enemies
+    The group chooses another
