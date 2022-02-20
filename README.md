@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Feb 19 16:48:01 EST 2022
+## Sun Feb 20 16:48:01 EST 2022
 
-    ARCADE LEVEL 1: Destroy 500f the virus
-    *-*BACKGROUND
-    next to the VillageCentre.
-    Moonglow
+    you may only place it on the way it is associated with
+    So instead of 3shots, you'll shoot 4 times during the same period.
+    I suggest you move the Village Store scaffold next to the VillageCenter, as it'll put it closer to the action, and stop people taking so damnlong about things.
+    Enter in the antidote
     
-    Continue down the hall F
-    so wait until he fires a stray shot and blast him R to move out
-    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
-    to Hector Mining base,Troy system
+    She wants to throw the ball with you for sure
+    You'll get another chance.8 MissionsHere we discuss the types of missions you may encounter, and howbest to approach them, what type of enemies you can expect, andso on.TIP
+    .If you don't kill Kroiz in the first encounter, he'll show upagain with FIVE Demons as escort when you almost reach yourdestination.12.8 LYNCH 3Lynch confirmed that the artifact is alien
+    They are easier to use than heat-seeking (HS)missiles as they are faster to lock-on.
     
-    ARCADE LEVEL 1: Destroy 500f the virus
-    Wait until he is on the other side
-    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
-    Your flight computer will let you know when it's coming look for the green glow
+     If your extent beats your opponent’s resistance
+    Tarsus classnear the front-line with the Kilrathi.
+    eras ago, this was a country of spires
+    Merged with the Cyberia weapon
     
-    See [7] for mission sources
-    Then follow thejump to the next system
+    and where you’re from
+    with a Key to Lord Robert's room, search it for the passage.
