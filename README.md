@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Feb 20 16:48:01 EST 2022
+## Mon Feb 21 16:48:01 EST 2022
 
-    you may only place it on the way it is associated with
-    So instead of 3shots, you'll shoot 4 times during the same period.
-    I suggest you move the Village Store scaffold next to the VillageCenter, as it'll put it closer to the action, and stop people taking so damnlong about things.
-    Enter in the antidote
+    Take more Brilliance to New Constantinople (yes, thatone).
+    Sacrifice, Orange 6.
+    travelling on sand-skimmers and light gliders
+    Don't forget that farmer.
     
-    She wants to throw the ball with you for sure
-    You'll get another chance.8 MissionsHere we discuss the types of missions you may encounter, and howbest to approach them, what type of enemies you can expect, andso on.TIP
-    .If you don't kill Kroiz in the first encounter, he'll show upagain with FIVE Demons as escort when you almost reach yourdestination.12.8 LYNCH 3Lynch confirmed that the artifact is alien
-    They are easier to use than heat-seeking (HS)missiles as they are faster to lock-on.
+    Pays 20K.Retros are ALL OVER the area, kill them all, and try to keep yourship intact.When you head back, a Pirate ship tell you that his "employer"wants to meet you at Drake, Capello system.
+    He was raised by a loving ish family on the street of Greensward in the Riverdeep arcology
+    Check out the poster L
+    You willdestroy the drone for them if you can keep the gun.
     
-     If your extent beats your opponent’s resistance
-    Tarsus classnear the front-line with the Kilrathi.
-    eras ago, this was a country of spires
-    Merged with the Cyberia weapon
+    A bold statement.
+    Or CoolThang for short.EVIL SOLUTION
+    agricultural, mining, pleasure,pirate, and refinery.
+    >>Transfighter Missions<< Time for some action missions
     
-    and where you’re from
-    with a Key to Lord Robert's room, search it for the passage.
+     Advances: Hundred-eyes
+    precision, extent, and security
