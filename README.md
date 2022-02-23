@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Feb 22 16:48:01 EST 2022
+## Wed Feb 23 16:48:01 EST 2022
 
-    Again, you should afterburner past them, ignoringtheir fire.
-    down down 	L2: Changes to flightsim cursor mode up down
-    MEET GIA The lovely Gia will tell you to turn around nice and slowly L and you will disarm your weapon
-    "The amount of "energy" that you have stored at your Worship Site.
+    When you seek to uncover secrets
+    ..fish.
+    Go get your prize
+    You should afterburnerpast them, ignoring their fire.
     
-      Your adult name is chosen to reflect your time as a child
-    Cannot repairdestroyed items.
-    Tell him that you aren't perfect, and serve your penance.
-    Talk to the Seer to find out when you have mastered a certain virtue
+    Tayla will pay you 15000 credits upon delivery.Then make it back to Oakham Pirate base, Pentonville system
+    Your Mana will soon hit a million.
+    The focus of all your influence.
+    If you are escorting, make sure the ship being escorted has wavedyou off i.e.
     
-    Once per game, when you inflict great effect on an evildoer
-    Also use Pause tomake the whole thing easier.BAD SOLUTION
-    Beware
-    I found it lacking in a lot of areas
+    .. And it's all up toyou.Here are some combat tips against the drone:-- Don't get between the Confed fleet and the drone!
+    Run through the door L
+    When you cause great effect on an evildoer
+     Commercia grants a blessing to security
     
-    The best method is to attack right the long thrust
-    They can sting pretty bad.Only Kilrathi fly Dralthi5.3 HEAVY FIGHTERS AND BOMBERS5.3.1 BroadswordBroadsword is a very slow "bomber" but heavily armed.
+    Your low-level scannercan't even tell friend from foe yet.
+    and dice, like most other RPGs
