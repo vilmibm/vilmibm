@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Feb 23 16:48:01 EST 2022
+## Thu Feb 24 16:48:01 EST 2022
 
-    When you seek to uncover secrets
-    ..fish.
-    Go get your prize
-    You should afterburnerpast them, ignoring their fire.
+    Inside, you'll locate a scanner, and then you'll get alink to Dr. Monkhouse.
+    was Top: 2, Middle: 3
+    1 Max shields: 2A fully upgraded ship would have* level 2 shields* tungsten armor* max ECM available* dual missile launchers with IR missiles* mid/high-level scanner* repair droid* cargo expansion* all quadrant maps* jump drive of course!
+    Go get the slaves yourself.
     
-    Tayla will pay you 15000 credits upon delivery.Then make it back to Oakham Pirate base, Pentonville system
-    Your Mana will soon hit a million.
-    The focus of all your influence.
-    If you are escorting, make sure the ship being escorted has wavedyou off i.e.
-    
-    .. And it's all up toyou.Here are some combat tips against the drone:-- Don't get between the Confed fleet and the drone!
+    Take an advance in either one
+    You have heard the whispers of something greater than you in your sleep
+    The best method is to attack right the long thrust
     Run through the door L
-    When you cause great effect on an evildoer
-     Commercia grants a blessing to security
     
-    Your low-level scannercan't even tell friend from foe yet.
-    and dice, like most other RPGs
+    He will also setpeople to construct a Worship Site and Workshop in your village, and teach youhow they work.
+    Place all your piles of food and wood in it.
+    +2D8 but GM determines placing
+    You should be able to do this 5 times in a row enabling you to quickly and easily finish this part. For an interesting part wait a few seconds without doing anything.
+    
+    Tayla informed you that Sandoval isdead
+    X and run to the elevator control F
