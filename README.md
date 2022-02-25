@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Feb 24 16:48:01 EST 2022
+## Fri Feb 25 16:48:01 EST 2022
 
-    Inside, you'll locate a scanner, and then you'll get alink to Dr. Monkhouse.
-    was Top: 2, Middle: 3
-    1 Max shields: 2A fully upgraded ship would have* level 2 shields* tungsten armor* max ECM available* dual missile launchers with IR missiles* mid/high-level scanner* repair droid* cargo expansion* all quadrant maps* jump drive of course!
-    Go get the slaves yourself.
+    jump point, a nav point to go around the hidden point,and the planet new Reno.
+      Known as Newt-Boy in his youth on account of his weird eyes
+    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
+    You will recieve a pile of grain for your efforts.
     
-    Take an advance in either one
-    You have heard the whispers of something greater than you in your sleep
-    The best method is to attack right the long thrust
-    Run through the door L
+    Cyberia FAQ for the Sony Playstation 			 Version 1
+    Make sure you miss thehouses though, and by the time Khazar gives up on teaching you, you will havea fully-fireball-trained Creature. =============================================================================6i
+    When you attempt to take something that isn't yours
+    New Moon Moonglow Moonglow Britain Jhelom2.
     
-    He will also setpeople to construct a Worship Site and Workshop in your village, and teach youhow they work.
-    Place all your piles of food and wood in it.
-    +2D8 but GM determines placing
-    You should be able to do this 5 times in a row enabling you to quickly and easily finish this part. For an interesting part wait a few seconds without doing anything.
+    How dare she ask you to, like, do,like, stuff!
+    See 'ITEMS IN THE ENVIRONMENT' for more details on Artifacts.This level is so easy, Village management-wise.
+    There is another way out of the dark room
+    You land on Basra instead, and found LynnMurphy in the bar.
     
-    Tayla informed you that Sandoval isdead
-    X and run to the elevator control F
+    For example, if you took a guild mission to deliversomething to Rygannon, look for other delivery missions, orpatrol missions in the same system, or such that you can play.* Scout is the easiest mission, as you only need to hit thewaypoints specified.* If you need to go somewhere, locate missions that are goingyour way* Try to communicate with the hostile contact.
+    4.5 WEAPONS4.5.1 Missiles and TorpedoesThe standard WC missiles are here
