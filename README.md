@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Feb 25 16:48:01 EST 2022
+## Sat Feb 26 16:48:01 EST 2022
 
-    jump point, a nav point to go around the hidden point,and the planet new Reno.
-      Known as Newt-Boy in his youth on account of his weird eyes
-    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
-    You will recieve a pile of grain for your efforts.
+    before you land,or you won't get credit for it.8.3 ATTACK MISSIONDestroy certain number of targets at a certain nav point.
+    Just remember, the KMT.
+    BOOM.
+    Santos will tell you to go through the door on your right R
     
-    Cyberia FAQ for the Sony Playstation 			 Version 1
-    Make sure you miss thehouses though, and by the time Khazar gives up on teaching you, you will havea fully-fireball-trained Creature. =============================================================================6i
-    When you attempt to take something that isn't yours
-    New Moon Moonglow Moonglow Britain Jhelom2.
+    A smaller part cannot go underneath a larger part.
+    will join him in attack.
+    >>Cyberia Complex Level 2<< RED LIGHT Red light
+    Its in amongstsome trees near the end of that path.7
     
-    How dare she ask you to, like, do,like, stuff!
-    See 'ITEMS IN THE ENVIRONMENT' for more details on Artifacts.This level is so easy, Village management-wise.
-    There is another way out of the dark room
-    You land on Basra instead, and found LynnMurphy in the bar.
+    The Aegis, The Brave  Guilder  When you cut a deal
+    Pays30K.Again, militia doesn't like you smuggling.
+    You'll learn that the janitor has been fired
+    After the conversation
     
-    For example, if you took a guild mission to deliversomething to Rygannon, look for other delivery missions, orpatrol missions in the same system, or such that you can play.* Scout is the easiest mission, as you only need to hit thewaypoints specified.* If you need to go somewhere, locate missions that are goingyour way* Try to communicate with the hostile contact.
-    4.5 WEAPONS4.5.1 Missiles and TorpedoesThe standard WC missiles are here
+    Once its fully infused, yoursymbol will appear above it.
+    Upgrade engines BEFORE you upgrade shields.
