@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Feb 26 16:48:01 EST 2022
+## Sun Feb 27 16:48:01 EST 2022
 
-    before you land,or you won't get credit for it.8.3 ATTACK MISSIONDestroy certain number of targets at a certain nav point.
-    Just remember, the KMT.
-    BOOM.
-    Santos will tell you to go through the door on your right R
+    You must destroy it to complete the mission
+    This doesn't seem to accomplish much of anything that I can tell
+    Red Circle Broken Bottom 			2
+    perform an MRI scan to view the elevator pumps
     
-    A smaller part cannot go underneath a larger part.
-    will join him in attack.
-    >>Cyberia Complex Level 2<< RED LIGHT Red light
-    Its in amongstsome trees near the end of that path.7
+    +D10 security when money is involved
+    Check out the hologram on the desk F
+    precision, extent, and security
+    <<Bomb Puzzle>> Scan the bomb with your MRI
     
-    The Aegis, The Brave  Guilder  When you cut a deal
-    Pays30K.Again, militia doesn't like you smuggling.
-    You'll learn that the janitor has been fired
-    After the conversation
+    and meet the security guard
+    re-arm your weapon, and walk into the warehouse F
+    >>Cyberia Complex Level 3<< You made it
+    Trust me.Well, that was one hell of a ride now wasn't it?
     
-    Once its fully infused, yoursymbol will appear above it.
-    Upgrade engines BEFORE you upgrade shields.
+    CATWALK Santos's guards will be after you now
+    Give him some nice food, distract him.
