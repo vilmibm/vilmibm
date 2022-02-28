@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Feb 27 16:48:01 EST 2022
+## Mon Feb 28 16:48:01 EST 2022
 
-    You must destroy it to complete the mission
-    This doesn't seem to accomplish much of anything that I can tell
-    Red Circle Broken Bottom 			2
-    perform an MRI scan to view the elevator pumps
+      Known as Newt-Boy in his youth on account of his weird eyes
+    The tables are populated based on where thesystem is, what systems are connected, and so on.For example, let's say you are at Troy.You got a contract to deliver some stuff to New Iberia, inPyrenees system in a mission from Merchants' Guild.You also found a contract to patrol Pyrenees system, all navpoints from Mercenaries' Guild.You also found a contract that had you hunt down a pirate at nav5 of Pyrenees system from the Mission Computer.So you jump in from Troy and arrive at nav 2 of Pyrenees.Pyrenees is in Humboldt Quadrant, which is Retro and Pirateterritory.
+    key!
+    Some data pirates are hacking Oxford's mainframe.
     
-    +D10 security when money is involved
-    Check out the hologram on the desk F
-    precision, extent, and security
-    <<Bomb Puzzle>> Scan the bomb with your MRI
+    ------------Ahh, the usual mayhem, kill the hippy.
+    in which case the blink will simply not move you at all).3) I have been able to get the White Stone by Blinking West from coordinates Lat.
+    the babbling tongues of the faithful and faithless
+    Note, you can only give the same animaltwice.
     
-    and meet the security guard
-    re-arm your weapon, and walk into the warehouse F
-    >>Cyberia Complex Level 3<< You made it
-    Trust me.Well, that was one hell of a ride now wasn't it?
+    toward everybody except perhaps Kilrathi and Retrosby hacking Confed and Pirate databases.
+    The entry pad is to your left F
+    all allies who can see you are +D8 extent
+    You'll be in a room with four guards
     
-    CATWALK Santos's guards will be after you now
-    Give him some nice food, distract him.
+    Well
+    Get the Creature to throw them further out tosea.
