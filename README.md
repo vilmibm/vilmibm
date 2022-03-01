@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Feb 28 16:48:01 EST 2022
+## Tue Mar  1 16:48:01 EST 2022
 
-      Known as Newt-Boy in his youth on account of his weird eyes
-    The tables are populated based on where thesystem is, what systems are connected, and so on.For example, let's say you are at Troy.You got a contract to deliver some stuff to New Iberia, inPyrenees system in a mission from Merchants' Guild.You also found a contract to patrol Pyrenees system, all navpoints from Mercenaries' Guild.You also found a contract that had you hunt down a pirate at nav5 of Pyrenees system from the Mission Computer.So you jump in from Troy and arrive at nav 2 of Pyrenees.Pyrenees is in Humboldt Quadrant, which is Retro and Pirateterritory.
-    key!
-    Some data pirates are hacking Oxford's mainframe.
+    Inc, distributed by Interplay Productions
     
-    ------------Ahh, the usual mayhem, kill the hippy.
-    in which case the blink will simply not move you at all).3) I have been able to get the White Stone by Blinking West from coordinates Lat.
-    the babbling tongues of the faithful and faithless
-    Note, you can only give the same animaltwice.
+    Enter the next room F
+    walk towards the weapon
     
-    toward everybody except perhaps Kilrathi and Retrosby hacking Confed and Pirate databases.
-    The entry pad is to your left F
-    all allies who can see you are +D8 extent
-    You'll be in a room with four guards
+    are earned when people start calling you them
+    -----------Get your influence over his hill eventually.
+    Just do the usualtactics, depending on how you play the game, and soon the Village will beyours.
+    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
     
-    Well
-    Get the Creature to throw them further out tosea.
+    What you waiting for?Lets get puzzling!GOOD SOLUTION
+    * Seven - And now for a Riddle-Me-Do!
+    Once you've killed theBlack Rhombus, you can go home.12.12 MASTERSON 3Masterson need some books shipped in, but someone else want thebooks, and they contracted bounty hunters to divert the shipment.Objective
+    ---------On the edge of the village near the Temple Puzzle, you'll find this one.
+    
+    Enter the last mirror. THE DARK CORRIDOR 1.
+    If you continue running down the hall
