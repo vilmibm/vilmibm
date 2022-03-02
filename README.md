@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Mar  1 16:48:01 EST 2022
+## Wed Mar  2 16:48:01 EST 2022
 
-    Inc, distributed by Interplay Productions
+    so perform an IR scan on it
+    "The amount of "energy" that you have stored at your Worship Site.
+    When you walk far enough, the game loads in the next  region
+    You now have access to the base's personnel files
     
-    Enter the next room F
-    walk towards the weapon
+    Climb the ladder F,F to get on the Catwalk
+    Enter the elevator R
+    ..Use ALT + 1 to slow down time so you can follow him easier.
+    don't bump it!
     
-    are earned when people start calling you them
-    -----------Get your influence over his hill eventually.
-    Just do the usualtactics, depending on how you play the game, and soon the Village will beyours.
-    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
+    Once you're ready to do some killin'
+    Or, you hated the action seqences
+    Fixermissions are always plot missions.
+    see morale and experience
     
-    What you waiting for?Lets get puzzling!GOOD SOLUTION
-    * Seven - And now for a Riddle-Me-Do!
-    Once you've killed theBlack Rhombus, you can go home.12.12 MASTERSON 3Masterson need some books shipped in, but someone else want thebooks, and they contracted bounty hunters to divert the shipment.Objective
-    ---------On the edge of the village near the Temple Puzzle, you'll find this one.
-    
-    Enter the last mirror. THE DARK CORRIDOR 1.
-    If you continue running down the hall
+    ..
+    you'll instantly die and have to restart
