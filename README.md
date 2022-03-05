@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Mar  4 16:48:01 EST 2022
+## Sat Mar  5 16:48:01 EST 2022
 
-    third, fourth, eighth
-    so wait until he fires a stray shot and blast him R to move out
-    Towards the end, you'll reach the launch bay for the swarm-- just keep firing at the center of it to take out any fighers launched
-    Some of these marks have weird stones in themthat "ping" now and again.
+    If you ever take out the governor, come back and collectmore credits.From here on, you either head to Tayla or go see Sandra Goodin(Confed)
+    Just keep trying to go right and jump every time the key in front of you moves up. THE BALLERINA 1.
+    R,F,F,R,F,F , and quickly get to the computer R
+    Decision time, although it's kind of minor
     
-    the patterns of soil
-    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
-    She wants to throw the ball with you for sure
-      THE UPSEARCHING  Strange fruits and herbs grow from the sands
+    and some armed strangers besides you are running around the complex
+    Nemesis's rage will extend onto your village, and it will be set on fire.
+    .. there's acatch, right?
+    you will be attacked from the air by helicopters
     
-    an additional six-sided dice that may be used on any way
-    F , and listen to the conversation
-    The only place I really 		noticed is at the Slice-O-Matic death scene
-      The three gods of this place are
+    Immediately shoot the two standing ones R
+    and Sapporo's not my fave
+    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
+    You will be paid 10000 credits.When you get there, Seelig pro?
     
-    A vortex will soon open up in the village.
-    R,F , and into the sealed area of Level 2
+    Let them all die.
+    Instead ofquesting to remove some all-powerful evil, you are questing toward self-improvement to become an Avatar.
