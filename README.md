@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Mar  5 16:48:01 EST 2022
+## Sun Mar  6 16:48:01 EST 2022
 
-    If you ever take out the governor, come back and collectmore credits.From here on, you either head to Tayla or go see Sandra Goodin(Confed)
-    Just keep trying to go right and jump every time the key in front of you moves up. THE BALLERINA 1.
-    R,F,F,R,F,F , and quickly get to the computer R
-    Decision time, although it's kind of minor
+    The only place I really 		noticed is at the Slice-O-Matic death scene
+    You now control the village.
+    Theyneed someone to help them but they can't advertise
+      GLIMMER - A shimmering crystal dust that collects in the corners of temples to Demos
     
-    and some armed strangers besides you are running around the complex
-    Nemesis's rage will extend onto your village, and it will be set on fire.
-    .. there's acatch, right?
-    you will be attacked from the air by helicopters
+    Enter the last mirror. THE DARK CORRIDOR 1.
+    and I thought of something and just finished testing it successfully.
+    you are consideredone of the 8), be well equipped, have lots of reagants, and a good supply ofitems.Dungeon Locations: (from Stephanus Rudiyanto Natari)------------------ Deceit: EJ PA Despise: ED FL Destard: KI EI Wrong: BE HO Covetous: BL JM Shame: GG DK Hythloth: PA OP Hard to find dungeons: - Shame (Although you know the entrance location) To enter this dungeon, sail down the river from HF CA - Hythloth (Easy Entrance) 'Jimmy Lock' a locked door behind Castle Britannia, and climb down the  ladder.Stones:------- White: On top of serpent's spine, can only be reached via balloon (which can be found outside Hythloth) Black: Search the Moonglow Moongate during a double new moon Blue: Seventh Level of Deceit Yellow: Fifth Level of Despise Red: Seventh Level of Destard Green: Eighth Level of Wrong Orange: Seventh Level of Covetous Purple: Second Level of ShameOnce you have the stones you must use them in the 3 rooms of principles to getthe 3 part key.
+    They're drowning and they need rescued, quickity quick.
     
-    Immediately shoot the two standing ones R
-    and Sapporo's not my fave
-    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
-    You will be paid 10000 credits.When you get there, Seelig pro?
+    This is the farthest point your caravan will reach before it is scheduled to return to the Hand
+    Once per game, +D10 when you involve an NPC
+    He isn't a great shot
+    Tayla informed you that Sandoval isdead
     
-    Let them all die.
-    Instead ofquesting to remove some all-powerful evil, you are questing toward self-improvement to become an Avatar.
+    * Two - Just Where Was This Freak Wave?
+    *
