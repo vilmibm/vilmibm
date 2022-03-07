@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Mar  6 16:48:01 EST 2022
+## Mon Mar  7 16:48:01 EST 2022
 
-    The only place I really 		noticed is at the Slice-O-Matic death scene
-    You now control the village.
-    Theyneed someone to help them but they can't advertise
-      GLIMMER - A shimmering crystal dust that collects in the corners of temples to Demos
+    It has adecent rear turret.Only Kilrathi fly Gothri.5.4 MULTIPURPOSE5.4.1 TarsusTarsus is usually classified as a scout, but it has some amountof cargo room that allows it to act as a small transport in low-threat areas.5.4.2 OrionOrion's claim to fame is its heavy shields
+    are earned when people start calling you them
+    which is the fuel truck
+    This does take a hunk out of your energy
     
-    Enter the last mirror. THE DARK CORRIDOR 1.
-    and I thought of something and just finished testing it successfully.
-    you are consideredone of the 8), be well equipped, have lots of reagants, and a good supply ofitems.Dungeon Locations: (from Stephanus Rudiyanto Natari)------------------ Deceit: EJ PA Despise: ED FL Destard: KI EI Wrong: BE HO Covetous: BL JM Shame: GG DK Hythloth: PA OP Hard to find dungeons: - Shame (Although you know the entrance location) To enter this dungeon, sail down the river from HF CA - Hythloth (Easy Entrance) 'Jimmy Lock' a locked door behind Castle Britannia, and climb down the  ladder.Stones:------- White: On top of serpent's spine, can only be reached via balloon (which can be found outside Hythloth) Black: Search the Moonglow Moongate during a double new moon Blue: Seventh Level of Deceit Yellow: Fifth Level of Despise Red: Seventh Level of Destard Green: Eighth Level of Wrong Orange: Seventh Level of Covetous Purple: Second Level of ShameOnce you have the stones you must use them in the 3 rooms of principles to getthe 3 part key.
-    They're drowning and they need rescued, quickity quick.
+    In the dark room, head towards the door B
+    please write me at cjayc@flex
+    PORT FLYBY - Archangel Military Port Tons of air and ground targets
+    If you continue running down the hall
     
-    This is the farthest point your caravan will reach before it is scheduled to return to the Hand
-    Once per game, +D10 when you involve an NPC
-    He isn't a great shot
-    Tayla informed you that Sandoval isdead
+    This compartment can fit 20 cargo units and isonly good for smuggling contraband.
+    These objects are really useful in increasing your influence in theworld of Eden.
+    PUZZLE LEVEL 2: Hit the following switches
+    She organizes the resistance, trying to breakthe blockade.Objective
     
-    * Two - Just Where Was This Freak Wave?
-    *
+    |+=============================================================================++=============================================================================+| A. Moongates |+=============================================================================+There are 8 locations of moongates, one for each town of virtue in the game.Based on the phase of the first moon, is when a moongate will open, and the 2ndmoon's phase tells you where it will take you.
+    ------ - In the south part of town are some mountains, in a nook find the Rune of Humility. - Find the Magic Shop (secret wall in Armory East) and buy reagants, pay the right amount to increase virtue.
