@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Mar  7 16:48:01 EST 2022
+## Tue Mar  8 16:48:01 EST 2022
 
-    It has adecent rear turret.Only Kilrathi fly Gothri.5.4 MULTIPURPOSE5.4.1 TarsusTarsus is usually classified as a scout, but it has some amountof cargo room that allows it to act as a small transport in low-threat areas.5.4.2 OrionOrion's claim to fame is its heavy shields
-    are earned when people start calling you them
-    which is the fuel truck
-    This does take a hunk out of your energy
+    She wants to throw the ball with you for sure
+    The Villagers will hardlycomplain about anything, so you're fine there.
+    Your gun ammo is the horizontal red bar
+    ------------Um.
     
-    In the dark room, head towards the door B
-    please write me at cjayc@flex
-    PORT FLYBY - Archangel Military Port Tons of air and ground targets
-    If you continue running down the hall
+    The only thingthat can hurt the drone is your Steltek gun
+    Your reward for this evil-doing is exactly the same
+    Well done, oldbean.EVIL SOLUTION
+    Notall ships can use all levels.
     
-    This compartment can fit 20 cargo units and isonly good for smuggling contraband.
-    These objects are really useful in increasing your influence in theworld of Eden.
-    PUZZLE LEVEL 2: Hit the following switches
-    She organizes the resistance, trying to breakthe blockade.Objective
+    Walk into the room F DRUG STORE Have a seat L
+    any of them may be treated as though they were any type you have available - even untyped
+    Head for NC and lookup Roman Lynch, who's a "made man" in the mob.12.6 LYNCH 1You arrive in NC, and Roman Lynch, with his bodyguard Miggs, needsome work done.
+    the babbling tongues of the faithful and faithless
     
-    |+=============================================================================++=============================================================================+| A. Moongates |+=============================================================================+There are 8 locations of moongates, one for each town of virtue in the game.Based on the phase of the first moon, is when a moongate will open, and the 2ndmoon's phase tells you where it will take you.
-    ------ - In the south part of town are some mountains, in a nook find the Rune of Humility. - Find the Magic Shop (secret wall in Armory East) and buy reagants, pay the right amount to increase virtue.
+    contraband.6.5 REFINERY BASETakes all those ores and such, makes them into finished products,like plastics, home appliances, construction equipment, and soon.Buys ores, wood,
+    The goddesses are deep beneath the sand
