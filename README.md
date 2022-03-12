@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Mar 11 16:48:01 EST 2022
+## Sat Mar 12 16:48:01 EST 2022
 
-    Watch your shields, conserve your shots
-    move behind the column L
-    The goddesses are here
-    You can only find there-generating kind, and you can only make the packing kind. =============================================================================11 F R E Q U E N T L Y A S K E D Q U E S T I O N S =============================================================================Whats Belief?
+      Ranks: Pilgrim, Wanderer
+    but using the IR scan triggers an explosive
+    Anyway, if youtake a look-see in the village where you completed the first Silver Scroll,you'll find this one as well.
+    a vast thirty-storey chapel
     
-    Once per game, when you inflict great effect on an evildoer
-    Gibbous Waning Trinsic Magincia Moonglow Britain7.
-    When you track or chase down an adversary
-    R,F , and into the sealed area of Level 2
+    are earned when people start calling you them
+    tougher) missions.Offered: attack, bounty hunt, defend, patrol, scout (see [8] formission types)Typical mission pays about two to five thousand.7.3 MERCHANTS' GUILDMerchants' Guild costs 1000 credits to join, but they guaranteepayment as well.Almost all Merchants' Guild missions require jumping to anothersystem.
+    F,F,F , and step forward F
+    Beware, as wolves reside inthe nearby forest, and will frequently come out at night to kill villagers inthe village.
     
-    To be used once only.
-    Lucky.BAD SOLUTION
-    And frankly, he's a jerk  trying to "destroy the living" or what not, so he probably deserves the bad  treatment.
-    You can't hurtit though, even with that Steltek gun.
+    A guy with a grenade
+    When you walk far enough, the game loads in the next  region
+    Your objective is totravel the known universe
+    You have heard the whispers of something greater than you in your sleep
     
-    If not in your hands, a part must be on apole.
-    You'll need to land after completing the mission to refuel.14.13 GOODIN 4Patrol Regallis System, destroy all intruders.
+    Wandering around the maze of boxes F
+    8.5 DEFEND BASETake out the attackers, simple enough, right?You can get base defense missions through Mercenaries' Guild andMission Computer.
