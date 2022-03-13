@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Mar 12 16:48:01 EST 2022
+## Sun Mar 13 16:48:01 EDT 2022
 
-      Ranks: Pilgrim, Wanderer
-    but using the IR scan triggers an explosive
-    Anyway, if youtake a look-see in the village where you completed the first Silver Scroll,you'll find this one as well.
-    a vast thirty-storey chapel
+    Its useful, believe me.EVIL SOLUTION
+    Then take on Jones himself in adecked-out Centurion.
+    Get through this section as quickly as possible F
+    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
     
-    are earned when people start calling you them
-    tougher) missions.Offered: attack, bounty hunt, defend, patrol, scout (see [8] formission types)Typical mission pays about two to five thousand.7.3 MERCHANTS' GUILDMerchants' Guild costs 1000 credits to join, but they guaranteepayment as well.Almost all Merchants' Guild missions require jumping to anothersystem.
-    F,F,F , and step forward F
-    Beware, as wolves reside inthe nearby forest, and will frequently come out at night to kill villagers inthe village.
+    When you’re struggling to survive
+    8 Finished, and packedthose bags?
+    Once you've killed theBlack Rhombus, you can go home.12.12 MASTERSON 3Masterson need some books shipped in, but someone else want thebooks, and they contracted bounty hunters to divert the shipment.Objective
+    Feel free to fly past them.14.9 LYNN MURPHY 4Go to Metsor, clear Nav Points, for 50K.
     
-    A guy with a grenade
-    When you walk far enough, the game loads in the next  region
-    Your objective is totravel the known universe
-    You have heard the whispers of something greater than you in your sleep
+    You aren't going to get paid any way.
+    Altough there is a neat death sequence on the other side of the door
+    re-arm your weapon, and walk into the warehouse F
+    It's time for revenge-- you're going after Devlin
     
-    Wandering around the maze of boxes F
-    8.5 DEFEND BASETake out the attackers, simple enough, right?You can get base defense missions through Mercenaries' Guild andMission Computer.
+    Don't go to the fish part until later.
+    How dare she ask you to, like, do,like, stuff!
