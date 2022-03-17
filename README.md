@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Mar 16 16:48:01 EDT 2022
+## Thu Mar 17 16:48:01 EDT 2022
 
-    Militia can be found in all fourquadrants.Militia hates Pirates, Kilrathis, and Retros see factions
-    Jump onto one of the light fixtures.
-    Go on, you know you must.
-    in search of some very ominous goings-on there
+    The actual size depends onthe particular craft being fitted.4.6.9 Quadrant mapsMaps of all quadrants, you can buy these separately, or get allfour for a bundle discount.4.6.10 TurretNeeded for tractor beam and rear guns.Some ships may allow more than one turret
+    Again, you should afterburner past them, ignoringtheir fire.
+    "Buylow, sell high", and "take on missions".
+    You should afterburnerpast them, ignoring their fire.
     
-    ------------Heck, just throw stones at the pillar until you knock the rock off, not toohard.
-    and give them to especially bright children as an inheritance
-    Apparently someone brokeinto your hangar and stole your Steltek gun.
-    Pirates, Kilrathis, andRetros (see factions)Merchants fly Drayman (transport), Galaxy (transport), Tarsus(scout/transport) (see crafts)Merchant pilots are usually timid, maybe confident rookie or pro(see morale and experience)Their initial attitude toward you is neutral.To make Merchants like you, you should:* not attack merchantsTechnically merchants won't really "like" you.
+    100,0004.6.7 Repair droidRepairs your damage except to armor and weapons.
+    Yep.
+    If you feel up to the challenge, stay at the haunted inn to get some info on the White Stone.g.
+    derived from your paths
     
-    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
-    Guardian Titles: The Bastion
-    Tayla informed you that Sandoval isdead
-    Ike.
+    Enlarge Creature Miracle Dispenser.
+    crystals form in hidden rooms
+    There's only one active switch
+    storms, stars and prediction
     
-    Get the Creature topick them up and then eat them.
-    First possible Creature fight of the game!
+    NOT FRIENDS No, they're not
+    Enter the room again for a quick laugh B
