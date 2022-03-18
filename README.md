@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Mar 17 16:48:01 EDT 2022
+## Fri Mar 18 16:48:01 EDT 2022
 
-    The actual size depends onthe particular craft being fitted.4.6.9 Quadrant mapsMaps of all quadrants, you can buy these separately, or get allfour for a bundle discount.4.6.10 TurretNeeded for tractor beam and rear guns.Some ships may allow more than one turret
-    Again, you should afterburner past them, ignoringtheir fire.
-    "Buylow, sell high", and "take on missions".
-    You should afterburnerpast them, ignoring their fire.
+    which is the fuel truck
+    boththese things increase the size of your Influence.
+    Gibbous Waxing Yew Britain Jhelom Yew5.
+    Enter that one by pushing up. THE PIANO 1.
     
-    100,0004.6.7 Repair droidRepairs your damage except to armor and weapons.
-    Yep.
-    If you feel up to the challenge, stay at the haunted inn to get some info on the White Stone.g.
-    derived from your paths
+      THE UPSEARCHING  Strange fruits and herbs grow from the sands
+    His community saw that he was quite slow
+      DEMOS, goddess of excess
+    Keep running
     
-    Enlarge Creature Miracle Dispenser.
-    crystals form in hidden rooms
-    There's only one active switch
-    storms, stars and prediction
+    It's a renter in my book this FAQ has been written from a rental weekend
+    yes, sorry,some tiny amount of musical affinity may be required here you will recievea Food Miracle Dispenser.
+    However, there is a cheat code see below that allows you to see the censored scene s
+    That explainsthose "unknown" ships flying about
     
-    NOT FRIENDS No, they're not
-    Enter the room again for a quick laugh B
+    ?
+    Watch out for the hoverfighters waiting for you at the end of the tunnel
