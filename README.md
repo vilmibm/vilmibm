@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Mar 18 16:48:01 EDT 2022
+## Sat Mar 19 16:48:02 EDT 2022
 
-    which is the fuel truck
-    boththese things increase the size of your Influence.
-    Gibbous Waxing Yew Britain Jhelom Yew5.
-    Enter that one by pushing up. THE PIANO 1.
+    and the game does kind of suck you in over time
+    You will also learn that the Green Stone of Justice is in Dungeon Wrong - Some chanting druids (by a fire and with Jaana) are chanting: BEHj.
+    Eating one removes sensations of hunger and refreshes the user
+    Red Circle Broken Bottom 			2
     
-      THE UPSEARCHING  Strange fruits and herbs grow from the sands
-    His community saw that he was quite slow
-      DEMOS, goddess of excess
-    Keep running
+    8 galaxies in the original each withhundreds of different star systems, each system with differentgovernment and different commodity availability and prices.
+    The Drayman is REALLY weak, so you have to let themissiles fly as soon as you get in range.
+    +D8 Security when you are threatened with physical harm by evildoers Unstoppable
+    Exit the room back to the main hallway R
     
-    It's a renter in my book this FAQ has been written from a rental weekend
-    yes, sorry,some tiny amount of musical affinity may be required here you will recievea Food Miracle Dispenser.
-    However, there is a cheat code see below that allows you to see the censored scene s
-    That explainsthose "unknown" ships flying about
+    ---------Seems theres a nasty idol going around these parts.
+    Blue Half-Circles My code do they change
+    whereas your title is generally only applied when your full name is written or spoken
+    Be warned, sacrificing people will make you evil, and also,people worshipping at your site need food and the occassional rest.
     
-    ?
-    Watch out for the hoverfighters waiting for you at the end of the tunnel
+    Guardian Titles: The Bastion
+    Altough there is a neat death sequence on the other side of the door
