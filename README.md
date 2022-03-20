@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Mar 19 16:48:02 EDT 2022
+## Sun Mar 20 16:48:01 EDT 2022
 
-    and the game does kind of suck you in over time
-    You will also learn that the Green Stone of Justice is in Dungeon Wrong - Some chanting druids (by a fire and with Jaana) are chanting: BEHj.
-    Eating one removes sensations of hunger and refreshes the user
-    Red Circle Broken Bottom 			2
+    Cannot repairdestroyed items.
+    So here's a little guide to help explain  how to learn what you need to know from NPC's.Common Words to Say
+    However, there is a cheat code see below that allows you to see the censored scene s
+    Nasty virus, and it's spreading through the complex
     
-    8 galaxies in the original each withhundreds of different star systems, each system with differentgovernment and different commodity availability and prices.
-    The Drayman is REALLY weak, so you have to let themissiles fly as soon as you get in range.
-    +D8 Security when you are threatened with physical harm by evildoers Unstoppable
-    Exit the room back to the main hallway R
+    Immediately shoot the two standing ones R
+    .. problems investigating the artifact.Objective: Deliver weapons from NC to Siva (agricultural base,Rikel system).
+    and from the sea by magnetic mines green dots
+    When you have 4 to 5 pieces on you jump up to grab the stick and exit out. THE AMUSEMENT PARK 1.
     
-    ---------Seems theres a nasty idol going around these parts.
-    Blue Half-Circles My code do they change
-    whereas your title is generally only applied when your full name is written or spoken
-    Be warned, sacrificing people will make you evil, and also,people worshipping at your site need food and the occassional rest.
+    ..excrement.
+     Advances; Performer
+    Hit him in-between shots R to move out
+    You'll then need to use Heal Miraclesto cure all the poisoned people.
     
-    Guardian Titles: The Bastion
-    Altough there is a neat death sequence on the other side of the door
+    It's not entirely linear- there are two decision points where you can take two entirely different paths through the game
+    MEET GIA The lovely Gia will tell you to turn around nice and slowly L and you will disarm your weapon
