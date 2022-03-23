@@ -9,22 +9,21 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Mar 22 16:48:01 EDT 2022
+## Wed Mar 23 16:48:01 EDT 2022
 
-      Known as Newt-Boy in his youth on account of his weird eyes
-    You've been dumped out into a new world/island, and you've novillages, no Creatures, and only a few followers.
-    You need ECM to counter enemy missiles.You can probably run away from any early enemies that youencounter, or you can test your combat prowess with your mesonblasters and torpedoes.
-    Then the sands came: a great golden ocean that washed away the old world
+    Hit the following switches
+    If you'relooking for a specific contact and you don't see him, but youfound something else hostile instead, consider turn and run.
+    Admiral Terrell is in charge of the whole sector from his HQ atPerry Naval Base.
+    down down 	L2: Changes to flightsim cursor mode up down
     
-    .. And it's all up toyou.Here are some combat tips against the drone:-- Don't get between the Confed fleet and the drone!
-    a 21st century hacker on a mission to infiltrate a secret base in Siberia
-    try and get it as far as you can.Now build the village centre with your villagers, and you'll have a miniarea of influence.
-    next to the VillageCentre.
+    Take them all out.Centurions will be your biggest threat, so you may want to keepyour missiles until they show up.12.16 LYNN MURPHY 3Bust the blockade and land on Palan.Objective
+    You landand finish the contract.
+    then you will defeat Nemesis, Guide's old God.
+    Get through this section as quickly as possible F
     
-    She communicates in the shine of gold
-     The same applies to you with regards to your opponent
-    You can also gain Mana by sacrifice
-    Just RUN really fast.14.16 TAYLA 3Run Brilliance from Tuck's in Sherwood to Speke in Junction.
+    and from the sea by magnetic mines green dots
+    Can anyone help me outhere?
+    you're a sitting duck until they recharge again
+    Then tractor in the ejected cargoand continue.
     
-    There are a few different colours of Mushroom available in thegame, each one having its own uses.
-    you'll die, so be very fast and precise
+    .. Stay in his office to watch some funnydialog.13 Righteous Fire Changes Righteous Fire introduced many changes, most of them are listedas below.13.1 NEW EQUIPMENTIsometal Armor is now the best armor, twice as good as tungsten,twice as expensive.Advanced Repair Droid is now available, twice as expensive, twiceas fast.Gun cooler is now available, decreases refire delay by 25    LI GK---------- - Dupre, a paladin, will join you here. - Talk to Terrin in the SE corner of town to learn that the Rune of Honor is in the SW corner of town.
