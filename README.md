@@ -9,21 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Mar 23 16:48:01 EDT 2022
+## Thu Mar 24 16:48:01 EDT 2022
 
-    Hit the following switches
-    If you'relooking for a specific contact and you don't see him, but youfound something else hostile instead, consider turn and run.
-    Admiral Terrell is in charge of the whole sector from his HQ atPerry Naval Base.
-    down down 	L2: Changes to flightsim cursor mode up down
+    and then move to the switches on the left
+    This witch leaves nearby that last village you took.She claims she can bring youth back to old people, so lets test her claims,shall we?GOOD SOLUTION
+    Run back to the right and hit the bee so that it flies off the screen to the right.
+    This Vortex will stay open until you gothrough.
     
-    Take them all out.Centurions will be your biggest threat, so you may want to keepyour missiles until they show up.12.16 LYNN MURPHY 3Bust the blockade and land on Palan.Objective
-    You landand finish the contract.
-    then you will defeat Nemesis, Guide's old God.
-    Get through this section as quickly as possible F
+    Escort Hunter Toth (Drayman) to Oxford.
+    whereas your title is generally only applied when your full name is written or spoken
+    Escort Vulcan's Forge (Drayman) to Oxford.
+    Tayla will pay you 20000 Credits upon delivery.
     
-    and from the sea by magnetic mines green dots
-    Can anyone help me outhere?
-    you're a sitting duck until they recharge again
-    Then tractor in the ejected cargoand continue.
+    No pay.It's a long flight to Valhalla, and big battle is ahead, so saveyour missiles.
+    pressing the button and up. THE STATUE 1.
+    Then, stand back and enjoy the ending all 20 seconds of it
+    Go over to the large crate blocking a door F
     
-    .. Stay in his office to watch some funnydialog.13 Righteous Fire Changes Righteous Fire introduced many changes, most of them are listedas below.13.1 NEW EQUIPMENTIsometal Armor is now the best armor, twice as good as tungsten,twice as expensive.Advanced Repair Droid is now available, twice as expensive, twiceas fast.Gun cooler is now available, decreases refire delay by 25    LI GK---------- - Dupre, a paladin, will join you here. - Talk to Terrin in the SE corner of town to learn that the Rune of Honor is in the SW corner of town.
+    ..
+    Once per game, when you need a burst of vigour
