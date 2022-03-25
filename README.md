@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Mar 24 16:48:01 EDT 2022
+## Fri Mar 25 16:48:01 EDT 2022
 
-    and then move to the switches on the left
-    This witch leaves nearby that last village you took.She claims she can bring youth back to old people, so lets test her claims,shall we?GOOD SOLUTION
-    Run back to the right and hit the bee so that it flies off the screen to the right.
-    This Vortex will stay open until you gothrough.
+    Your flight computer will let you know when it's coming look for the green glow
+    Depending on your final answer will be the type of character you are inthe game, and where you start the game. Virtue
+    Exit the room L,F Head back down the hall L
+    You have a good ideawho this "employer" is
     
-    Escort Hunter Toth (Drayman) to Oxford.
-    whereas your title is generally only applied when your full name is written or spoken
-    Escort Vulcan's Forge (Drayman) to Oxford.
-    Tayla will pay you 20000 Credits upon delivery.
+    your name might refer to a street
+    Decision time, although it's kind of minor
+    When you focus your mind to the works of the divine
+    Monkhouse want to get over to Basra.
     
-    No pay.It's a long flight to Valhalla, and big battle is ahead, so saveyour missiles.
-    pressing the button and up. THE STATUE 1.
-    Then, stand back and enjoy the ending all 20 seconds of it
-    Go over to the large crate blocking a door F
+    If you walk away B,F
+    F,L,F,F,L,F,F , and enter the door on your left with the card key L
+    key to jump. THE GRANDFATHER CLOCK 1.
+    The only goal here is to survive
     
-    ..
-    Once per game, when you need a burst of vigour
+    Take the document back toMonte at New Detroit.SIDENOTE
+    It's a basic logic diagram
