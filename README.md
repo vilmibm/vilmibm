@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Mar 31 16:48:01 EDT 2022
+## Fri Apr  1 16:48:01 EDT 2022
 
-    the lovely green valleys of Norway
-    Your Creature will be harmed in the process, and GodConscience will inform you that he needs to be healed.
-    all the while being attacked by hoverfighters
-    See [7] for mission sources
+    you'll die, so be very fast and precise
+    the movement of trade
+    ------------The sheep can be found at the following places...pick them up and return themto the farmer's pen.1) Its nearby the house where you got the third Gate Stone, AKA, the Sculptor'shouse.2) Its behind the Gate that you had to open.3) Its where you found the sick man for the second Gate Stone quest.4) Its next to the hut where you practiced stone throwing.5) Its on the edge of the village, in a pen with some pigs.6) Remember the path that you came along when you first started?
+      Your adult name is chosen to reflect your time as a child
     
-    ..So you grab it!When you leave, you'll encounter random enemies... A green thingis following you around... And kill you if it can.
-    MUWHAH-sorry.EVIL SOLUTION
-    .. You may get something, orperhaps nothing at all.
-    none, Speed 1200, Damage 20 cm, price 15Easier to use than dumbfire and does more damage, but requires aseparate launcher.
+    Wait until he is on the other side
+    Not a very friendly guard
+    The first two rolls determine someone else in the caravan who loves you - their primary and secondary paths
+    After you are subject to effect in a scene
     
-    Simpleenough, right?
-    I'd suggest you justfly right past them and save your missiles.
-      DEMOS, goddess of excess
-    Think of the drone as a huge Demonwith tremendous frontal firepower.
+        YOUR HOME  You’re from somewhere
+    Confed have noticed the green thing.
+    Yes, the button says Hanger
+    =DEVIL SOLUTION
     
-    You'll find this Silver Scrollnear the middle village on the island.
-    Check other mission sources first.Offered
+    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
+    If you have a very fast ship or you're willing to angerthe militia/Confed you can give this a try.Sometimes a fixer will ask you to smuggle something.
