@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Apr  1 16:48:01 EDT 2022
+## Sat Apr  2 16:48:01 EDT 2022
 
-    you'll die, so be very fast and precise
-    the movement of trade
-    ------------The sheep can be found at the following places...pick them up and return themto the farmer's pen.1) Its nearby the house where you got the third Gate Stone, AKA, the Sculptor'shouse.2) Its behind the Gate that you had to open.3) Its where you found the sick man for the second Gate Stone quest.4) Its next to the hut where you practiced stone throwing.5) Its on the edge of the village, in a pen with some pigs.6) Remember the path that you came along when you first started?
-      Your adult name is chosen to reflect your time as a child
+    Then return.
+    Repeat until you kill it.Return to Terrell's office at Perry Naval Base for the thanks ofthe Confederation
+    Take out the Gothris first.12.21 CROSS 4One last mission for the Exploratory Services
+    and be prepared for the final boss
     
-    Wait until he is on the other side
-    Not a very friendly guard
-    The first two rolls determine someone else in the caravan who loves you - their primary and secondary paths
-    After you are subject to effect in a scene
+    Pays 10K.You're almost at the border, so expect LOTS of Kilrathi presence,up to even Kamekh corvettes.
+    and the game does kind of suck you in over time
+    Back in another hallway
+    If you have big enough engineyou can use afterburner continuously as long as you don't useany other energy, like firing guns
     
-        YOUR HOME  You’re from somewhere
-    Confed have noticed the green thing.
-    Yes, the button says Hanger
-    =DEVIL SOLUTION
+    The building of Creche encourages villagers tohave more kids as well, which is always good.WORKSHOP
+    Once you have a good antidote
+    F , turn around and lock it behind you L
+    If you can't outrun them... Eject the contraband and stop.They will eventually go away.
     
-    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
-    If you have a very fast ship or you're willing to angerthe militia/Confed you can give this a try.Sometimes a fixer will ask you to smuggle something.
+    Pays 20K.2+3 Bounty Hunter Demons at the navpoints in Liverpool.
+    If you feellike it, take him out, else run for it.12.7 LYNCH 2You're not happy at Lynch who tried to use you as a freebiebounty hunter, and he's not happy at investigating your artifact,as he's running into
