@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Apr  4 16:48:01 EDT 2022
+## Tue Apr  5 16:48:01 EDT 2022
 
-    Step on the elevator F
-    The large carriers are never targets
-    ------------I get tired of typing these, I really do.
-    These form nicknames
+    Another one will make your Creature grow faster.
+    when you upgrade to afterburners.5.5 CAPITAL SHIPS5.5.1 ParadigmParadigm is a Confed corvette that can dish out quite a bit offirepower.
+    Place a skeleton in it, andthe person will be revived!BAD SOLUTION
+    You land on Basra instead, and found LynnMurphy in the bar.
     
-    While theConfeds can't hurt the drone, the Confeds can hurt you!
-    the detonators will explode in six seconds
     Don't forget that mother as well.
-    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
+    After you are subject to effect in a scene
+    Step on the elevator F
+    Of course, you use up yourmissiles twice as fast.*
     
-    and we seek sanctuary inside them
-    Once per scene, your precision is equal to your extent
-    Price
-    * Nine - Children.
+    It'll behelpful, believe me.BACKGROUND
+    contraband.6.5 REFINERY BASETakes all those ores and such, makes them into finished products,like plastics, home appliances, construction equipment, and soon.Buys ores, wood,
+    This scroll is useful however,in learning the fundamental skill of projectile throwing.GOOD SOLUTION
+    All four pumps fall at different rates
     
-    You can now take all these One-Shot Miracles through the next world, to help you there.Handy, non?*-* TEACHING YOUR CREATURE FIREBALL *-*When Khazar is teaching you how to attack with fireballs, use the Leash tobring your Creature over to where you are.
-    The Village Store containsall the wood and food that belongs to that village.
+    Escort Hunter Toth (Drayman) to Oxford.
+    Its in amongstsome trees near the end of that path.7
