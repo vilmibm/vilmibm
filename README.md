@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Apr  5 16:48:01 EDT 2022
+## Wed Apr  6 16:48:01 EDT 2022
 
-    Another one will make your Creature grow faster.
-    when you upgrade to afterburners.5.5 CAPITAL SHIPS5.5.1 ParadigmParadigm is a Confed corvette that can dish out quite a bit offirepower.
-    Place a skeleton in it, andthe person will be revived!BAD SOLUTION
-    You land on Basra instead, and found LynnMurphy in the bar.
+    The actual missions are discussed in the nextsection.
+    ------------Heh.
+    Failingthat, locate commodities that you can sell for a profit at thatbase.TIP
+    The Drayman is REALLY weak, so you have to let themissiles fly as soon as you get in range.
     
-    Don't forget that mother as well.
-    After you are subject to effect in a scene
-    Step on the elevator F
-    Of course, you use up yourmissiles twice as fast.*
+    Trust me.Well, that was one hell of a ride now wasn't it?
+    not thatwell though.
+    His cousin needs to "get out of town","away from the heat"
+    He was last seen on Palan.So to Palan you go
     
-    It'll behelpful, believe me.BACKGROUND
-    contraband.6.5 REFINERY BASETakes all those ores and such, makes them into finished products,like plastics, home appliances, construction equipment, and soon.Buys ores, wood,
-    This scroll is useful however,in learning the fundamental skill of projectile throwing.GOOD SOLUTION
-    All four pumps fall at different rates
+    Codes and Cheats Is there a cheat code for this game
+    Anyway,its time to move onto the final village, and reclaim your village.
+    Follow thetransport
+    Your Creature lives here, in his penin front of the entrance.
     
-    Escort Hunter Toth (Drayman) to Oxford.
-    Its in amongstsome trees near the end of that path.7
+    She communicates in the migration of birds
+    you are simply known as boy or girl or child
