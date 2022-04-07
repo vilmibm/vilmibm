@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Apr  6 16:48:01 EDT 2022
+## Thu Apr  7 16:48:01 EDT 2022
 
-    The actual missions are discussed in the nextsection.
-    ------------Heh.
-    Failingthat, locate commodities that you can sell for a profit at thatbase.TIP
-    The Drayman is REALLY weak, so you have to let themissiles fly as soon as you get in range.
+    L to move back, X to shoot
+    EASY RIDE Before taking off
+    Heat a rock,and sit it next to it.
+    Findhim and destroy him.
     
-    Trust me.Well, that was one hell of a ride now wasn't it?
-    not thatwell though.
-    His cousin needs to "get out of town","away from the heat"
-    He was last seen on Palan.So to Palan you go
+    However, don't do this on plot missions.
+    Hit the statue up and down until it crumbles.
+    Once per scene, when you let your mistress guide your actions
+    aceflying a Demon, and 2 more Demons
     
+    Well, there's a lot of plot for this game
+    Sandoval say he doesn't have the money upfront, and hegives you an alien artifact as collateral.
     Codes and Cheats Is there a cheat code for this game
-    Anyway,its time to move onto the final village, and reclaim your village.
-    Follow thetransport
-    Your Creature lives here, in his penin front of the entrance.
+    Some data pirates are hacking Oxford's mainframe.
     
-    She communicates in the migration of birds
-    you are simply known as boy or girl or child
+    At the very beginning of the game you will be asked 7 questions by a gypsywoman.
+    Enter the next room F
