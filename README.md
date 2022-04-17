@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Apr 16 16:48:01 EDT 2022
+## Sun Apr 17 16:48:01 EDT 2022
 
-    the ball rolls past you and the woman sticks you in the throat. 3.
-    Your objective is totravel the known universe
+    it's half standard adventure with amazing graphics and play
+    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
     Enlarge Creature Miracle Dispenser.
-    You will get 2friendly Talons as wingmen.
+    Get the Creature to throw them further out tosea.
     
-    You aren't going to get paid any way.
-    fighter), Gothri (heavy fighter/bomber),and Kamekh (corvette) (see crafts)Kilrathi pilots are usually confident or fanatical pros or aces.Gothri are usually piloted by aces.
-    PIT STOP - Zubrovska Blue targets are friendly
-    The entry pad is to your left F
+    Cyberia, released by Interplay
+    Wow
+    Watch out, as the circus dudes willtry to seek revenge by inconveniencing your village.
+    =DEVIL SOLUTION
     
-    PIT STOP - Zubrovska Blue targets are friendly
-    Theyreluctantly agreed.
-    Switch to tractor beam, aim at the cargo, andhit the trigger.
-    ..you'll get nothing if everyone dies, though.
+    ARCADE LEVEL 3: Destroy 800f the virus
+    they change their ways
+      THE UPSEARCHING  Strange fruits and herbs grow from the sands
+    .. 1.
     
-    A vortex will soon open up in the village.
-    You move on to nav 1, more random.Keep moving to nav 6, and there is the patrol enemy
+    You don'tnessessarily have to cast it into the Village Store, just make sure thereare lots of people near where you cast it.
+    digital joystick , I suggest Arcade level 1 just because it's so difficult to get that cursor where you want it with just eight directions
