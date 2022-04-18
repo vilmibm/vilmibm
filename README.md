@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Apr 17 16:48:01 EDT 2022
+## Mon Apr 18 16:48:01 EDT 2022
 
-    it's half standard adventure with amazing graphics and play
-    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
-    Enlarge Creature Miracle Dispenser.
-    Get the Creature to throw them further out tosea.
+    Take your time to take stuff through to the next land.
+    Its in the mountain on a cliff.4) In the quarry where you found the stone that the sculptor could use to makea new Gate Stone.5) Next to the graveyard in the first village.For bringing the stones back and arranging them in scale order
+    ..excrement.
+    These rooms are located at the bottom of dungeons.
     
-    Cyberia, released by Interplay
-    Wow
-    Watch out, as the circus dudes willtry to seek revenge by inconveniencing your village.
-    =DEVIL SOLUTION
+    .....a beach ball and a Heal Increase Miracle Dispenser.EVIL SOLUTION-------------Fight him.
+    It's a basic logic diagram
+    Focus him(while you and the Creature are connected by the leash, click on something withthe RMB) on a drowning villager, he should pick it up.
+    Try the ultimateevil, find his sheep THEN kill him.
     
-    ARCADE LEVEL 3: Destroy 800f the virus
-    they change their ways
-      THE UPSEARCHING  Strange fruits and herbs grow from the sands
-    .. 1.
+    >
+    Try to avoid a fight if it's possible.
+    Timing is important in catching the ball.
+    Just set nav to thejump point and set autopilot
     
-    You don'tnessessarily have to cast it into the Village Store, just make sure thereare lots of people near where you cast it.
-    digital joystick , I suggest Arcade level 1 just because it's so difficult to get that cursor where you want it with just eight directions
+    Even those merchants with theirpopguns will come after you.
+    5 Max shields: 5A fully upgraded ship would have* level 5 shields and level 5 engines* tungsten armor* max ECM available* 1 missile launcher with IR or FF missiles* high-level scanner* repair droid* cargo expansion* all quadrant maps* rear turret* tractor beam in turret* GOOD energy guns (tachyon cannons would be good)* jump drive (of course!
