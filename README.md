@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Apr 18 16:48:01 EDT 2022
+## Tue Apr 19 16:48:01 EDT 2022
 
-    Take your time to take stuff through to the next land.
-    Its in the mountain on a cliff.4) In the quarry where you found the stone that the sculptor could use to makea new Gate Stone.5) Next to the graveyard in the first village.For bringing the stones back and arranging them in scale order
-    ..excrement.
-    These rooms are located at the bottom of dungeons.
+    How dare she ask you to, like, do,like, stuff!
+    Fed up of waiting for worshippers to provide you with enough Mana?
+    On the first floor, go into the room with all the guards, and in the NE corner of the room on the east wall is a secret wall, go in and search for the Rune of Spirituality (don't take the treasure). - Give blood here to improve your virtues. - Also any time you find yourself back at the castle, talk to Hawkwind, the Seer who will not only tell you how close you are to Partial Avatarhoods, but will also increase your spirtuality.b.
+    com Cyberia is a trademark of Xatrix Ineractive Design
     
-    .....a beach ball and a Heal Increase Miracle Dispenser.EVIL SOLUTION-------------Fight him.
-    It's a basic logic diagram
-    Focus him(while you and the Creature are connected by the leash, click on something withthe RMB) on a drowning villager, he should pick it up.
-    Try the ultimateevil, find his sheep THEN kill him.
     
-    >
-    Try to avoid a fight if it's possible.
-    Timing is important in catching the ball.
-    Just set nav to thejump point and set autopilot
+    write down how you claw yourself back from the brink
+    b'Weird Dreams Solve THE COTTON CANDY MACHINE 1.
+    this woman is a Defender first and a Pilgrim second
     
-    Even those merchants with theirpopguns will come after you.
-    5 Max shields: 5A fully upgraded ship would have* level 5 shields and level 5 engines* tungsten armor* max ECM available* 1 missile launcher with IR or FF missiles* high-level scanner* repair droid* cargo expansion* all quadrant maps* rear turret* tractor beam in turret* GOOD energy guns (tachyon cannons would be good)* jump drive (of course!
+    PORT FLYBY - Archangel Military Port Tons of air and ground targets
+    Still got loads of Mana left?
+    <Back Door> To go in through the back door
+    Back out in the hallway
+    
+    You'll get 30000credits if you succeed.On your way
+    One of the mirrors that had an OUT OF ORDER sign is now open.
