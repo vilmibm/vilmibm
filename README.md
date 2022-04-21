@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Apr 20 16:48:01 EDT 2022
+## Thu Apr 21 16:48:01 EDT 2022
 
-    third, fourth, eighth
-    Go back to the doorway where you killed the two guards F
-    * One - This is one Yogi that won't steal your picnic.
-    Once Governor Menesch isdead as plenty of other people wants his head
+    F , and to the left-hand door R
+    Hmmm
+    BIG SHOCK Walk over to Santos's body
+    .. Theycan see THROUGH that compartment now.
     
-    Use the eel by pressing the
-    When you cause great effect on an evildoer
-    These form nicknames
-    Dangerous life, but some say it'sworth it.Just go do it
+    Then follow thejump to the next system
+    and give them to especially bright children as an inheritance
+    Note
+    Good storyline, great graphics
     
-    Serpent's Hold and surrounding Area (PB JC)
-    .. problems investigating the artifact.Objective: Deliver weapons from NC to Siva (agricultural base,Rikel system).
-    Remember to turn it off when you get there.
+    and refire delay is extreme.
     storms, stars and prediction
+    .....a beach ball and a Heal Increase Miracle Dispenser.EVIL SOLUTION-------------Fight him.
+    you want to return to the dark room just past the loud room
     
-    but the SELECT button changes the game's brightness gamma adjust
-    Return."Unknowns" ambush you at the Metsor jumppoint in NewcastleSystem!
+     Advances: Stalwart
+    The more people who see it
