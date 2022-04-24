@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Apr 23 16:48:01 EDT 2022
+## Sun Apr 24 16:48:01 EDT 2022
 
-    kill all opposition and land on Palan.
-    - but instead of getting Britannia, you get a weird mixture of  dungeon floors, walls, creatures (some that just sit there like statues,  etc.)
-    X and run to the elevator control F
-    He was last seen on Palan.So to Palan you go
+    It's a basic logic diagram
+    Keep hitting the walking dicks and going right. This part of the game is extremely difficult and requires the most amount of timing.
+    Blue Triangle 			5: Red Filled Circle 			6
+    Refire
     
-     If both are beaten, you cause great effect
-    F and take the first door F
-    Blue Circle 			3: Red Square 			4
-    Vesper
+    ------------Heck, just throw stones at the pillar until you knock the rock off, not toohard.
+    Examine the patient status
+    and from the sea by magnetic mines green dots
+    Your low-level scannercan't even tell friend from foe yet.
     
-    the lower one without triggering it the upper one
-    Now all youneed to do is to start expanding your influence and capture villages.
-    For the evil people, just kill morechildren.
-    Vesper
+    In summary, you're ZAK
+    so wait to make your move L
+    and then step on the innoculator F
+    )4.3 GALAXYGalaxy is the multi-function ship that has the largest cargo bay(esp.
     
-    Bounty hunters can be found all over.Bounty hunters hate Pirates, Kilrathis, and Retros see factions
-    Once you have a good antidote
+    After you are subject to effect in a scene
+    PORT FLYBY - Archangel Military Port Tons of air and ground targets
