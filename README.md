@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Apr 26 16:48:01 EDT 2022
+## Wed Apr 27 16:48:01 EDT 2022
 
-    > ZAPPED Well, maybe kissing Gia wasn't such a good idea after all
-    Allows users to change to more clearly view auguries
-    When you meet a strange culture for the first time
-    you can shoot fast enough if you slow down,then full guns.
+    Puzzle difficulty changes the puzzle difficulty
+    Decreases cursor speed R1 and R2 are great for fine-tuning your cursor speed in the action sequences if you're using a standard game pad
+    a vast thirty-storey chapel
+     Commercia grants a blessing to security
     
-    As you can see, they all have names.
-    Take out the two guards U to stand
-    Fed up of waiting for worshippers to provide you with enough Mana?
-    Check out the hologram on the desk F
+    Itseems Miracle Dispensers are also a prime target for the reflection of Templedamage.VILLAGE CENTRE
+    To get in, go to the inn and unlock the door
+    ------------Coming Soon.
+    Nemesis's rage will extend onto your village, and it will be set on fire.
     
-    Heat a rock,and sit it next to it.
-    Take out the escorts.
-    It uses players, a GM
-    ..Privateer is a spiritual descendent of the game called Elite,which is a VERY old game, having first came out for the 8-bitcomputers using monochrome screens.
+    In case you've never had to deal with this kind of logic
+    Enter the elevator room F
+    Its in amongstsome trees near the end of that path.7
+    Beware
     
-    so I wrote my own for the Playstation
-    Continue down the hall F
+    It's a renter in my book this FAQ has been written from a rental weekend
+    Simply place the Artifact in an enemy/neutral village, and thebelief will trickle out of it, going into that village.
