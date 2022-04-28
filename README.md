@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Apr 27 16:48:01 EDT 2022
+## Thu Apr 28 16:48:01 EDT 2022
 
-    Puzzle difficulty changes the puzzle difficulty
-    Decreases cursor speed R1 and R2 are great for fine-tuning your cursor speed in the action sequences if you're using a standard game pad
-    a vast thirty-storey chapel
-     Commercia grants a blessing to security
+    BIG SHOCK Walk over to Santos's body
+      Ranks: Celebrant, Dervish
+    don't shoot the helicopter overhead- it's friendly
+    ISLAND RUN - Military Islands Blow up the munitions dumps
     
-    Itseems Miracle Dispensers are also a prime target for the reflection of Templedamage.VILLAGE CENTRE
-    To get in, go to the inn and unlock the door
-    ------------Coming Soon.
-    Nemesis's rage will extend onto your village, and it will be set on fire.
+    It's a basic logic diagram
+    ------------Don't harm the poor Creature!
+    When you meet a strange culture for the first time
+    Throw the commentator dude at the pillar to try and knock the rock off.Make the path of a rock you throw go through his house or even him.
     
-    In case you've never had to deal with this kind of logic
-    Enter the elevator room F
-    Its in amongstsome trees near the end of that path.7
-    Beware
+    Pays 10KJust more random stuff, expect Kilrathi presence.NOTE
+    What you waiting for?Lets get puzzling!GOOD SOLUTION
+    =DMUSHROOMS
+    So here's a little guide to help explain  how to learn what you need to know from NPC's.Common Words to Say
     
-    It's a renter in my book this FAQ has been written from a rental weekend
-    Simply place the Artifact in an enemy/neutral village, and thebelief will trickle out of it, going into that village.
+    If you walk away B,F
+    First possible Creature fight of the game!
