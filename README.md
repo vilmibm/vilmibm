@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Apr 28 16:48:01 EDT 2022
+## Fri Apr 29 16:48:01 EDT 2022
 
-    BIG SHOCK Walk over to Santos's body
-      Ranks: Celebrant, Dervish
-    don't shoot the helicopter overhead- it's friendly
-    ISLAND RUN - Military Islands Blow up the munitions dumps
+    Well done, oldbean.EVIL SOLUTION
+    ---------When you capture the first of Lethys' snowy villages, then this scroll willbecome available.
+    Well, here we go from the end of the hall
+    , takehis ejected cargo (tractor it into your hold), and find a placeto sell the cargo.After a while, plenty of people come after you... Confeds,Militia, Bounty Hunters...
     
-    It's a basic logic diagram
-    ------------Don't harm the poor Creature!
-    When you meet a strange culture for the first time
-    Throw the commentator dude at the pillar to try and knock the rock off.Make the path of a rock you throw go through his house or even him.
+    what your community think of you and what you’ll be
+    Keep runningaway from that green blob and everybody else.12.23 TERRELL 1You made it to Perry Naval Base and found Admiral Terrell'soffice.
+    Nothing else will go inthere.12.5 TAYLA 4Objective
+      Ranks: Constable, Blade
     
-    Pays 10KJust more random stuff, expect Kilrathi presence.NOTE
-    What you waiting for?Lets get puzzling!GOOD SOLUTION
-    =DMUSHROOMS
-    So here's a little guide to help explain  how to learn what you need to know from NPC's.Common Words to Say
+     If both are beaten, you cause great effect
+    in search of some very ominous goings-on there
+    You need tofinish at least two out of three before Masterson will give youthe lead you need.NOTE
+    When hegets the message, he gets mad and wants to shoot you.
     
-    If you walk away B,F
-    First possible Creature fight of the game!
+    Instant Chimp Creature.EVIL SOLUTION
+    Well done, oldbean.EVIL SOLUTION
