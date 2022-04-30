@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Apr 29 16:48:01 EDT 2022
+## Sat Apr 30 16:48:01 EDT 2022
 
-    Well done, oldbean.EVIL SOLUTION
-    ---------When you capture the first of Lethys' snowy villages, then this scroll willbecome available.
-    Well, here we go from the end of the hall
-    , takehis ejected cargo (tractor it into your hold), and find a placeto sell the cargo.After a while, plenty of people come after you... Confeds,Militia, Bounty Hunters...
+    What does this mean, exactly?
+    If you make a mistake
+    Try building a Wonder, that always boosts your Area of Influence greatly.You surely know how to convert Villages by now, right?
+    Once per scene, when you invoke the authority of The Crown
     
-    what your community think of you and what you’ll be
-    Keep runningaway from that green blob and everybody else.12.23 TERRELL 1You made it to Perry Naval Base and found Admiral Terrell'soffice.
-    Nothing else will go inthere.12.5 TAYLA 4Objective
-      Ranks: Constable, Blade
+    She wants to throw the ball with you for sure
+    Friends and acquaintances will use your given name
+    Gibbous Waxing Yew Britain Jhelom Yew5.
+    Is this game censored
     
-     If both are beaten, you cause great effect
-    in search of some very ominous goings-on there
-    You need tofinish at least two out of three before Masterson will give youthe lead you need.NOTE
-    When hegets the message, he gets mad and wants to shoot you.
+    How do you get itback?NOTE
+    After two"doses" of food, he'll fall asleep.
+    Then tractor in the ejected cargoand continue.
+    Plus, of course,get all the other quest items.The following can be done in any order you want.
     
-    Instant Chimp Creature.EVIL SOLUTION
-    Well done, oldbean.EVIL SOLUTION
+    One final arcade sequence--this time it's in space
+    Run back to the right and hit the bee so that it flies off the screen to the right.
