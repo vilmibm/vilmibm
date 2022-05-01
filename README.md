@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Apr 30 16:48:01 EDT 2022
+## Sun May  1 16:48:01 EDT 2022
 
-    What does this mean, exactly?
-    If you make a mistake
-    Try building a Wonder, that always boosts your Area of Influence greatly.You surely know how to convert Villages by now, right?
-    Once per scene, when you invoke the authority of The Crown
+    If you’re not sure what to do
+    He'll jump out,so jump after him.
+    Remember to turn it off when you get there.
+    Walk into the room F DRUG STORE Have a seat L
     
-    She wants to throw the ball with you for sure
-    Friends and acquaintances will use your given name
-    Gibbous Waxing Yew Britain Jhelom Yew5.
-    Is this game censored
+    Your gun ammo is the horizontal red bar
+    These rooms are located at the bottom of dungeons.
+    Or CoolThang for short.EVIL SOLUTION
+    There can also be several "hidden" points between thenav points.For example, in ND-57 (Potter Quadrant, SE), the system has 3 navpoints
     
-    How do you get itback?NOTE
-    After two"doses" of food, he'll fall asleep.
-    Then tractor in the ejected cargoand continue.
-    Plus, of course,get all the other quest items.The following can be done in any order you want.
+    Do as they say.
+      There are many more to find
+    Now, I'm aboutto do this puzzle on the desk in front of me, so it may not be the quickest way, but it'll do.
+    3 Max shields: 3A fully upgraded ship would have* level 3 shields and level 3 engines* tungsten armor* max ECM available* 2 missile launchers with IR/FF missiles* high-level (3) scanner* repair droid* cargo expansion* all quadrant maps* rear turret* tractor beam in turret* afterburner* GOOD energy guns (tachyon cannons and/or ion cannons wouldbe good)* jump drive (of course!
     
-    One final arcade sequence--this time it's in space
-    Run back to the right and hit the bee so that it flies off the screen to the right.
+    Prevent reinforcements from reaching the blockade.You'll be paid 15000 credits.When you get to Palan's nav 1, you'll find 4+3+3 Demons aces?
+    this shouldn't be too difficult
