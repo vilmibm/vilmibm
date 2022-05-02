@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun May  1 16:48:01 EDT 2022
+## Mon May  2 16:48:01 EDT 2022
 
-    If you’re not sure what to do
-    He'll jump out,so jump after him.
-    Remember to turn it off when you get there.
-    Walk into the room F DRUG STORE Have a seat L
+    See 'ITEMS IN THE ENVIRONMENT' for more details on Artifacts.This level is so easy, Village management-wise.
+    Magic Spheres |+=============================================================================+In the dungeons you will find little magic spheres which will raise your stats,but at the price of hitpoints.Where
+    Walker Titles: of the Horizon
+    Wait nomore!
     
-    Your gun ammo is the horizontal red bar
-    These rooms are located at the bottom of dungeons.
-    Or CoolThang for short.EVIL SOLUTION
-    There can also be several "hidden" points between thenav points.For example, in ND-57 (Potter Quadrant, SE), the system has 3 navpoints
+    Blue Triangle 			5: Red Filled Circle 			6
+    He knows where the Retrosecret base is
+    was Top: 2, Middle: 3
+    BOOM.
     
-    Do as they say.
-      There are many more to find
-    Now, I'm aboutto do this puzzle on the desk in front of me, so it may not be the quickest way, but it'll do.
-    3 Max shields: 3A fully upgraded ship would have* level 3 shields and level 3 engines* tungsten armor* max ECM available* 2 missile launchers with IR/FF missiles* high-level (3) scanner* repair droid* cargo expansion* all quadrant maps* rear turret* tractor beam in turret* afterburner* GOOD energy guns (tachyon cannons and/or ion cannons wouldbe good)* jump drive (of course!
+    In summary, you're ZAK
+    The Villagers will hardlycomplain about anything, so you're fine there.
+    Another one will make your Creature grow faster.
+    the babbling tongues of the faithful and faithless
     
-    Prevent reinforcements from reaching the blockade.You'll be paid 15000 credits.When you get to Palan's nav 1, you'll find 4+3+3 Demons aces?
-    this shouldn't be too difficult
+    On the other hand, to make REALLYsignificant money in smuggling you need to move LARGE amounts ofcontraband.Tip
+    However, if you accepted one or moremissions, you need to finish those first.* In general, Fixers pay the best, then Mercenaries' Guild,then Merchants' Guild, then the Mission Computer.* If the fixer asks you to come back for the payment after adelivery mission, you can take your time coming back and do someside jobs on the way* If you cannot make your way back for the payment, turn oninvulnerability then fly back.
