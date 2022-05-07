@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri May  6 16:48:01 EDT 2022
+## Sat May  7 16:48:01 EDT 2022
 
-    crystals form in hidden rooms
-    Freed all the slaves, you littleMoses-alike?
-    and the noise will kill you if you take too much time
-    Timing again, is the key here.
+    Militia have somehow gotten past it
+    >_>BACKGROUND
+    * Two - Who's Up For Cheating The Big Bad Witch?
+    In the meanwhile, you're chasedeverywhere by that green thing
     
-    You need ECM to counter enemy missiles.You can probably run away from any early enemies that youencounter, or you can test your combat prowess with your mesonblasters and torpedoes.
-    It's a renter in my book this FAQ has been written from a rental weekend
-    Villagers will dance around them to create Artifacts, handy to use inthe next land and beyond.
-    Each of the sixty-nine systems can have severalplanets with bases that you can visit.There are four different ships you can own, plenty of differentequipment to create your own customized ship, over a dozendifferent commodities you can trade between systems, specialmissions that will pay you even MORE than standard fees, andmore.You will encounter friendly, neutral, and hostile traffic in yourtravel.
+    ARCADE LEVEL 3: Destroy 800f the virus
+    Just fire and run, great indogfights.4.5.1.6 Torpedo LauncherNeeded to launch proton torpedoes, holds 10 torpedoes.4.5.1.7 Proton TorpedoLock
+    ------------The sheep can be found at the following places...pick them up and return themto the farmer's pen.1) Its nearby the house where you got the third Gate Stone, AKA, the Sculptor'shouse.2) Its behind the Gate that you had to open.3) Its where you found the sick man for the second Gate Stone quest.4) Its next to the hut where you practiced stone throwing.5) Its on the edge of the village, in a pen with some pigs.6) Remember the path that you came along when you first started?
+    They make finishedproducts and buy raw materials like ores and food.ND buys contraband.If you can find a good route between mining and ND/refinery, youcan make a bit of money, but usually these routes go by piratesystems and such.6.8 OXFORDOxford is mainly an agricultural planet but also export books.They buy the same agriculture related stuff, like Plastics, Fooddispensers, and so on.Oxford does NOT buy contraband.6.9 PERRY NAVAL BASEPNB makes weapons, and only weapons.PNB buys wood, food, grain, plastics, food dispenser, and so on.PNB does NOT buy contraband.7 Mission SourcesThe other way to make money besides trading in commodities is bytaking on missions.
     
-    and enter the vents F
-    Such artifacts remain indefinitely after you have returned from the glitch-world which I call the twilight zone.
-    Part One, The Avatar |+=============================================================================+This game isn't all that complicated, so the walkthrough isn't all that long orcomplicated either.You need to become an Avatar first off.
-    but using the IR scan triggers an explosive
+    Crescent Waning Magincia Trinsic Skara Brae Magincia+=============================================================================+| B. Monsters |+=============================================================================+Below is a list of Monsters and the experience that you get by killing them.All the information in this section is from Stephanus Rudiyanto Natari. Monsters
+    What does this do?
+    You can also gain Mana by sacrifice
+    don't bump it!
     
-    Apparently someone brokeinto your hangar and stole your Steltek gun.
-    When it turns toward you, turnaway.
+    Compassion, Yellow 3.
+    Blue Half-Circles My code do they change
