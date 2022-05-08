@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat May  7 16:48:01 EDT 2022
+## Sun May  8 16:48:02 EDT 2022
 
-    Militia have somehow gotten past it
-    >_>BACKGROUND
-    * Two - Who's Up For Cheating The Big Bad Witch?
-    In the meanwhile, you're chasedeverywhere by that green thing
+    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
+    all aces?.
+    Jump onto one of the light fixtures.
+    You will be paid 10000 credits.When you get there, Seelig pro?
     
-    ARCADE LEVEL 3: Destroy 800f the virus
-    Just fire and run, great indogfights.4.5.1.6 Torpedo LauncherNeeded to launch proton torpedoes, holds 10 torpedoes.4.5.1.7 Proton TorpedoLock
-    ------------The sheep can be found at the following places...pick them up and return themto the farmer's pen.1) Its nearby the house where you got the third Gate Stone, AKA, the Sculptor'shouse.2) Its behind the Gate that you had to open.3) Its where you found the sick man for the second Gate Stone quest.4) Its next to the hut where you practiced stone throwing.5) Its on the edge of the village, in a pen with some pigs.6) Remember the path that you came along when you first started?
-    They make finishedproducts and buy raw materials like ores and food.ND buys contraband.If you can find a good route between mining and ND/refinery, youcan make a bit of money, but usually these routes go by piratesystems and such.6.8 OXFORDOxford is mainly an agricultural planet but also export books.They buy the same agriculture related stuff, like Plastics, Fooddispensers, and so on.Oxford does NOT buy contraband.6.9 PERRY NAVAL BASEPNB makes weapons, and only weapons.PNB buys wood, food, grain, plastics, food dispenser, and so on.PNB does NOT buy contraband.7 Mission SourcesThe other way to make money besides trading in commodities is bytaking on missions.
+    Once you've killed theBlack Rhombus, you can go home.12.12 MASTERSON 3Masterson need some books shipped in, but someone else want thebooks, and they contracted bounty hunters to divert the shipment.Objective
+    LI GK---------- - Dupre, a paladin, will join you here. - Talk to Terrin in the SE corner of town to learn that the Rune of Honor is in the SW corner of town.
+    When you focus your mind to the works of the divine
+    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
     
-    Crescent Waning Magincia Trinsic Skara Brae Magincia+=============================================================================+| B. Monsters |+=============================================================================+Below is a list of Monsters and the experience that you get by killing them.All the information in this section is from Stephanus Rudiyanto Natari. Monsters
-    What does this do?
-    You can also gain Mana by sacrifice
-    don't bump it!
+    Tons of targets, and tons of fuel trucks
+    Anyway, Artifacts are used to increase influenceand belief.
+    and often opted out when group tasks came up
+    Of course, you use up yourmissiles twice as fast.*
     
-    Compassion, Yellow 3.
-    Blue Half-Circles My code do they change
+    Use five consecutive long jab to kill the first one.
+    Your objective is totravel the known universe
