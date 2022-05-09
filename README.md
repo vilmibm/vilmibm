@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun May  8 16:48:02 EDT 2022
+## Mon May  9 16:48:01 EDT 2022
 
-    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
-    all aces?.
-    Jump onto one of the light fixtures.
-    You will be paid 10000 credits.When you get there, Seelig pro?
+    When you meet a strange culture for the first time
+    +D8 security when you evade conflict
+    Attach him to your hand with theLeash of Learning and charge a fireball into your hand.
+    Exit the room L,F Head back down the hall L
     
-    Once you've killed theBlack Rhombus, you can go home.12.12 MASTERSON 3Masterson need some books shipped in, but someone else want thebooks, and they contracted bounty hunters to divert the shipment.Objective
-    LI GK---------- - Dupre, a paladin, will join you here. - Talk to Terrin in the SE corner of town to learn that the Rune of Honor is in the SW corner of town.
-    When you focus your mind to the works of the divine
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
+    These objects are really useful in increasing your influence in theworld of Eden.
+    You've got a bomb in your brain
+    Get through this section as quickly as possible F
+    ------------ - Shamino, a ranger, will join you here. - Mitre knows of the White Stone and tells you to ask about it in the Pub in Trinsic. - Barren (kid) knows the mantra: OM - Talk to the Ankh to learn that the Rune is in Lord B.'s castle, and to get to the Shrine of Spirituality you must enter a moongate at 2 full moons. (this only works at the Minoc moongate!
     
-    Tons of targets, and tons of fuel trucks
-    Anyway, Artifacts are used to increase influenceand belief.
-    and often opted out when group tasks came up
-    Of course, you use up yourmissiles twice as fast.*
+    Cannot repairdestroyed items.
+    Worshipping will give you mana,which can be spent on Miracles.
+    mission computer,Mercenaries' Guild, Merchants' Guild, or the fixers in the bars.In general, the fixers pay best, then Merchants' Guild, thenMercenaries' Guild, then mission computer pays the least.
+    Using the skull of Mondain Note
     
-    Use five consecutive long jab to kill the first one.
-    Your objective is totravel the known universe
+    At nav 2, you'll find 3 Dralthis, 2 Gothris,and 3 Dralthis.
+    Continue down the hall F
