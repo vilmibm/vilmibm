@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue May 10 16:48:01 EDT 2022
+## Wed May 11 16:48:01 EDT 2022
 
-    The FMV shooting scenes aren't that bad
-    roll three six-sided dice and allot them to each
-    A guard is around that crate
-    Continue down the hall F
+    Feel free to fly past them.14.9 LYNN MURPHY 4Go to Metsor, clear Nav Points, for 50K.
+    Its near where the drowning fishermen quest was, near a stone.9 Its on the side of a mountain, close to where you started.Got 5 sheep?
+    This witch leaves nearby that last village you took.She claims she can bring youth back to old people, so lets test her claims,shall we?GOOD SOLUTION
+    Many  of the treasure chests in this weird place
     
-    Wait until he is on the other side
-    Do I really have to say?
-    Simply drop a red mushroom into theVillage Store, and the food should turn green.
-    Note, you can only give the same animaltwice.
+    Apparently Smythe found some info in the Oxford library.Objective
+    and you will see the inside of it
+    I may place one of the D8s anywhere
+    Run down the hall L,F to the next big door
     
-    +D8 security when you evade conflict
-    third, fourth, eighth
-    You will alsonotice that I've numbered the poles.
-    Take a look around at your newhome, and a God, going by the name of Khazar, will come and visit you.
+      Your geographical location will be bound to your name as an addendum
+    SKEET SHOOT From the turret
+    walk into the next room F
+    Sure enough, there are still heat traces left on the pad
     
-    Easy work, just set people toworship at your Worship Site and get casting those Food Miracles.
-    good interface, but it is kind of short in the long run without a lot of replayability
+    low range
+    Click on the Gold Story Scroll to go through.
