@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed May 11 16:48:01 EDT 2022
+## Thu May 12 16:48:01 EDT 2022
 
-    Feel free to fly past them.14.9 LYNN MURPHY 4Go to Metsor, clear Nav Points, for 50K.
-    Its near where the drowning fishermen quest was, near a stone.9 Its on the side of a mountain, close to where you started.Got 5 sheep?
-    This witch leaves nearby that last village you took.She claims she can bring youth back to old people, so lets test her claims,shall we?GOOD SOLUTION
-    Many  of the treasure chests in this weird place
+    often separated by a hyphen
+    Let them all die.
+    Remember to turn it off when you get there.
+    Once you wake up, you'll wish you hadn't
     
-    Apparently Smythe found some info in the Oxford library.Objective
-    and you will see the inside of it
-    I may place one of the D8s anywhere
-    Run down the hall L,F to the next big door
+    is flying a Talon.
+    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
+    Walkthrough with Passwords >>The Rig<< RIG DOCK Once you have arrived at The Rig
+    Bend down to catch the ball.
     
-      Your geographical location will be bound to your name as an addendum
-    SKEET SHOOT From the turret
-    walk into the next room F
-    Sure enough, there are still heat traces left on the pad
+    Fly up next toit
+    -----------Get your influence over his hill eventually.
+    Be careful,however, as attacks on the Temple, even when invunerable, will reflect on yourbelievers' villages.
+    ------------Yes.
     
-    low range
-    Click on the Gold Story Scroll to go through.
+    Price
+    but the SELECT button changes the game's brightness gamma adjust
