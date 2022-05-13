@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu May 12 16:48:01 EDT 2022
+## Fri May 13 16:48:01 EDT 2022
 
-    often separated by a hyphen
-    Let them all die.
-    Remember to turn it off when you get there.
-    Once you wake up, you'll wish you hadn't
+    No-one can read them reliably
+    Do the quest, then kill the hippy.Whatever floats your boat.
+    Take them all out,and return to ND.14.22 MONTE 4Monte doesn't know where the secret retro base is, but he doeshave a lead on where this Governor Menesch is
+    You can let your Creaturebe nice and help out the villagers with his Miracles, or you can just kick thevillage's ass with fireballs and lightning and stuff.Once that village is converted, you should be close enough to convert thevillage inbetween Khazar's influence and your's.
     
-    is flying a Talon.
-    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
-    Walkthrough with Passwords >>The Rig<< RIG DOCK Once you have arrived at The Rig
-    Bend down to catch the ball.
+    it's just that it's been done before
+    ------------ 1 2 3 + A | | -+- B | | --+-- C | |---+--- D | |=====================================Pretty nice picture, huh?
+    If you walk away B,F
+        YOUR PATHS  You choose one path for your character
     
-    Fly up next toit
-    -----------Get your influence over his hill eventually.
-    Be careful,however, as attacks on the Temple, even when invunerable, will reflect on yourbelievers' villages.
-    ------------Yes.
+    +D8 security when you evade conflict
+    Run to the plane F,F
+    .Expect to see many Militia Talons in the Troy system and randomConfed/Militia patrols that will want your head for smuggling.The eject/retrieve trick won't work here.
+    Toggle the vibration sensor second from the right
     
-    Price
-    but the SELECT button changes the game's brightness gamma adjust
+    Theanswer is simple, steal it from one of Khazar's two Workshops.
+    Food is obtained from fields, schools of fish, certain mushrooms,animals, etc
