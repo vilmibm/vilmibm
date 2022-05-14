@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri May 13 16:48:01 EDT 2022
+## Sat May 14 16:48:01 EDT 2022
 
-    No-one can read them reliably
-    Do the quest, then kill the hippy.Whatever floats your boat.
-    Take them all out,and return to ND.14.22 MONTE 4Monte doesn't know where the secret retro base is, but he doeshave a lead on where this Governor Menesch is
-    You can let your Creaturebe nice and help out the villagers with his Miracles, or you can just kick thevillage's ass with fireballs and lightning and stuff.Once that village is converted, you should be close enough to convert thevillage inbetween Khazar's influence and your's.
+    If you continue running down the hall
+    ..
+    ------------------------------------- - Talk to Sentri to get the Word: CORn.
+    change your highest dice to a D6 until the end of next scene
     
-    it's just that it's been done before
-    ------------ 1 2 3 + A | | -+- B | | --+-- C | |---+--- D | |=====================================Pretty nice picture, huh?
-    If you walk away B,F
-        YOUR PATHS  You choose one path for your character
+    Some families jealously guard old names
+    Tayla informed you that Sandoval isdead
+    If you shoot one down, Confedswill love you.5.5.3 DraymanDrayman is the standard capital-ship transport, larger than evenGalaxy, but very lightly armed.6 Commodity tradingOne of the most often asked question in Privateer is "how do Imake money"?
+    Go to thebay near your temple, and pick up fish from there.
     
-    +D8 security when you evade conflict
-    Run to the plane F,F
-    .Expect to see many Militia Talons in the Troy system and randomConfed/Militia patrols that will want your head for smuggling.The eject/retrieve trick won't work here.
-    Toggle the vibration sensor second from the right
+    Keep runningaway from that green blob and everybody else.12.23 TERRELL 1You made it to Perry Naval Base and found Admiral Terrell'soffice.
+    heck, even if you don't needthe One-Shot at the time, pick it up anyway and place it next to it, you'll beneeding as many as you can get.*-* THE YOGI AND THE GURU *-*If you have managed to complete the first Story Scroll in this world/island,the one where you follow the guy down the mountain, then you will be helped outwhenever Lethys decided to attack your villages.
+    .. You may get something, orperhaps nothing at all.
+    That explainsthose "unknown" ships flying about
     
-    Theanswer is simple, steal it from one of Khazar's two Workshops.
-    Food is obtained from fields, schools of fish, certain mushrooms,animals, etc
+    you can breathe a little easier
+    repeated mantras or arcane sigils
