@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat May 14 16:48:01 EDT 2022
+## Sun May 15 16:48:01 EDT 2022
 
-    If you continue running down the hall
-    ..
-    ------------------------------------- - Talk to Sentri to get the Word: CORn.
-    change your highest dice to a D6 until the end of next scene
+    This compartment can fit 20 cargo units and isonly good for smuggling contraband.
+    Do the quest, then kill the hippy.Whatever floats your boat.
+    You move on to nav 1, more random.Keep moving to nav 6, and there is the patrol enemy
+    and half same-old FMV shooter
     
-    Some families jealously guard old names
-    Tayla informed you that Sandoval isdead
-    If you shoot one down, Confedswill love you.5.5.3 DraymanDrayman is the standard capital-ship transport, larger than evenGalaxy, but very lightly armed.6 Commodity tradingOne of the most often asked question in Privateer is "how do Imake money"?
-    Go to thebay near your temple, and pick up fish from there.
+    Gibbous Waxing Yew Britain Jhelom Yew5.
+    She will start to come after you wait till she is halfway across the screen and throw the ball.
+    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
+    Use five consecutive long jab to kill the first one.
     
-    Keep runningaway from that green blob and everybody else.12.23 TERRELL 1You made it to Perry Naval Base and found Admiral Terrell'soffice.
-    heck, even if you don't needthe One-Shot at the time, pick it up anyway and place it next to it, you'll beneeding as many as you can get.*-* THE YOGI AND THE GURU *-*If you have managed to complete the first Story Scroll in this world/island,the one where you follow the guy down the mountain, then you will be helped outwhenever Lethys decided to attack your villages.
-    .. You may get something, orperhaps nothing at all.
-    That explainsthose "unknown" ships flying about
+    Remember, you'll needa tractor beam to salvage ejected cargo, and enough cargo space.If you recover contraband, you become a smuggler.To salvage cargo, scan and locate the cargo pods.
+    Yes, dood burns.
     
-    you can breathe a little easier
-    repeated mantras or arcane sigils
+    Get through this section as quickly as possible F
+    
+    Give him some nice food, distract him.
+    Once per game, when you inflict great effect on an evildoer
