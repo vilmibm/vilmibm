@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun May 15 16:48:01 EDT 2022
+## Mon May 16 16:48:01 EDT 2022
 
-    This compartment can fit 20 cargo units and isonly good for smuggling contraband.
-    Do the quest, then kill the hippy.Whatever floats your boat.
-    You move on to nav 1, more random.Keep moving to nav 6, and there is the patrol enemy
-    and half same-old FMV shooter
+    If you walk away B,F
+    Just blowpast them or kill them.
+    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
+    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
     
-    Gibbous Waxing Yew Britain Jhelom Yew5.
-    She will start to come after you wait till she is halfway across the screen and throw the ball.
-    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
-    Use five consecutive long jab to kill the first one.
+    the lower one without triggering it the upper one
+    She communicates in the migration of birds
+    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
+    You can either follow himnow, or get the final Lethys' village, and finalise any business you have inthis land.
     
-    Remember, you'll needa tractor beam to salvage ejected cargo, and enough cargo space.If you recover contraband, you become a smuggler.To salvage cargo, scan and locate the cargo pods.
-    Yes, dood burns.
+    Nemesis's rage will extend onto your village, and it will be set on fire.
+    Enter the room F , and look through the window F
+    ------------Yes.
+    and when you hit one move to the right one and attack again.
     
-    Get through this section as quickly as possible F
-    
-    Give him some nice food, distract him.
-    Once per game, when you inflict great effect on an evildoer
+    Grab one of the sticks and then attack the rose bush.
+    Guess you'll have to dothis "gratis".A couple unknowns block you at the jumpoint to ND, otherwise justrandom stuff.14.19 MONTE 2The Retros seem to be under this new leader called Modecai Jones.No one knows about him, but Monte's contact may know somethingmore.
