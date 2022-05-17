@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon May 16 16:48:01 EDT 2022
+## Tue May 17 16:48:01 EDT 2022
 
-    If you walk away B,F
-    Just blowpast them or kill them.
-    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
-    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
+    F , and listen to the conversation
+    Fed up of waiting for worshippers to provide you with enough Mana?
+    Well, there's a lot of plot for this game
+    Simple enough.The tricky part is you cannot stop at ANY OTHER base, or thecargo's forfeit.
     
-    the lower one without triggering it the upper one
-    She communicates in the migration of birds
-    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
-    You can either follow himnow, or get the final Lethys' village, and finalise any business you have inthis land.
+    half-sleeping, half-waiting
+    ..
+    You'll find Jones and his escort.[If you still don't get it, look below]Take out all the Salthi (yes, Salthi) escorts piloted by Retros.There would be more than 10.
+    His cousin needs to "get out of town","away from the heat"
     
-    Nemesis's rage will extend onto your village, and it will be set on fire.
-    Enter the room F , and look through the window F
-    ------------Yes.
-    and when you hit one move to the right one and attack again.
+    He promised you themoney when you come back.You should get some commodity that Liverpool would want and sellthem there.Enemies are randomly generated based on local distribution.When you return, you found Sandoval is nowhere to be found
+    ---------Well, if you capture the third village (the one thats kinda circular), then youwill see this Silver Scroll above a house in the village.
+    There's a guard on the other side of a window to sneak past here
+    Now all you do is alternate between thetwo areas, picking up a villager at him Temple, and sacrificing it at yourTemple.
     
-    Grab one of the sticks and then attack the rose bush.
-    Guess you'll have to dothis "gratis".A couple unknowns block you at the jumpoint to ND, otherwise justrandom stuff.14.19 MONTE 2The Retros seem to be under this new leader called Modecai Jones.No one knows about him, but Monte's contact may know somethingmore.
+    ..
+    --------- Balron 16 Bat 4 exp Cyclops 9 Daemon 8 Dragon 15 Ettin 8 Gazer 16 Ghost 6 Gremlin 4 Headless 5 Hydra 14 Insects 4 Lava Lizard 7 Lich 13 Mimic 13 Nixie 5 Orc 6 Phantom 4 Phyton 4 Rat 4 Reaper 16 Rogue 6 Seahorse 7 Serpent 9 Skeleton 4 Slime 4 Spider 5 Squid 9 Troll 7 Wisp 5 Wizard 12 Zorn 16 Non-Monster Creatures that normally you don't want to attack: ------------------------------------------------------------- Bard 9 Beggar 13 Bull 11 Child 10 Druid 10 Fighter 7 Guard 13 Horse 9 Jester 9 Mage 8 Merchant 9 Paladin 4 Ranger 3 Shepherd 9 Tinker 9 Villager 13+=============================================================================+| C. Upgrades |+=============================================================================+Note: These are all non-Origin upgrades, so use at your own risk!Graphics Update:---------------- There is a slight improvement to Ultima 4 that you can download, a completely new graphics tileset!
