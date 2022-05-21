@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri May 20 16:48:01 EDT 2022
+## Sat May 21 16:48:01 EDT 2022
 
-    How dare she ask you to, like, do,like, stuff!
-    Commodore Reissmanhas assembled a fleet at "Blockade Point Tango".
-    You can also gain Mana by sacrifice
-    you're a sitting duck until they recharge again
+    Other things to do
+    The best method is to attack right the long thrust
+    Try the ultimateevil, find his sheep THEN kill him.
+    Nav 3 is clear.
     
-    Admiral Terrell is in charge of the whole sector from his HQ atPerry Naval Base.
-    - Also in the poorhouse are a lot of beggars... Give to them to increase your virtues! - Talk to Mischief of the Rune to learn it is in the forge, go in and get it. - Singsong the bard mentions the mantra: CAH - Alkerion tells of the Stone of Sacrificef.
-    you don't have to worry about energy
-    (See the Simple Walkthrough)Bring a piece of your Creatures
+    so follow Gia F, F to the guns
+    You can't hurtit though, even with that Steltek gun.
+    The Drayman is REALLY weak, so you have to let themissiles fly as soon as you get in range.
+    The only thingthat can hurt the drone is your Steltek gun
     
-    ..Objective: Land at Romulus (mining base, Castor system).
-    Towardsyour village, of course!
-    are earned when people start calling you them
-    Push down to drop one cotton candy for the huge bee.
+    shields are shown by the green vertical bar
+    Magic Spheres |+=============================================================================+In the dungeons you will find little magic spheres which will raise your stats,but at the price of hitpoints.Where
+    Your gun ammo is the horizontal red bar
+    Santos will tell you to go through the door on your right R
     
-    MUWHAH-sorry.EVIL SOLUTION
-    You'll be paid 15000 credits.
+    Instant Chimp Creature.EVIL SOLUTION
+    take the left path F
