@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat May 21 16:48:01 EDT 2022
+## Sun May 22 16:48:01 EDT 2022
 
-    Other things to do
-    The best method is to attack right the long thrust
-    Try the ultimateevil, find his sheep THEN kill him.
-    Nav 3 is clear.
+    ------------Um.
+    However, you justneed them to NOT hate you
+    Run down the hall L,F to the next big door
+    His cousin needs to "get out of town","away from the heat"
     
-    so follow Gia F, F to the guns
-    You can't hurtit though, even with that Steltek gun.
-    The Drayman is REALLY weak, so you have to let themissiles fly as soon as you get in range.
-    The only thingthat can hurt the drone is your Steltek gun
+    Go on the third time and you should be able to make it past her.
+    ..
+    Once per scene, when you let your mistress guide your actions
+    You land on Basra instead, and found LynnMurphy in the bar.
     
-    shields are shown by the green vertical bar
-    Magic Spheres |+=============================================================================+In the dungeons you will find little magic spheres which will raise your stats,but at the price of hitpoints.Where
-    Your gun ammo is the horizontal red bar
-    Santos will tell you to go through the door on your right R
+    This means you can accept only ONEdelivery destination at once!* You can accept multiple delivery missions IF they are allgoing to the SAME BASE.
+    Exit the room L,F Head back down the hall L
+    Stilettos are FAST and you may have problemsdodging them.
+    Go over to the other door and walk though it L
     
-    Instant Chimp Creature.EVIL SOLUTION
-    take the left path F
+    Step on the elevator F
+    you've gone too far- go back to the door near the doorway you were fighting at
