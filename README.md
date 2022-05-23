@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun May 22 16:48:01 EDT 2022
+## Mon May 23 16:48:01 EDT 2022
 
-    ------------Um.
-    However, you justneed them to NOT hate you
-    Run down the hall L,F to the next big door
-    His cousin needs to "get out of town","away from the heat"
+    and again, and again
+    Then makeit back to Oakham yes, again
+    "The amount of "energy" that you have stored at your Worship Site.
+    you're a sitting duck until they recharge again
     
-    Go on the third time and you should be able to make it past her.
-    ..
-    Once per scene, when you let your mistress guide your actions
-    You land on Basra instead, and found LynnMurphy in the bar.
+    However, there is a cheat code see below that allows you to see the censored scene s
+    Try to avoid a fight if it's possible.
+    Fry him.Return to Perry Naval base to claim your fee from the admiral,and congratulations, you've won!Still don't know where Jones would be?
+    Just set nav to thejump point and set autopilot
     
-    This means you can accept only ONEdelivery destination at once!* You can accept multiple delivery missions IF they are allgoing to the SAME BASE.
-    Exit the room L,F Head back down the hall L
-    Stilettos are FAST and you may have problemsdodging them.
-    Go over to the other door and walk though it L
+    See Bomb Puzzle <If you kiss Gia
+    After a few minutes, everything will be fully constructed.
+    You would seethem more in the quieter quadrants, like Potter and Humboldt, butthey do show up everywhere.Merchants hate any one who shoot them
+        YOUR HOME  You’re from somewhere
     
-    Step on the elevator F
-    you've gone too far- go back to the door near the doorway you were fighting at
+    Your Creature lives here, in his penin front of the entrance.
+    It is possible, before you leave the island, for your Creature to knowthe following Miracles at least
