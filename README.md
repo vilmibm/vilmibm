@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed May 25 16:48:01 EDT 2022
+## Thu May 26 16:48:01 EDT 2022
 
-    Trinsic
-    After you are subject to effect in a scene
-    When you meet a strange culture for the first time
-      DEMOS, goddess of excess
+    General Information III
+    Ike.
+    NOT same system, same PLANET BASE.* In general, the further away the mission calls for you togo, the better the payment* Try to locate multiple missions that you can fly in onetrip.
+      Ranks: Celebrant, Dervish
     
-    Enter NEMROSIM as your name at the beginning of the game
-    somesinging stones you encounter will be broken, and just make a really crappynoise of some description.GOOD SOLUTION-------------Go find the stones and make the scale, what else?
-    Go on, you know you must.
-    They're drowning and they need rescued, quickity quick.
+    ducking R to cover, standing L and R to aim
+    If you don't win this battle using thatfiend of a Creature, the Tiger, then theres something wrong.
+      Ranks: Guilder, Silverhand
+    Watch the color of the target- fuel trucks have blue targets
     
-    your name might refer to a street
-    You can go gloat over the body
-    >>Cyberia Complex Level 3<< You made it
-    perform an MRI scan to view the elevator pumps
+    often separated by a hyphen
+    However, you justneed them to NOT hate you
+    Once you've toasted the guard
+    * Eight - Bad Idol!
     
-    When you are learning about Gestures, you will try to impressthe nearby village into believing in you.
-    ..
+    as all the passwords are in place 		for you
+    Place a skeleton in it, andthe person will be revived!BAD SOLUTION
