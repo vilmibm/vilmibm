@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu May 26 16:48:01 EDT 2022
+## Fri May 27 16:48:01 EDT 2022
 
-    General Information III
-    Ike.
-    NOT same system, same PLANET BASE.* In general, the further away the mission calls for you togo, the better the payment* Try to locate multiple missions that you can fly in onetrip.
-      Ranks: Celebrant, Dervish
+    please write me at cjayc@flex
+    Nostealing, attacking innocent people
+    Nothing else will go inthere.12.5 TAYLA 4Objective
+    Focus him on the land,and he will walk over to the beach and should drop the person.
     
-    ducking R to cover, standing L and R to aim
-    If you don't win this battle using thatfiend of a Creature, the Tiger, then theres something wrong.
-      Ranks: Guilder, Silverhand
-    Watch the color of the target- fuel trucks have blue targets
+    you'll instantly die and have to restart
+      THE OTHERS  When you make a character
+    He'll rambleon for a while.
+    You will recieve a pile of grain for your efforts.
     
-    often separated by a hyphen
-    However, you justneed them to NOT hate you
-    Once you've toasted the guard
-    * Eight - Bad Idol!
+    ----------------Oh well.
+    F until you get to a door
     
-    as all the passwords are in place 		for you
-    Place a skeleton in it, andthe person will be revived!BAD SOLUTION
+    Sacrifice, Orange 6.
+    
+    She communicates in the migration of birds
+    Examine the patient status
