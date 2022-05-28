@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri May 27 16:48:01 EDT 2022
+## Sat May 28 16:48:01 EDT 2022
 
-    please write me at cjayc@flex
-    Nostealing, attacking innocent people
-    Nothing else will go inthere.12.5 TAYLA 4Objective
-    Focus him on the land,and he will walk over to the beach and should drop the person.
+    which is the fuel truck
+    The admiral believe that green blob is a Kilrathi secretweapon that somehow thought you're its guide.
+    If a dice is untyped i
+    Excellent for wiping out enemyvillages for your takeover.ABODE
     
-    you'll instantly die and have to restart
-      THE OTHERS  When you make a character
-    He'll rambleon for a while.
-    You will recieve a pile of grain for your efforts.
+    so get up close to it to look around L
+    Once at the left immediately drop one cotton candy then move one space over to the left and drop the remaining.
+    Many  of the treasure chests in this weird place
+    You can upgradeto Centurion from a fully decked out Orion without adding muchmoney.One of the most lucrative trade routes is between New Caledoniaand Prasepe, but there are a few pirate bases in the way.
     
-    ----------------Oh well.
-    F until you get to a door
+    .Expect to see many Militia Talons in the Troy system and randomConfed/Militia patrols that will want your head for smuggling.The eject/retrieve trick won't work here.
+    The Aegis, The Brave  Guilder  When you cut a deal
+    * Two - Who's Up For Cheating The Big Bad Witch?
+    it will start to shake and be very hard to control
     
-    Sacrifice, Orange 6.
-    
-    She communicates in the migration of birds
-    Examine the patient status
+    ..
+    ..you'll get nothing if everyone dies, though.
