@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat May 28 16:48:01 EDT 2022
+## Sun May 29 16:48:01 EDT 2022
 
-    which is the fuel truck
-    The admiral believe that green blob is a Kilrathi secretweapon that somehow thought you're its guide.
-    If a dice is untyped i
-    Excellent for wiping out enemyvillages for your takeover.ABODE
+    you'll die, so be very fast and precise
+    You willdestroy the drone for them if you can keep the gun.
+    When the message is delivered,return to NC.
+    Diviner Titles: The Wise
     
-    so get up close to it to look around L
-    Once at the left immediately drop one cotton candy then move one space over to the left and drop the remaining.
-    Many  of the treasure chests in this weird place
-    You can upgradeto Centurion from a fully decked out Orion without adding muchmoney.One of the most lucrative trade routes is between New Caledoniaand Prasepe, but there are a few pirate bases in the way.
+    It uses players, a GM
+    When you cause great effect on an evildoer
+      Demos grants a blessing to extent
+    whereas your title is generally only applied when your full name is written or spoken
     
-    .Expect to see many Militia Talons in the Troy system and randomConfed/Militia patrols that will want your head for smuggling.The eject/retrieve trick won't work here.
-    The Aegis, The Brave  Guilder  When you cut a deal
-    * Two - Who's Up For Cheating The Big Bad Witch?
-    it will start to shake and be very hard to control
+    She'll meet you there.Just random enemies.14.15 TAYLA 2Run Brilliance from Tuck's in Sherwood to Saratov in Prasepe.Pays 20K.You thought this is simple because you got that hiddencompartment, right?
+    Your objective is totravel the known universe
+    It's very helpful in some of the dark rooms and arcade sequences
+    it's not a billion-seller
     
-    ..
-    ..you'll get nothing if everyone dies, though.
+    +D10 extent in matters of the heart
+    Nice game, but why is everything so dark
