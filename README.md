@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun May 29 16:48:01 EDT 2022
+## Mon May 30 16:48:01 EDT 2022
 
-    you'll die, so be very fast and precise
-    You willdestroy the drone for them if you can keep the gun.
-    When the message is delivered,return to NC.
-    Diviner Titles: The Wise
+    all allies who can see you are +D8 extent
+    You should be able to do this 5 times in a row enabling you to quickly and easily finish this part. For an interesting part wait a few seconds without doing anything.
+    heck, even if you don't needthe One-Shot at the time, pick it up anyway and place it next to it, you'll beneeding as many as you can get.*-* THE YOGI AND THE GURU *-*If you have managed to complete the first Story Scroll in this world/island,the one where you follow the guy down the mountain, then you will be helped outwhenever Lethys decided to attack your villages.
+    Just remember, the KMT.
     
-    It uses players, a GM
-    When you cause great effect on an evildoer
-      Demos grants a blessing to extent
-    whereas your title is generally only applied when your full name is written or spoken
+    "The amount of "energy" that you have stored at your Worship Site.
+    Don't forget to browse through the V-mail for clues an extra set of keys is lying around somewhere
+    But once you have found one, you can talk to her/him, answer with unproud manner, and then talk to her/him again.
+    He knows where the Retrosecret base is
     
-    She'll meet you there.Just random enemies.14.15 TAYLA 2Run Brilliance from Tuck's in Sherwood to Saratov in Prasepe.Pays 20K.You thought this is simple because you got that hiddencompartment, right?
-    Your objective is totravel the known universe
-    It's very helpful in some of the dark rooms and arcade sequences
-    it's not a billion-seller
+    but this one is kind of neat looking
+    Before you go up, complete any businessyou have in this world, as you'll soon be going places.
+    care to guess who is this informant and what does hedo?Some more of those unknown fighters block your way.
+    Comes in small and large sizes, governed by whetheryou use one Scaffold or two Scaffolds to build it.CRECHE
     
-    +D10 extent in matters of the heart
-    Nice game, but why is everything so dark
+    whatever raw material) and of course,contraband.If you can find a good route between mining and refinery, you canmake a bit of money, but usually these routes go by piratesystems and such.6.6 NEW CONSTANTINOPLEThe only thing NC produces that sells well is art (and only onpleasure planets)NC is one of the few places that will NOT buy contraband, thoughyou may get special fixer missions that need you to delivercontraband here.6.7 NEW DETROITNew Detroit is essentially a huge refinery.
+    I just managed to get justice in about 15-30 minutes of doing  that and I just wanted to share the joy.Honor
