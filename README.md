@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue May 31 16:48:01 EDT 2022
+## Wed Jun  1 16:48:01 EDT 2022
 
-    Some hints until then
-    You'll lead thedrone there and let the Confeds kill it.Objective
-    His community saw that he was quite slow
-      Name each and write them down
+    all allies who can see you are +D8 extent
+    After you are subject to effect in a scene
+    Sell it for 7500 credits, and replace it with a torpedolauncher and full reloads instead.
+    There are three mirrors that you can enter right now.
     
-    Bewarethat you have limited jump fuel, and the only way to refuel is toland somewhere.
-    Its near where the drowning fishermen quest was, near a stone.9 Its on the side of a mountain, close to where you started.Got 5 sheep?
-    Once per scene, give a nearby ally +D8 when you advise them as to a course of action
-    When you cause effect
+    There are two ways to make money in Privateer
+      If your precision beats your opponent’s security
+    By flipping the switches
+    Want to make slaves out of them.
     
-    You have toaccept to go on.Smuggled goods are usually quite small in amount and thus can behandled by any ship.
-    low range
-    Escort Hunter Toth (Drayman) to Oxford.
-    and the effects range from drug-like stimulation or euphoria to outright magical oddness
+    Once you've taken out the guards
+    fighter), Gothri (heavy fighter/bomber),and Kamekh (corvette) (see crafts)Kilrathi pilots are usually confident or fanatical pros or aces.Gothri are usually piloted by aces.
+    ------------Just the general fun.
+    the man is an Oracle first and a Guilder second
     
-    .. You may get something, orperhaps nothing at all.
-    third, fourth, eighth
+    Justice, Green 5.
+    8.5 DEFEND BASETake out the attackers, simple enough, right?You can get base defense missions through Mercenaries' Guild andMission Computer.
