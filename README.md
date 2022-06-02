@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jun  1 16:48:01 EDT 2022
+## Thu Jun  2 16:48:01 EDT 2022
 
-    all allies who can see you are +D8 extent
-    After you are subject to effect in a scene
-    Sell it for 7500 credits, and replace it with a torpedolauncher and full reloads instead.
-    There are three mirrors that you can enter right now.
+    Fed up of waiting for worshippers to provide you with enough Mana?
+    check out the plane L
+      DIFFERENT DICE  Sometimes you may roll additional dice due to your skills
+    (See the Simple Walkthrough)Bring a piece of your Creatures
     
-    There are two ways to make money in Privateer
-      If your precision beats your opponent’s security
-    By flipping the switches
-    Want to make slaves out of them.
+    If you're in a silver room
+    A bold statement.
+    IH OI------------------- - Mariah, a mage, will join you here. - The rune is in the room with Mariah, by her gold. - Cromwell the Paladin knows the mantra: AHMl.
+    Militia flies Gladius (fighter) and Talon (fighter) (see crafts)Militia pilots are usually confident pros, with an ace every oncein a long while (see morale and experience)Their initial attitude toward you is neutral.To make Militia like you, you should:* not attack Confed, Militia, bounty hunters, or merchants* not smuggle (carry contraband)* kill Pirate, Retro, and Kilrathi ships2.3 BOUNTY HUNTERSBounty hunters are paid a bounty for each pirate, Kilrathi, orRetro they kill.
     
-    Once you've taken out the guards
-    fighter), Gothri (heavy fighter/bomber),and Kamekh (corvette) (see crafts)Kilrathi pilots are usually confident or fanatical pros or aces.Gothri are usually piloted by aces.
-    ------------Just the general fun.
-    the man is an Oracle first and a Guilder second
+    And frankly, he's a jerk  trying to "destroy the living" or what not, so he probably deserves the bad  treatment.
+    Swat the brain cells with the fish when the eye is open.
+    GRAFFITI Enter the elevator and walk to the panel F
+    R to move in, X to fire
     
-    Justice, Green 5.
-    8.5 DEFEND BASETake out the attackers, simple enough, right?You can get base defense missions through Mercenaries' Guild andMission Computer.
+    X,R,X , and duck for cover R after Yikes
+    If you came in through the back door
