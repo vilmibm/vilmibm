@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jun  3 16:48:01 EDT 2022
+## Sat Jun  4 16:48:01 EDT 2022
 
-    See Bomb Puzzle <If you kiss Gia
-    Funny looking device
-    Pays 20K.Retros are ALL OVER the area, kill them all, and try to keep yourship intact.When you head back, a Pirate ship tell you that his "employer"wants to meet you at Drake, Capello system.
-    fly to Liverpool (Newcastle system) to pick up Smythe,30000 credits were promised.As you can guess, Miggs is out there, ready to do you harm.
+    Yep.
+    (FM IA) Rune: In Britain's Inn at the End of the Hall (search) Mantra: MU Stone: Yellow, in DespiseHonor: (MP FB) Rune: In Trinsic SW corner by a Mage (search) Mantra: SUMM Stone: Purple, in ShameSpirituality: (enter the Minoc moongate at 2 full moons, BD KG) Rune: Lord British's treasure room Mantra: OM Stone: White, on Serpent's Spine (balloon)Justice: (AL EJ) Rune: In cell in Yew Mantra: BEH Stone: Green, in WrongValor: (OF CE) Rune: In the secret passage around the city (SE tower) Mantra: RA Stone: Red, in DestardSacrifice: (CN MN) Rune: In the forge in Minoc Mantra: CAH Stone: Orange, in CovetousHumility: (NI OH) -- Need the Silver Horn first Rune: In the mountains in Paws (SE) Mantra: LUM Stone: Black, double New Moon Moongate (Moonglow)Honesty: (EC OJ) Rune: In Moonglow around Mariah's treasures (don't take those either) Mantra: AHM Stone: Blue, Deceit+=============================================================================+| viii.
+    He will go upthe mountain, and tell you to come too.
+    Getting it now?
     
-    If youturn on the cheats during the plot missions you will fail.12 Privateer Plot MissionsThe plot missions are always offered by fixers, and they pay VERYWELL compared to the other mission sources.TIP
-    ..Head to Troy, and explore the nearby nav points.
-    Tough, you'restuck here for a little while.
-    I suggest you move the Village Store scaffold next to the VillageCenter, as it'll put it closer to the action, and stop people taking so damnlong about things.
+    This does take a hunk out of your energy
+    F until you get to a door
+    F,F,F through Security Door Turn left
+    Some of these marks have weird stones in themthat "ping" now and again.
     
-    .If you don't kill Kroiz in the first encounter, he'll show upagain with FIVE Demons as escort when you almost reach yourdestination.12.8 LYNCH 3Lynch confirmed that the artifact is alien
-    Your objective is totravel the known universe
-    It'll soon catch fire and burn!
-    Just set nav to thejump point and set autopilot
+      THE GODDESSES  The goddesses are real
+    I am not sure which exact square you need to be on, but you can just peer at  a gem to make sure you are far enough north so that you wouldn't be blinking onto water
+    <<Elevator Puzzle>> This one's tricky- first
+    It also sucks up tremendous amountof energy.
     
-    key to jump. THE GRANDFATHER CLOCK 1.
-    Tons of targets, and tons of fuel trucks
+    the detonators will explode in six seconds
+    But I don't think this works all the time.Hope these tidbits help.
