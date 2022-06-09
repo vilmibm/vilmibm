@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jun  8 16:48:01 EDT 2022
+## Thu Jun  9 16:48:01 EDT 2022
 
-    Enter the contaminated zone F
-    40,000E.Y.E.
-    Get ready, THEN enter the first door on your right
-    , better hold off the IRs.4.5.1.5 Friend-or-Foe Missile (FF)Lock: nearest enemy, Speed 900, Damage 17 cm, Price 100Expensive, but no need to lock.
+    *-*BACKGROUND
+    L,F,R,F,L,F and check out the V-Mail
+    So you can get the picture, my A is a Wrigley's Spearmintwrapper, B is a MiniDisc, C is a folded up piece of A4 and D is a dentistappointment card.
+    Valor, Red 4.
     
-    You'll be using this a hell of a lot
-    the babbling tongues of the faithful and faithless
-    Don't letthem die, they're making you really powerful.
-    Toggle the vibration sensor second from the right
+    b'1 Game Information1.1 A LITTLE HISTORY LESSON
+    so they gave her the name Compass
+    You can go gloat over the body
+    Nasty virus, and it's spreading through the complex
     
-     Advances: Stalwart
-     If your extent beats your opponent’s resistance
-    don't forget about these buttons
-    You have a good ideawho this "employer" is
+    the Seven-Leagued, the Lost  Witness When you seek to find what is hidden
+    As you're setting down
+    ..
+    This means you can accept only ONEdelivery destination at once!* You can accept multiple delivery missions IF they are allgoing to the SAME BASE.
     
-    .. How lucky for you, huh?Objective: Explore Delta (4 nav points), get 10000 credits.You'll see some Pirate Talons in Delta system, and they don'tlike trespassers...As you've killed a lot of Bounty Hunters recently, don't besurprised if Militia, Confed, or Bounty Hunters are after yourhide.
-    L to move back, X to fire
+    Yep.
+    Now, only the tallest buildings survive
