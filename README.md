@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jun 10 16:48:01 EDT 2022
+## Sat Jun 11 16:48:01 EDT 2022
 
-    so try not to hit too many of them
-    -------------------- "Name" - they'll tell you their name "Job" - they'll tell you their job, quest, etc. "Health" - they will tell you their health, if someone isn't well find out why and try to help them!
-    Not a very friendly guard
-    The area in which you can interact with the environment.
+    4.2 ORIONOrion is an odd ship
+    F , and check out the terminal
+    you are simply known as boy or girl or child
+    Go to the right where the gardens are. THE GARDEN 1.
     
-    L,F , you find a particularly interesting box
-    Since pride destroyed Magincia, and Humility is the opposite of pride, and pride's mantra is 'mul' then humility's mantra is: LUM - You need to pick up the Silver Horn to drive the demons around the shrine away, it is at KN CNo.
-    fighter), Gothri (heavy fighter/bomber),and Kamekh (corvette) (see crafts)Kilrathi pilots are usually confident or fanatical pros or aces.Gothri are usually piloted by aces.
-    you want to cut the connection to the detonator far right
+    +D10 security when money is involved
+    Her community saw that she had a great roving spirit and knew that she couldn’t stay in one place for long
+    Let us analyze themarkets, and see what kind of stuff is available to buy low andsell high.There are FIVE kinds of bases
+      Ranks: Pilgrim, Wanderer
     
-    Too early
-    Givingmoney to beggars
-    I found that if you go when the blade in front of you is directly horizontal
-    Your Creature lives here, in his penin front of the entrance.
+    CL DK------ - Jaana, a druid, will join you here. - The Rune of Justice is in a cell with a criminal.
+    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
+    Wait 30 seconds and you'll see that it's in your brain
     
-    Second time or later willcost you some credits.'
-    You'll then need to use Heal Miraclesto cure all the poisoned people.
+    
+    Enter NEMROSIM as your name at the beginning of the game
+    Plus, of course,get all the other quest items.The following can be done in any order you want.
