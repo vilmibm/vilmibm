@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jun 12 16:48:01 EDT 2022
+## Mon Jun 13 16:48:01 EDT 2022
 
-    Cannot repairdestroyed items.
-    They'll put the power of a single Miracle intoyour hand.
-    You've got yourself a place to heal!
-    You will be paid 10000 credits.When you get there, Seelig pro?
+    Nice game, but why is everything so dark
+    CATWALK Santos's guards will be after you now
+    SKEET SHOOT From the turret
+    droplets of liquid weird collect on windows and altars
     
-    Easy work, just set people toworship at your Worship Site and get casting those Food Miracles.
-    Lots of air and ground targets
-    Costs 5000 / 10000 / 15000.4.6.5 Missile LauncherMissile launcher launches missiles.
-    Enemies may or maynot show up, but you'll get paid nonetheless.
+    Note
+    Instant Chimp Creature.EVIL SOLUTION
     
-    =DOnce that onslaught has been survived, simply wait for your Influence to grow,and start converting Village number two.
-    Follow him.GOOD SOLUTION
-    * Two - Just Where Was This Freak Wave?
-    and be prepared for the final boss
+    Otherwise, press fire or another direction
     
-    go to the panel R,R,F
-    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
+    Then the sands came: a great golden ocean that washed away the old world
+    ..Tayla was in the bar instead.
+    You'll find this one in Khazar's secondvillage, but only if you have control of it.GOOD SOLUTION
+    three active switches
+    
+    +D8 Security when you are threatened with physical harm by evildoers Unstoppable
+    -------------- - Lord Robert will tell you a word: AMOk.
