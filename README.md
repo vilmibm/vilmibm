@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jun 13 16:48:01 EDT 2022
+## Tue Jun 14 16:48:01 EDT 2022
 
+    He knows where the Retrosecret base is
+    You are able to move out ofyour Influence for short periods of time, if something is just beyond yourreach.
+      THE OTHERS  When you make a character
+    ------------------------------------- - Talk to Sentri to get the Word: CORn.
+    
+    and hull by the blue diagonal lines
+    Start training him once you have foughtGuide.
+    .. You have threechoices: Lynn Murphy, Goodin (Confed), or Tayla.
+    you will be attacked from the air by helicopters
+    
     Nice game, but why is everything so dark
-    CATWALK Santos's guards will be after you now
-    SKEET SHOOT From the turret
-    droplets of liquid weird collect on windows and altars
+    ---------When you've dropped all of the pillars that freeze your Creature, this Scrollwill become available.
+     Commercia grants a blessing to security
+    In return, he'll "reset" your reputation to"neutral"
     
-    Note
-    Instant Chimp Creature.EVIL SOLUTION
-    
-    Otherwise, press fire or another direction
-    
-    Then the sands came: a great golden ocean that washed away the old world
-    ..Tayla was in the bar instead.
-    You'll find this one in Khazar's secondvillage, but only if you have control of it.GOOD SOLUTION
-    three active switches
-    
-    +D8 Security when you are threatened with physical harm by evildoers Unstoppable
-    -------------- - Lord Robert will tell you a word: AMOk.
+    .. 1.
+    you can almost always make it through
