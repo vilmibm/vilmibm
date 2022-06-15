@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jun 14 16:48:01 EDT 2022
+## Wed Jun 15 16:48:01 EDT 2022
 
-    He knows where the Retrosecret base is
-    You are able to move out ofyour Influence for short periods of time, if something is just beyond yourreach.
-      THE OTHERS  When you make a character
-    ------------------------------------- - Talk to Sentri to get the Word: CORn.
+    key!
     
-    and hull by the blue diagonal lines
-    Start training him once you have foughtGuide.
-    .. You have threechoices: Lynn Murphy, Goodin (Confed), or Tayla.
-    you will be attacked from the air by helicopters
+    see morale andexperience
+    You will recieve a pile of grain for your efforts.
     
-    Nice game, but why is everything so dark
-    ---------When you've dropped all of the pillars that freeze your Creature, this Scrollwill become available.
-     Commercia grants a blessing to security
-    In return, he'll "reset" your reputation to"neutral"
+    AI Orion andGothri both have nicely armed rear turrets, and Kamekh havemultiple turrets.* Never approach a Demon head-on.
+    Monkhouse want to get over to Basra.
+    30,000MK III: Target Lock.
+    and then exit L,F,F,F from the terminal
     
-    .. 1.
-    you can almost always make it through
+    When you use your ship or craft
+    Try to avoid a fight if it's possible.
+    Remember to turn it off when you get there.
+    Commodore Reissmanhas assembled a fleet at "Blockade Point Tango".
+    
+    They are picked up likenormal grain.
+    Don'twaste any missiles as you will need them against the enemies inGamma.
