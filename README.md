@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jun 17 16:48:01 EDT 2022
+## Sat Jun 18 16:48:01 EDT 2022
 
-    *-*Seems that a um
-    She'll meet you there.Just random enemies.14.15 TAYLA 2Run Brilliance from Tuck's in Sherwood to Saratov in Prasepe.Pays 20K.You thought this is simple because you got that hiddencompartment, right?
-    ..freak wave has swept a woman's husband and his friends out tosea.
-    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
+    Escort Hunter Toth (Drayman) to Oxford.
+    You shouldmake your way to Perry Naval Base
+    Escort this final Drayman back to Oxford.
+    Select one of the three antidotes
     
-    jutting out of the shifting sands
-    F and enter the next room R
-    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
-    Take them out
+    It also sucks up tremendous amountof energy.
+    +D10 precision when you read someone’s desires
+    However, here's a listof the more important items4.6.1 ShieldsShields vary from level 1 (worst) to level 5 (best).
+    How do you get itback?NOTE
     
-    At the very beginning of the game you will be asked 7 questions by a gypsywoman.
-    Blast everything in sight
-    Your reward is a nice shiny beach ball.
-    If you can't outrun them... Eject the contraband and stop.They will eventually go away.
+    It's a renter in my book this FAQ has been written from a rental weekend
+    a temple, an estate, a building or a whole city
+    F,F,F through Security Door Turn left
+    ..) "join" - asks the person to join your party "Bye" - Ends the conversationIncreasing Humility: (from Stephanus Rudiyanto Natari)-------------------- Humility is one of the hardest virtues to increase, because you need to talk to certain people.
     
-    So, you've battled through the action sequences
-    Nostealing, attacking innocent people
+      When an adversary causes effect to you
+    It is a combination of genres
