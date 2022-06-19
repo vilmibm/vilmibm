@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jun 18 16:48:01 EDT 2022
+## Sun Jun 19 16:48:01 EDT 2022
 
-    Escort Hunter Toth (Drayman) to Oxford.
-    You shouldmake your way to Perry Naval Base
-    Escort this final Drayman back to Oxford.
-    Select one of the three antidotes
+    F , and look through it
+    * Six - Yay!
+    Walk back to the junction from the box
+      ELSEWHERE  There are other places
     
-    It also sucks up tremendous amountof energy.
-    +D10 precision when you read someone’s desires
-    However, here's a listof the more important items4.6.1 ShieldsShields vary from level 1 (worst) to level 5 (best).
-    How do you get itback?NOTE
+    Their initial attitude toward you is hostile (like everybodyelse).You cannot align yourself with the Retros.2.7 PIRATESPirates make their living by trade in contraband goods androbbing Merchants.
+    Run in some food to NewDetroit for 30k.You'll see 4 Retros then 4 Retros on either side of the jump.
+    You are able to move out ofyour Influence for short periods of time, if something is just beyond yourreach.
+    - The drone will accelerate away from you, then turn back at youto shoot you, go PAST you, then turn back to repeat.--To beat it, you have to hit it while it's heading away, thendodge its shots as it heads back past you, and hit it again whileit's heading away.
     
-    It's a renter in my book this FAQ has been written from a rental weekend
-    a temple, an estate, a building or a whole city
-    F,F,F through Security Door Turn left
-    ..) "join" - asks the person to join your party "Bye" - Ends the conversationIncreasing Humility: (from Stephanus Rudiyanto Natari)-------------------- Humility is one of the hardest virtues to increase, because you need to talk to certain people.
+    precision, extent, and security
+    You can also gain Mana by sacrifice
+    BIG SHOCK Walk over to Santos's body
     
-      When an adversary causes effect to you
-    It is a combination of genres
+    
+    the detonators will explode in six seconds
+    It hasmultiple turrets and has quite a bit of firepower.Only Confed fly Broadsword5.3.2 GothriGothri is a fast and quite maneuverable heavy fighter.
