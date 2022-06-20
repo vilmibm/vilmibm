@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jun 19 16:48:01 EDT 2022
+## Mon Jun 20 16:48:01 EDT 2022
 
-    F , and look through it
-    * Six - Yay!
-    Walk back to the junction from the box
-      ELSEWHERE  There are other places
+    which is the fuel truck
+    LISTEN IN Quietly listen to the conversation don't move
+    Or CoolThang for short.EVIL SOLUTION
+    Browse through them, and note the new janitor's key code
     
-    Their initial attitude toward you is hostile (like everybodyelse).You cannot align yourself with the Retros.2.7 PIRATESPirates make their living by trade in contraband goods androbbing Merchants.
-    Run in some food to NewDetroit for 30k.You'll see 4 Retros then 4 Retros on either side of the jump.
-    You are able to move out ofyour Influence for short periods of time, if something is just beyond yourreach.
-    - The drone will accelerate away from you, then turn back at youto shoot you, go PAST you, then turn back to repeat.--To beat it, you have to hit it while it's heading away, thendodge its shots as it heads back past you, and hit it again whileit's heading away.
+    You'll get 10000 credits.When you get to Beta's nav 3, you'll find Captain Garrovick in aCenturion, and he's completely wacko.
+    However, you justneed them to NOT hate you
+    Funny looking device
+    >=D*
     
-    precision, extent, and security
-    You can also gain Mana by sacrifice
-    BIG SHOCK Walk over to Santos's body
+    Commodore Reissmanhas assembled a fleet at "Blockade Point Tango".
+    Merged with the Cyberia weapon
+    Infact, if you real the manual, mission computer missions are NOTguaranteed payment, while the guilds do.Therefore, you should search for missions that pays best, thenlook for other missions you can do while on your way.7.1 MISSION COMPUTERYou can get missions from the mission computer.
+    Don't forget to go to the shrines!
     
-    
-    the detonators will explode in six seconds
-    It hasmultiple turrets and has quite a bit of firepower.Only Confed fly Broadsword5.3.2 GothriGothri is a fast and quite maneuverable heavy fighter.
+    You can upgradeto Centurion from a fully decked out Orion without adding muchmoney.One of the most lucrative trade routes is between New Caledoniaand Prasepe, but there are a few pirate bases in the way.
+    often separated by a hyphen
