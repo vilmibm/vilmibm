@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jun 20 16:48:01 EDT 2022
+## Tue Jun 21 16:48:01 EDT 2022
 
-    which is the fuel truck
-    LISTEN IN Quietly listen to the conversation don't move
-    Or CoolThang for short.EVIL SOLUTION
-    Browse through them, and note the new janitor's key code
-    
-    You'll get 10000 credits.When you get to Beta's nav 3, you'll find Captain Garrovick in aCenturion, and he's completely wacko.
-    However, you justneed them to NOT hate you
-    Funny looking device
-    >=D*
-    
-    Commodore Reissmanhas assembled a fleet at "Blockade Point Tango".
-    Merged with the Cyberia weapon
-    Infact, if you real the manual, mission computer missions are NOTguaranteed payment, while the guilds do.Therefore, you should search for missions that pays best, thenlook for other missions you can do while on your way.7.1 MISSION COMPUTERYou can get missions from the mission computer.
-    Don't forget to go to the shrines!
-    
-    You can upgradeto Centurion from a fully decked out Orion without adding muchmoney.One of the most lucrative trade routes is between New Caledoniaand Prasepe, but there are a few pirate bases in the way.
+    shields are shown by the green vertical bar
     often separated by a hyphen
+    You'll learn that the janitor has been fired
+    Get the Creature to throw them further out tosea.
+    
+    You can also use this tactic to completely destroy the village and its villagers, if you wish
+    Approach it from the rear, slow down, pump HALF thetorpedoes into it
+    yes, sorry,some tiny amount of musical affinity may be required here you will recievea Food Miracle Dispenser.
+    Yew
+    
+    so I wrote my own for the Playstation
+    If you continue running down the hall
+    You will get 2friendly Talons as wingmen.
+    , and Gia will come to your rescue
+    
+    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
+    a series of cruise missiles will be fired at you from the middle of the screen
