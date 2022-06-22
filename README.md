@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jun 21 16:48:01 EDT 2022
+## Wed Jun 22 16:48:01 EDT 2022
 
-    shields are shown by the green vertical bar
-    often separated by a hyphen
-    You'll learn that the janitor has been fired
-    Get the Creature to throw them further out tosea.
+    must be placed in sunlight for a week or so to recharge it
+    When you attempt to take something that isn't yours
+    Trust me.Well, that was one hell of a ride now wasn't it?
+    30,0006i: Target Lock.
     
-    You can also use this tactic to completely destroy the village and its villagers, if you wish
-    Approach it from the rear, slow down, pump HALF thetorpedoes into it
-    yes, sorry,some tiny amount of musical affinity may be required here you will recievea Food Miracle Dispenser.
-    Yew
+    For this, you will be bestowed withMr.
+    To get into the cell, go up to the Ruler of the Castle, and talk to him.
+    And where do they run?
+    Tons of targets, and tons of fuel trucks
     
-    so I wrote my own for the Playstation
-    If you continue running down the hall
-    You will get 2friendly Talons as wingmen.
-    , and Gia will come to your rescue
+    Once the mission is completethere's no reason not to turn on the cheat.* If you got room in the cargo bay, buy some commodities thatyou know will make profit at the destination, and sell it whenyou get there to make even more money.10 Gemini SectorGemini sector is made up of sixty-nine different star systems,each of them has from one to nine nav points.There is really no point for me to write which jump point linksto which system when you can buy the quadrant maps for yournavcomp.In each system, you can have several nav points that ships canalign to.
+    If you want firepower, this is the ship you want.
+    <<Elevator Puzzle>> This one's tricky- first
+    It also sucks up tremendous amountof energy.
     
-    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
-    a series of cruise missiles will be fired at you from the middle of the screen
+    It uses players, a GM
+    Do as they say.
