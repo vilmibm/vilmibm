@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jun 24 16:48:01 EDT 2022
+## Sat Jun 25 16:48:01 EDT 2022
 
-    Now all you do is alternate between thetwo areas, picking up a villager at him Temple, and sacrificing it at yourTemple.
-    move, or help others do so
-    Too early
-    High-ranking Official from your church    THE WAYS  There are three ways
+    +D10 security when money is involved
+    BIG KISS Okay, a real decision here
+    roll three six-sided dice and allot them to each
+     The same applies to you with regards to your opponent
     
-    They primarily appear in Fariss andHumboldt quadrants.Pirates hate Confed, Militia, and Bounty Hunters see factions
-    When you cause great effect
-    Get them back by casting Miracle Water on them orsimply by throwing them back, you know what your alignment is.
-    Go visit him and bring the Creature once again.
+    I knew my mum was wrong when she said greens were good forme.
+    It's a renter in my book this FAQ has been written from a rental weekend
+    Friends and acquaintances will use your given name
+    try not to kill any Confed or Militia while smuggling.
     
-    Take your time to take stuff through to the next land.
-    .. And youneed to access the library.
-    This witch leaves nearby that last village you took.She claims she can bring youth back to old people, so lets test her claims,shall we?GOOD SOLUTION
-    Skara Brae (IA BG)
+    Easy work, just set people toworship at your Worship Site and get casting those Food Miracles.
+    so perform an IR scan on it
+    you're a sitting duck until they recharge again
+    Aesop knows the mantra: RA - You want to get into the walls to get the Rune.
     
-    Warm to the touch until used
-    .Expect to see Confed patrols all over the place, no matter whichroute you take.
+    Beware
+    Make it over to Blockade Point Tango.
