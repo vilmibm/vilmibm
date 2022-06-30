@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jun 29 16:48:01 EDT 2022
+## Thu Jun 30 16:48:01 EDT 2022
 
-    .. You'll see... A jump point!
-    Do the quest, then kill the hippy.Whatever floats your boat.
-    But this one isa deucy.Objective
-    If people see spare woodor food lying about in the village, they will usually take it to the VillageStore for easy storage.
+    This one pays a lot better due to multiple nav points.You can get patrol missions through Mercenaries' Guild andMission Computer.
+    Puzzle-me-do!
+    and then step on the innoculator F
+    Once per scene, when you invoke the authority of The Crown
     
-    A winner is you!Running low on food in the village, and the fields are running dry?
-    D*-* Three - Where's Seano?
-    BIG SHOCK Walk over to Santos's body
-    This is best done alone no partymembers slowing you down, you'll need them later, but not now
+    You will recieve a Strengthen CreatureMiracle Dispenser.EVIL SOLUTION
+    L,F,F , and push the crate out of the way R
+    Take off andland again to get a new set.
+      Your adult name is chosen to reflect your time as a child
     
-    L to move back, X to shoot
-    D to duck, L and R to aim
-    Or CoolThang for short.EVIL SOLUTION
-    After a few minutes, everything will be fully constructed.
+    jutting out of the shifting sands
+    GK FC)---------- - Iolo, a bard, will join you here. - At the end of the hallway in the Inn is the Rune of Compassion. - Talk to cricket about the MANTRA to get the Mantra for Compassion: MU. - Give money to the beggar Sprite to increase your Compassion. - Shapero tells you that the Shrine of Compassion is East 2 Bridges. - Sebastian (injured man) tells you that Mondain's Skull is still around.c.
+    When you try to outpace someone or something
+    Pays 10KWhen you launch, you'll likely see Retros closing in thetransport.
     
-    See [7] for mission sources
-    He was raised by a loving ish family on the street of Greensward in the Riverdeep arcology
+    It uses players, a GM
+    Dumb Fire, Heatseeker, ImageRecognition, and Friend-or-Foe.You also get proton torpedoes, which are basically shorter-rangebut faster-firing Dumb Fire missiles.4.5.1.1 Missile LauncherHolds ten missiles (any type), costs 10000 credits.4.5.1.2 Dumbfire Missile (DF)Lock: None, Speed 1000, Damage 13cm, Price 20Torpedo is easier to use and does more damage, but requires adifferent launcher.4.5.1.3 Heatseeker Missile (HS)Lock: Engine heat, Speed 800, Damage 16cm, Price 35Heatseekers can be a bit hard to use in dogfights as you can'tget on the tail of enemies long enough for this to lock.4.5.1.4 Image Recognition Missile (IR)Lock: Enemy craft type/shape, Speed 850, Damage 17 cm, Price 75IR missiles goes after the general 'shape' of the enemy.
