@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jul  3 16:48:01 EDT 2022
+## Mon Jul  4 16:48:01 EDT 2022
 
-    Try to get missions that need you todeliver to NC or ND.The enemies outside Troy are significantly smarter and deadlier.You should NOT perform a patrol or scout mission in a Tarsusoutside the Troy system until you reach NC/ND/OX.Once you made it to NC/ND/OX area, accept delivery missions untilyou can upgrade to an Orion.
-    Grab one of the sticks and then attack the rose bush.
-    >>Cyberia Complex Level 2<< RED LIGHT Red light
-    hovercraft, and fighters black dots on your radar
+    Once per scene, a nearby ally gains +D10 security
+    CATWALK Santos's guards will be after you now
+      Ranks: Corpus, Hollow
+    On the map, mark one place you’ve been and one place you haven’t
     
-    You'll find Jones and his escort.[If you still don't get it, look below]Take out all the Salthi (yes, Salthi) escorts piloted by Retros.There would be more than 10.
-    R,F,F,R,F,F , and quickly get to the computer R
-    =D*
-    The first time you have access to a store of knowledge
+    This is just the piano again, except it's faster and harder. THE FISH TANK 1.
+     Advances; Performer
+    Timing is important in catching the ball.
+    Usually involves killing everyone.
     
-    .Max engine: 3 Max shields: 3A fully upgraded ship would have* level 3 shields and level 3 engines* tungsten armor* max ECM available* 2 missile launchers with IR/FF missiles* high-level scanner* repair droid* cargo expansion* all quadrant maps* top and bottom turrets* tractor beam in turret* GOOD energy guns (tachyon cannons would be good)* jump drive (of course!
-    Her community saw that she had a great roving spirit and knew that she couldn’t stay in one place for long
-    so get up close to it to look around L
-    it will start to shake and be very hard to control
+    ------------What else?
+    If you want firepower, this is the ship you want.
+    trading house and bank that has claims to be a statue of each of the three goddesses
+    Well, it's not much, but at the terminal password screen GENIUS
     
-    and the game does kind of suck you in over time
-    When you come under attack from madness
+    .. Maybe the admiral knowswhat's going on...Objective: get to Perry Naval Base safely (no, you don't get paidfor this)Doesn't matter which way you go, you'll run into a lot of Retros(figure 5+3+3 Talons).
+    Your Mana will soon hit a million.
