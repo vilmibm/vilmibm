@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jul  4 16:48:01 EDT 2022
+## Tue Jul  5 16:48:01 EDT 2022
 
-    Once per scene, a nearby ally gains +D10 security
-    CATWALK Santos's guards will be after you now
-      Ranks: Corpus, Hollow
-    On the map, mark one place you’ve been and one place you haven’t
+    At the top of the hill, a house, a Scroll anda crazy old man can be found.
+    .. And it's all up toyou.Here are some combat tips against the drone:-- Don't get between the Confed fleet and the drone!
+    +D8 precision when working out what someone wants
+    Join Mercenaries Guild to get moreassignments.
     
-    This is just the piano again, except it's faster and harder. THE FISH TANK 1.
-     Advances; Performer
-    Timing is important in catching the ball.
-    Usually involves killing everyone.
+    Go on, you know you must.
+    ..
+    except for a poster on the wall Alexei's hero
+    You mayget by with a Tarsus in a really quiet sector.3.4 PIRATEBeing a pirate is simple
     
-    ------------What else?
-    If you want firepower, this is the ship you want.
-    trading house and bank that has claims to be a statue of each of the three goddesses
-    Well, it's not much, but at the terminal password screen GENIUS
+    Her full name is Paladin Compass Quill of the Horizon
+    toward everybody except perhaps Kilrathi and Retrosby hacking Confed and Pirate databases.
+    I see the Freak Wave has been up to his old tricks.
+    .. Theycan see THROUGH that compartment now.
     
-    .. Maybe the admiral knowswhat's going on...Objective: get to Perry Naval Base safely (no, you don't get paidfor this)Doesn't matter which way you go, you'll run into a lot of Retros(figure 5+3+3 Talons).
-    Your Mana will soon hit a million.
+    When you act and are challenged
+    often separated by a hyphen
