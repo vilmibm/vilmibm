@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jul  5 16:48:01 EDT 2022
+## Wed Jul  6 16:48:01 EDT 2022
 
-    At the top of the hill, a house, a Scroll anda crazy old man can be found.
-    .. And it's all up toyou.Here are some combat tips against the drone:-- Don't get between the Confed fleet and the drone!
-    +D8 precision when working out what someone wants
-    Join Mercenaries Guild to get moreassignments.
+    the man is an Oracle first and a Guilder second
+    =*
+    Price
+    down down 	L2: Changes to flightsim cursor mode up down
     
-    Go on, you know you must.
-    ..
-    except for a poster on the wall Alexei's hero
-    You mayget by with a Tarsus in a really quiet sector.3.4 PIRATEBeing a pirate is simple
+    was Top: 2, Middle: 3
+     Advances: Doomsayer
+    You can find them just about everywhere, but esp.around Perry Naval Base.Confed hates Pirates, Kilrathis, and Retros see factions
+    His cousin needs to "get out of town","away from the heat"
     
-    Her full name is Paladin Compass Quill of the Horizon
-    toward everybody except perhaps Kilrathi and Retrosby hacking Confed and Pirate databases.
-    I see the Freak Wave has been up to his old tricks.
-    .. Theycan see THROUGH that compartment now.
+    Some families jealously guard old names
+      THE OTHERS  When you make a character
+    Torch the place, including him.
+    Go to thebay near your temple, and pick up fish from there.
     
-    When you act and are challenged
-    often separated by a hyphen
+    and enter the dark room L
+    Thereasonably good solution is just to sacrifice another child, and you'll winanyway.
