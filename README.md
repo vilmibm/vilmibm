@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jul  6 16:48:01 EDT 2022
+## Thu Jul  7 16:48:01 EDT 2022
 
-    the man is an Oracle first and a Guilder second
-    =*
-    Price
-    down down 	L2: Changes to flightsim cursor mode up down
+    Quickly shoot him before he throws it R
+    When the message is delivered,return to NC.
+    Exit the room back to the main hallway R
+    Time your next move F as the guard is looking away from the window
     
-    was Top: 2, Middle: 3
-     Advances: Doomsayer
-    You can find them just about everywhere, but esp.around Perry Naval Base.Confed hates Pirates, Kilrathis, and Retros see factions
-    His cousin needs to "get out of town","away from the heat"
-    
+    Winning = People will offer you 'Heal Increase' when they worship.EVIL SOLUTION
     Some families jealously guard old names
-      THE OTHERS  When you make a character
-    Torch the place, including him.
-    Go to thebay near your temple, and pick up fish from there.
+    40,000E.Y.E.
+    They offer higher-payingread
     
-    and enter the dark room L
-    Thereasonably good solution is just to sacrifice another child, and you'll winanyway.
+    The goddesses are here
+    When you cause great effect on an evildoer
+    Then tractor in the ejected cargoand continue.
+    F , and to the left-hand door R
+    
+    the detonators will explode in six seconds
+    They make finishedproducts and buy raw materials like ores and food.ND buys contraband.If you can find a good route between mining and ND/refinery, youcan make a bit of money, but usually these routes go by piratesystems and such.6.8 OXFORDOxford is mainly an agricultural planet but also export books.They buy the same agriculture related stuff, like Plastics, Fooddispensers, and so on.Oxford does NOT buy contraband.6.9 PERRY NAVAL BASEPNB makes weapons, and only weapons.PNB buys wood, food, grain, plastics, food dispenser, and so on.PNB does NOT buy contraband.7 Mission SourcesThe other way to make money besides trading in commodities is bytaking on missions.
