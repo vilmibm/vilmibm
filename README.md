@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul  7 16:48:01 EDT 2022
+## Fri Jul  8 16:48:01 EDT 2022
 
-    Quickly shoot him before he throws it R
-    When the message is delivered,return to NC.
-    Exit the room back to the main hallway R
-    Time your next move F as the guard is looking away from the window
+    Well, there's a lot of plot for this game
+    Excellent for wiping out enemyvillages for your takeover.ABODE
+    Codes and Cheats Is there a cheat code for this game
+    You'll find Jones and his escort.[If you still don't get it, look below]Take out all the Salthi (yes, Salthi) escorts piloted by Retros.There would be more than 10.
     
-    Winning = People will offer you 'Heal Increase' when they worship.EVIL SOLUTION
-    Some families jealously guard old names
-    40,000E.Y.E.
-    They offer higher-payingread
+    Wait until he is on the other side
+    A winner is you!Running low on food in the village, and the fields are running dry?
+    Oh well.
+    PUZZLE LEVELS 1,2,3: The code is 2
     
-    The goddesses are here
-    When you cause great effect on an evildoer
-    Then tractor in the ejected cargoand continue.
-    F , and to the left-hand door R
+    How dare she ask you to, like, do,like, stuff!
+    Enter that one by pushing up. THE PIANO 1.
+    Charge a Miracle in your hand, click on theMiracle Dispenser, and it will be turned into a One-Shot Miracle!
+    In return, he'll "reset" your reputation to"neutral"
     
-    the detonators will explode in six seconds
-    They make finishedproducts and buy raw materials like ores and food.ND buys contraband.If you can find a good route between mining and ND/refinery, youcan make a bit of money, but usually these routes go by piratesystems and such.6.8 OXFORDOxford is mainly an agricultural planet but also export books.They buy the same agriculture related stuff, like Plastics, Fooddispensers, and so on.Oxford does NOT buy contraband.6.9 PERRY NAVAL BASEPNB makes weapons, and only weapons.PNB buys wood, food, grain, plastics, food dispenser, and so on.PNB does NOT buy contraband.7 Mission SourcesThe other way to make money besides trading in commodities is bytaking on missions.
+    Leave the room and enter yet another hallway R
+    Make it over to Blockade Point Tango.
