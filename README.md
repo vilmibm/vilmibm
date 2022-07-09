@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jul  8 16:48:01 EDT 2022
+## Sat Jul  9 16:48:01 EDT 2022
 
-    Well, there's a lot of plot for this game
-    Excellent for wiping out enemyvillages for your takeover.ABODE
-    Codes and Cheats Is there a cheat code for this game
-    You'll find Jones and his escort.[If you still don't get it, look below]Take out all the Salthi (yes, Salthi) escorts piloted by Retros.There would be more than 10.
+    From left to right.
+    ---------In the middle village, there lives a man.
+    If anyone should eat this greenfood, they will become sick, and will soon die.
+    BURN THEM ALL!
     
-    Wait until he is on the other side
-    A winner is you!Running low on food in the village, and the fields are running dry?
-    Oh well.
-    PUZZLE LEVELS 1,2,3: The code is 2
+    Hit the statue up and down until it crumbles.
+    The All-Seeing, The God-tongue    Persecutor When you attempt to bring a criminal to justice
+    Watch the color of the target- fuel trucks have blue targets
+    Simpleenough, right?
     
-    How dare she ask you to, like, do,like, stuff!
-    Enter that one by pushing up. THE PIANO 1.
-    Charge a Miracle in your hand, click on theMiracle Dispenser, and it will be turned into a One-Shot Miracle!
-    In return, he'll "reset" your reputation to"neutral"
+    and approach the perimiter lock F
+    in the heartof the Potter quadrant, around New Constantinople, New Detroit,and Oxford (NC/ND/OX).
+    It'll soon catch fire and burn!
+    See [7] for mission sources
     
-    Leave the room and enter yet another hallway R
-    Make it over to Blockade Point Tango.
+    See [4] forrecommended loadout for your ship.
+    4.2 ORIONOrion is an odd ship
