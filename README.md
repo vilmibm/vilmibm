@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jul  9 16:48:01 EDT 2022
+## Sun Jul 10 16:48:01 EDT 2022
 
-    From left to right.
-    ---------In the middle village, there lives a man.
-    If anyone should eat this greenfood, they will become sick, and will soon die.
-    BURN THEM ALL!
+    you want to return to the dark room just past the loud room
+    Before you go up, complete any businessyou have in this world, as you'll soon be going places.
+    Startto take all the wood and food out of your village center and place it near thebeach where the fishers
+    He then attacks you andyou'll probably have to destroy him.Everybody else you encounter will be random.12.20 CROSS 3Taryn Cross want to know what drove Garrovick mad
     
-    Hit the statue up and down until it crumbles.
-    The All-Seeing, The God-tongue    Persecutor When you attempt to bring a criminal to justice
-    Watch the color of the target- fuel trucks have blue targets
-    Simpleenough, right?
+    These ones give you nothing, you simply place a charged Miracle onthem, and it is turned into a One-Shot Miracle.
+    Otherwise, press fire or another direction
+    You need to upgrade your armor,shields, and scanners ASAP.You start with a missile launcher, but you don't really need ityet.
+    Now it's time to do some SERIOUS back-tracking
     
-    and approach the perimiter lock F
-    in the heartof the Potter quadrant, around New Constantinople, New Detroit,and Oxford (NC/ND/OX).
-    It'll soon catch fire and burn!
-    See [7] for mission sources
+    you'll die, so be very fast and precise
+    Start training him once you have foughtGuide.
+    If you talk to the bartenders, they'll tell you to head for NewDetroit when you're ready.
+    Go over to the other door and walk though it L
     
-    See [4] forrecommended loadout for your ship.
-    4.2 ORIONOrion is an odd ship
+    +D8 security when you evade conflict
+    and the effects range from drug-like stimulation or euphoria to outright magical oddness
