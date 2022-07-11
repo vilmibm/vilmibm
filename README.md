@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jul 11 14:33:18 EDT 2022
+## Mon Jul 11 16:48:01 EDT 2022
 
-    Once you're ready to do some killin'
-    Grab a fish above.
-    Remember to turn it off when you get there.
-    or maybe a damning indictment of your shortcomings
-    
+    the good ones,anyway) are found here...1) Close to where you found the woman's sick brother.2) In some trees near to where the circle of singing stones are.3) Near the beach where you rescued the kid just before the tutorial.
     LI GK---------- - Dupre, a paladin, will join you here. - Talk to Terrin in the SE corner of town to learn that the Rune of Honor is in the SW corner of town.
-    - Dodge the drone's shots.
-    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
-    People may start to dance around it,this is the process of infusing it with belief.
+    and where you’re from
+    Get the Creature topick them up and then eat them.
     
-    Protector 9: Witness 10
-      Your adult name is chosen to reflect your time as a child
-    you get what you want
-    On theother hand, the university does need some work done
+    Grab one of the sticks and then attack the rose bush.
+    Browse through them, and note the new janitor's key code
+    travelling on sand-skimmers and light gliders
+    Take out the Gothris first.12.21 CROSS 4One last mission for the Exploratory Services
     
-    Some data pirates are hacking Oxford's mainframe.
-    Cannot repairdestroyed items.
+    When you talk to someone else on glimmer
+    Combine it with throwing/flaming/etc for even greater belief boosts.ONE
+    Maim.And Torture.
+    all you do is throw rocks and fireballs, etc into the village.
+    
+    Check other mission sources first.Offered
+    How dare she ask you to, like, do,like, stuff!
