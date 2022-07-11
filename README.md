@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jul 10 16:48:01 EDT 2022
+## Mon Jul 11 14:33:18 EDT 2022
 
-    you want to return to the dark room just past the loud room
-    Before you go up, complete any businessyou have in this world, as you'll soon be going places.
-    Startto take all the wood and food out of your village center and place it near thebeach where the fishers
-    He then attacks you andyou'll probably have to destroy him.Everybody else you encounter will be random.12.20 CROSS 3Taryn Cross want to know what drove Garrovick mad
+    Once you're ready to do some killin'
+    Grab a fish above.
+    Remember to turn it off when you get there.
+    or maybe a damning indictment of your shortcomings
     
-    These ones give you nothing, you simply place a charged Miracle onthem, and it is turned into a One-Shot Miracle.
-    Otherwise, press fire or another direction
-    You need to upgrade your armor,shields, and scanners ASAP.You start with a missile launcher, but you don't really need ityet.
-    Now it's time to do some SERIOUS back-tracking
+    LI GK---------- - Dupre, a paladin, will join you here. - Talk to Terrin in the SE corner of town to learn that the Rune of Honor is in the SW corner of town.
+    - Dodge the drone's shots.
+    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
+    People may start to dance around it,this is the process of infusing it with belief.
     
-    you'll die, so be very fast and precise
-    Start training him once you have foughtGuide.
-    If you talk to the bartenders, they'll tell you to head for NewDetroit when you're ready.
-    Go over to the other door and walk though it L
+    Protector 9: Witness 10
+      Your adult name is chosen to reflect your time as a child
+    you get what you want
+    On theother hand, the university does need some work done
     
-    +D8 security when you evade conflict
-    and the effects range from drug-like stimulation or euphoria to outright magical oddness
+    Some data pirates are hacking Oxford's mainframe.
+    Cannot repairdestroyed items.
