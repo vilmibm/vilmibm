@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jul 11 16:52:40 EDT 2022
+## Tue Jul 12 16:48:01 EDT 2022
 
-    The more people who see it
-    Kill.
-    His crime?
-    Walk through the vent F
+    Anyway,its time to move onto the final village, and reclaim your village.
+    They offerthe really challenging missions, and they pay quite well.
+    =*
+    Nav 4 has 3 Gothris, then Kamekhand Gothri.
     
-    you'll instantly die and have to restart
+    Raise the totem in your village, and worshipperswill flock here to worship around the altar.
+    The best method is to attack right the long thrust
+    Take out the escorts.
+    Walkthrough with Passwords IV
+    
+    there will be no damage
+    You should be able to do this 5 times in a row enabling you to quickly and easily finish this part. For an interesting part wait a few seconds without doing anything.
     When you threaten an enemy with their ill destiny
-    ---------Across the dry plain next to your first village, is a hill with a 'helter-skelter' pattern cut out of it.
-    You have a good ideawho this "employer" is
+    a series of cruise missiles will be fired at you from the middle of the screen
     
-    b'You really should win this battle.
-    See [7] for mission sources
-    Seven active switches
-    ------------Ahh, the usual mayhem, kill the hippy.
-    
-    as all the passwords are in place 		for you
-    Walk through the vent F
+    to Hector Mining base,Troy system
+    You'll be using this a hell of a lot
