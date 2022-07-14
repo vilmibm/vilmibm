@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Jul 13 16:48:01 EDT 2022
+## Thu Jul 14 16:48:01 EDT 2022
 
-    KJ LL----------- - Katrina, a shepherd, will join you here.
-    You shouldmake your way to Perry Naval Base
-    Don't forget that mother as well.
-    You'll get a new set of each.You can get missions from several sources
+    This allows you three things
+    ..12.2 TAYLA 1Objective: Take plastics to Oakham (Pirate base, Pentonvillesystem).
+    Run in some food to NewDetroit for 30k.You'll see 4 Retros then 4 Retros on either side of the jump.
+    Go find him near where you fought your battle with Guide.GOOD SOLUTION
     
-    KJ LL----------- - Katrina, a shepherd, will join you here.
-    Be careful,however, as attacks on the Temple, even when invunerable, will reflect on yourbelievers' villages.
-    but for the arcade sequences
-    down down 	L2: Changes to flightsim cursor mode up down
+    It'll behelpful, believe me.BACKGROUND
+    Decision time, although it's kind of minor
+      You have three opportunities to stare disaster in the face before you are claimed by the sands
+    ..14.25 INFORMANT 2You guessed right, the "employer" was Monte's "informant", and heis actually a high-level Retro priest.
     
-    Walk towards the Cyberia weapon F
-    and it seems to drain your energy and shields faster at the harder levels
-    Worshipping will give you mana,which can be spent on Miracles.
-      THE OTHERS  When you make a character
+    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
+    re-arm your weapon, and walk into the warehouse F
+    Many  of the treasure chests in this weird place
+    Go back to the doorway where you killed the two guards F
     
-    Remove the grating F
-    ------------Bring a wolf, I hope you still have wolves after I TOLD YOU TO LEAVE THEMALONE.
+    pressing the button and up. THE STATUE 1.
+    His community saw that he was quite slow
