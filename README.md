@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul 14 16:48:01 EDT 2022
+## Fri Jul 15 16:48:01 EDT 2022
 
-    This allows you three things
-    ..12.2 TAYLA 1Objective: Take plastics to Oakham (Pirate base, Pentonvillesystem).
-    Run in some food to NewDetroit for 30k.You'll see 4 Retros then 4 Retros on either side of the jump.
-    Go find him near where you fought your battle with Guide.GOOD SOLUTION
+    Click on the Gold Story Scroll to go through.
+    Pays30K.Again, militia doesn't like you smuggling.
+    This time the bee has finally broken through.
+    Balled up and placed under the top lip
     
-    It'll behelpful, believe me.BACKGROUND
-    Decision time, although it's kind of minor
-      You have three opportunities to stare disaster in the face before you are claimed by the sands
-    ..14.25 INFORMANT 2You guessed right, the "employer" was Monte's "informant", and heis actually a high-level Retro priest.
+    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
+    But this one isa deucy.Objective
+    * One - This is one Yogi that won't steal your picnic.
+    Once per scene, a nearby ally gains +D10 security
     
-    Lynn Murphy is at Edom, in New Constantinople System.NOTE: Goodin, who's Admiral Terrell's attache, is at Perry NavalBase.NOTE: Tayla is at Oakham, Pentonville system...14.6 LYNN MURPHY 1Go to 44-P-1M and patrol the nav points.
-    re-arm your weapon, and walk into the warehouse F
-    Many  of the treasure chests in this weird place
-    Go back to the doorway where you killed the two guards F
+    You will get 2friendly Talons as wingmen.
+    - The drone will accelerate away from you, then turn back at youto shoot you, go PAST you, then turn back to repeat.--To beat it, you have to hit it while it's heading away, thendodge its shots as it heads back past you, and hit it again whileit's heading away.
+    * One - This is one Yogi that won't steal your picnic.
+    You should have enough shields toignore their fire.
     
-    pressing the button and up. THE STATUE 1.
-    His community saw that he was quite slow
+    and where you’re from
+      THE UPSEARCHING  Strange fruits and herbs grow from the sands
