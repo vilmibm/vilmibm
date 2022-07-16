@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jul 15 16:48:01 EDT 2022
+## Sat Jul 16 16:48:01 EDT 2022
 
-    Click on the Gold Story Scroll to go through.
-    Pays30K.Again, militia doesn't like you smuggling.
-    This time the bee has finally broken through.
-    Balled up and placed under the top lip
+    Bend down to catch the ball.
+    His cousin needs to "get out of town","away from the heat"
+    I knew my mum was wrong when she said greens were good forme.
+    Of course, you use up yourmissiles twice as fast.*
     
-    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
-    But this one isa deucy.Objective
-    * One - This is one Yogi that won't steal your picnic.
-    Once per scene, a nearby ally gains +D10 security
+    or see something truly remarkable
+    This is just the piano again, except it's faster and harder. THE FISH TANK 1.
+    Note, you can only give the same animaltwice.
+    Throwing the skull of Mondain into the Abyss -5
     
-    You will get 2friendly Talons as wingmen.
-    - The drone will accelerate away from you, then turn back at youto shoot you, go PAST you, then turn back to repeat.--To beat it, you have to hit it while it's heading away, thendodge its shots as it heads back past you, and hit it again whileit's heading away.
-    * One - This is one Yogi that won't steal your picnic.
-    You should have enough shields toignore their fire.
+    In case you've never had to deal with this kind of logic
+    Hit the first and 		third switches
+    Jhelom
+    He isn't a great shot
     
-    and where you’re from
-      THE UPSEARCHING  Strange fruits and herbs grow from the sands
+    ITTS.
+    in the poorhouse
