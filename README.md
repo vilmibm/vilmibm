@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jul 17 16:48:01 EDT 2022
+## Mon Jul 18 16:48:01 EDT 2022
 
-    Usually you see them around Perry Naval Base.5.5.2 KamekhKamekh is Kilrathi corvette, equivalent of Confed Paradigm, andhas very good armor and shields.
-    Install a tractor beam, then shoot amerchant until he ejects his cargo or until he blows up
-    check out the plane L
-    On the fifth pass, you will see a blue target on the carrier
+    You'll find Jones and his escort.[If you still don't get it, look below]Take out all the Salthi (yes, Salthi) escorts piloted by Retros.There would be more than 10.
+    probably 3+3 Talons.
+    * Two - Just Where Was This Freak Wave?
+    b'Weird Dreams Solve THE COTTON CANDY MACHINE 1.
     
-    all allies who can see you are +D8 extent
-    He has your Steltek gun.
-    ..When you return, visit the Admiral in his office at Perry NavalBase.14.24 TERRELL 1 OR TERRELL 2 (DEPENDING ON HOW YOU COUNT)Admiral Terrell needs privateers to search the various systemsfor signs of Modecai Jones.
-    It's kind of loud in here
+    The manual does a good job of introducing it
+    jutting out of the shifting sands
+    Feel free to shoot him while he talks.
+     The same applies to you with regards to your opponent
     
-    so follow Gia F, F to the guns
-    key to jump. THE GRANDFATHER CLOCK 1.
-    no matter how much you give, they'll never stop begging,meditating at the 8 Shrines of Virtue.Note: using "Q" won't actually quit the game.
-    WAIT for the bee to pick up the cotton candy BEFORE you go to the left. 2.
+    If anything goes near thetemple, a Heal Increase will be cast on them.
+    Enter the elevator R
+    You will probably need a fully-decked Centurion to do theplot missions.12.1 SANDOVAL 1Objective: Take iron from ND to Liverpool (Refinery system,Newcastle system), 15000 credits promised.
+    Easy, huh?Well, you now control all three needed villages, and your Creature should befree.
     
-    Ctrl + [number]at his Temple and at your worship site.
-    The goddesses are deep beneath the sand
+    To get through the whirling blades
+    (FM IA) Rune: In Britain's Inn at the End of the Hall (search) Mantra: MU Stone: Yellow, in DespiseHonor: (MP FB) Rune: In Trinsic SW corner by a Mage (search) Mantra: SUMM Stone: Purple, in ShameSpirituality: (enter the Minoc moongate at 2 full moons, BD KG) Rune: Lord British's treasure room Mantra: OM Stone: White, on Serpent's Spine (balloon)Justice: (AL EJ) Rune: In cell in Yew Mantra: BEH Stone: Green, in WrongValor: (OF CE) Rune: In the secret passage around the city (SE tower) Mantra: RA Stone: Red, in DestardSacrifice: (CN MN) Rune: In the forge in Minoc Mantra: CAH Stone: Orange, in CovetousHumility: (NI OH) -- Need the Silver Horn first Rune: In the mountains in Paws (SE) Mantra: LUM Stone: Black, double New Moon Moongate (Moonglow)Honesty: (EC OJ) Rune: In Moonglow around Mariah's treasures (don't take those either) Mantra: AHM Stone: Blue, Deceit+=============================================================================+| viii.
