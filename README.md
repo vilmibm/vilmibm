@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Jul 18 16:48:01 EDT 2022
+## Tue Jul 19 16:48:01 EDT 2022
 
-    You'll find Jones and his escort.[If you still don't get it, look below]Take out all the Salthi (yes, Salthi) escorts piloted by Retros.There would be more than 10.
-    probably 3+3 Talons.
-    * Two - Just Where Was This Freak Wave?
-    b'Weird Dreams Solve THE COTTON CANDY MACHINE 1.
+    Or youmay wish to keep the wolves for now, for use in a later Silver Scroll.If you've converted that village, or you simply cannot be bothered, move ontoLethys' villages.
+    GRAFFITI Enter the elevator and walk to the panel F
+    and enter the vents F
+    He was last seen on Palan.So to Palan you go
     
-    The manual does a good job of introducing it
-    jutting out of the shifting sands
-    Feel free to shoot him while he talks.
-     The same applies to you with regards to your opponent
+    when you upgrade to afterburners.5.5 CAPITAL SHIPS5.5.1 ParadigmParadigm is a Confed corvette that can dish out quite a bit offirepower.
+    He has a small area of influence around his person, so you can throw him into villages to get a quick burst of control within the village.Its hard, but its possible. =============================================================================9
+    Rinse and repeatfor the other drowning villagers.
+    continue running R,F and enter the next room R
     
-    If anything goes near thetemple, a Heal Increase will be cast on them.
-    Enter the elevator R
-    You will probably need a fully-decked Centurion to do theplot missions.12.1 SANDOVAL 1Objective: Take iron from ND to Liverpool (Refinery system,Newcastle system), 15000 credits promised.
-    Easy, huh?Well, you now control all three needed villages, and your Creature should befree.
+    I T E M S I N T H E E N V I R O N M E N T  =============================================================================TREES - The basic resource in the game, fundamental in building and repairing structures; simply place the tree in the Village Store, and it will beconverted into wood.
+    Grab a fish above.
+    The actual size depends onthe particular craft being fitted.4.6.9 Quadrant mapsMaps of all quadrants, you can buy these separately, or get allfour for a bundle discount.4.6.10 TurretNeeded for tractor beam and rear guns.Some ships may allow more than one turret
+      QUILL, goddess of precision
     
-    To get through the whirling blades
-    (FM IA) Rune: In Britain's Inn at the End of the Hall (search) Mantra: MU Stone: Yellow, in DespiseHonor: (MP FB) Rune: In Trinsic SW corner by a Mage (search) Mantra: SUMM Stone: Purple, in ShameSpirituality: (enter the Minoc moongate at 2 full moons, BD KG) Rune: Lord British's treasure room Mantra: OM Stone: White, on Serpent's Spine (balloon)Justice: (AL EJ) Rune: In cell in Yew Mantra: BEH Stone: Green, in WrongValor: (OF CE) Rune: In the secret passage around the city (SE tower) Mantra: RA Stone: Red, in DestardSacrifice: (CN MN) Rune: In the forge in Minoc Mantra: CAH Stone: Orange, in CovetousHumility: (NI OH) -- Need the Silver Horn first Rune: In the mountains in Paws (SE) Mantra: LUM Stone: Black, double New Moon Moongate (Moonglow)Honesty: (EC OJ) Rune: In Moonglow around Mariah's treasures (don't take those either) Mantra: AHM Stone: Blue, Deceit+=============================================================================+| viii.
+    Pays30K.Again, militia doesn't like you smuggling.
+    any of them may be treated as though they were any type you have available - even untyped
