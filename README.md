@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul 21 16:48:01 EDT 2022
+## Fri Jul 22 16:48:01 EDT 2022
 
-    Credit will be given.ARTIFACTS
-    Sometimes,you may get NOTHING.Think of this as the classified ads
-    *-*BACKGROUND
-    so walk to the door, go through it F
+    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
+     Advances: Stalwart
+    travelling on sand-skimmers and light gliders
+    and given that street name as his geographical tag
     
-    When you’re safe again
-        YOUR PATHS  You choose one path for your character
-    Run down the hall L,F to the next big door
-     The same applies to you with regards to your opponent
+    Focus him on the land,and he will walk over to the beach and should drop the person.
+    Use some of the tactics I've described above togain his village, if you wish, and once his village is yours, you can sparehim, or defeat him.
+    Just do the usualtactics, depending on how you play the game, and soon the Village will beyours.
+    As such, performance is a huge part of life on the Golden Sea
     
-    Or want animals.You know the drill.
-    Curiously smooth, irregularly-shaped glass
-    You canjust blow past them.14.8 LYNN MURPHY 3Retros have blockaded New Detroit.
-    Humility, BlackYou will now be at the final destination in your quest.
+    > ZAPPED Well, maybe kissing Gia wasn't such a good idea after all
+    and you will see the inside of it
+    Merged with the Cyberia weapon
+    PUZZLE LEVELS 1,2,3: The code is 2
     
-    take the right path R
-    You can find thisStory Scroll on the actual beach of the bay, after you recieve your Creature.GOOD SOLUTION
+    If you want firepower, this is the ship you want.
+    Problem solved.No more moaning villagers.*-* ULTIMATE POWER *-* Warning
