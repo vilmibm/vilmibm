@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jul 23 16:48:01 EDT 2022
+## Sun Jul 24 16:48:01 EDT 2022
 
-    While theConfeds can't hurt the drone, the Confeds can hurt you!
-    but the SELECT button changes the game's brightness gamma adjust
-    You land on Basra instead, and found LynnMurphy in the bar.
-    It seems the hippy wants you to go and find the rest of the singingstones, and arrange them so they will play a scale automatically.
+    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
+    using AND, OR, and NOT gates
+    Skara Brae (IA BG)
+    8.2 ESCORT MISSIONMeet a ship jumping in from one nav point, escort it to anothernav point (probably base)Some of these ships (usually Drayman) can be quite fragile... Becareful!You can only get escort missions from fixers.
     
-    pro?
-    and the noise will kill you if you take too much time
-    0 March 12, 1996 			 Written by CJayC cjayc@flex
-    Escort this final Drayman back to Oxford.
+    They WILL kamikaze ifthey think they can kill you doing it.
+    She'll meet you there.Just random enemies.14.15 TAYLA 2Run Brilliance from Tuck's in Sherwood to Saratov in Prasepe.Pays 20K.You thought this is simple because you got that hiddencompartment, right?
+    you want to cut the connection to the detonator far right
+    *-*BACKGROUND
     
-    Non-evil creatures are: spiders, insects, rats, bats, snakes and seahorses.+=============================================================================+| vi.
-    b'Weird Dreams Solve THE COTTON CANDY MACHINE 1.
-    But I don't think this works all the time.Hope these tidbits help.
-    Torch the place, including him.
+    Inside is aderelict fighter, which seem to have a weapon you can remove
+    Now it's time to do some SERIOUS back-tracking
+    Timing is important in catching the ball.
+    Eventually you will reach a huge walking thing with big feet.
     
-    See [4] forrecommended loadout for your ship.
-      THUNDERGLASS - Found where lightning strikes sand
+    Remember, NOTHING OUTSIDE THE SYSTEM!Look for multiple missions you can do in one trip once you can doscout or patrol missions.Keep upgrading your ship.
+    Fixermissions are always plot missions.
