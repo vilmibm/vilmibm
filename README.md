@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Jul 26 16:48:01 EDT 2022
+## Wed Jul 27 16:48:01 EDT 2022
 
-    Prevent reinforcements from reaching the blockade.You'll be paid 15000 credits.When you get to Palan's nav 1, you'll find 4+3+3 Demons aces?
-    to throw it back.
-    the detonators will explode in six seconds
-    Swat the brain cells with the fish when the eye is open.
+    He knows where the Retrosecret base is
+    or see something truly remarkable
+    You'll find Jones and his escort.[If you still don't get it, look below]Take out all the Salthi (yes, Salthi) escorts piloted by Retros.There would be more than 10.
+    will join him in attack.
     
-    Do the quest, then kill the hippy.Whatever floats your boat.
-    Get ready, THEN enter the first door on your right
-    Walk back to the junction from the box
-    Formal dealings are generally carried out under your rank
+      BANQUET WORM - Crimson grubs
+    Your ultimate objective is to reach the Elite rating.Privateer took most of the flexibility, put a Wing Commander spinon the whole thing, reduced it in size somewhat, updated it withan improved WC2 graphics engine and the infamous Origin talkingheads, a plot, and came up with one of the modern PC gamingclassics.1.2 ABOUT THIS GAME.You are a private pilot with a small scoutship
+    hovercraft, and fighters black dots on your radar
+    You are able to move out ofyour Influence for short periods of time, if something is just beyond yourreach.
     
-    ..fish.
-    Seven of them, so be ready
-    your name might refer to a street
-    and enter the vents F
+    When you focus your mind to the works of the divine
+    There's nothing else to it.14.21 MONTE 3Monte explained that Modecai Jones is at a secret base somewhere,and somehow they learned that Monte's looking for them.
+    and then exit L,F,F,F from the terminal
+    so wait to make your move L
     
-    it will start to shake and be very hard to control
-    It has adecent rear turret.Only Kilrathi fly Gothri.5.4 MULTIPURPOSE5.4.1 TarsusTarsus is usually classified as a scout, but it has some amountof cargo room that allows it to act as a small transport in low-threat areas.5.4.2 OrionOrion's claim to fame is its heavy shields
+    You can either follow himnow, or get the final Lethys' village, and finalise any business you have inthis land.
+    When you meet a strange culture for the first time
