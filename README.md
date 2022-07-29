@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Jul 28 16:48:01 EDT 2022
+## Fri Jul 29 16:48:01 EDT 2022
 
-    And frankly, he's a jerk  trying to "destroy the living" or what not, so he probably deserves the bad  treatment.
-    Enter that one by pushing up. THE PIANO 1.
-    Remember, NOTHING OUTSIDE THE SYSTEM!Look for multiple missions you can do in one trip once you can doscout or patrol missions.Keep upgrading your ship.
-    but the SELECT button changes the game's brightness gamma adjust
+    so be sure and save some ammo for them
+    Cyberia FAQ for the Sony Playstation 			 Version 1
+    Walker Titles: of the Horizon
+    X and run to the elevator control F
     
-    His community saw that he was quite slow
-    third, fourth, eighth
-    30,000MK III: Target Lock.
-    Many  of the treasure chests in this weird place
+    Walker Titles: of the Horizon
+    Once per scene, your precision is equal to your extent
+      Your adult name is chosen to reflect your time as a child
+    When hegets the message, he gets mad and wants to shoot you.
     
-    land on Basra, get 5000 credits.When you get near Basra, the Kilrathi shows up!
-    a trade cartel that offers protection and law enforcement to the far-apart towns
-    8.5 DEFEND BASETake out the attackers, simple enough, right?You can get base defense missions through Mercenaries' Guild andMission Computer.
-    Thank you, and goodnight.*
+    A young, NastyMan.
+    a thousand strange confluences
+    F,F , and head back L
+    D to duck, L and R to aim
     
-    You'll come to a back door
-    They wantMonkhouse somehow
+    Join Mercenaries Guild to get moreassignments.
+    You can only find there-generating kind, and you can only make the packing kind. =============================================================================11 F R E Q U E N T L Y A S K E D Q U E S T I O N S =============================================================================Whats Belief?
