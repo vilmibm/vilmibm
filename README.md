@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Jul 29 16:48:01 EDT 2022
+## Sat Jul 30 16:48:01 EDT 2022
 
-    so be sure and save some ammo for them
-    Cyberia FAQ for the Sony Playstation 			 Version 1
-    Walker Titles: of the Horizon
-    X and run to the elevator control F
+    ..Objective: Land at Romulus (mining base, Castor system).
+      Sample names:  Known as Hungry-Girl in her youth
+    Sure, its to show his belief in you
+    Retros and Pirates in the Troy systemusually come at you head-on, making perfect targets for yourtorpedoes.When you get those upgrades, you can think about accepting scoutand patrol missions
     
-    Walker Titles: of the Horizon
-    Once per scene, your precision is equal to your extent
-      Your adult name is chosen to reflect your time as a child
-    When hegets the message, he gets mad and wants to shoot you.
+    Notall ships can use all levels.
+    Kline knows the mantra: SUMM (in the tavern)e.
+    Escort Hunter Toth (Drayman) to Oxford.
+    They primarily appear in Fariss andHumboldt quadrants.Pirates hate Confed, Militia, and Bounty Hunters see factions
     
-    A young, NastyMan.
-    a thousand strange confluences
-    F,F , and head back L
-    D to duck, L and R to aim
+    all allies who can see you are +D8 extent
+    You now control the village.
+    F , and listen to the conversation
+    ..what are you waiting for?
     
-    Join Mercenaries Guild to get moreassignments.
-    You can only find there-generating kind, and you can only make the packing kind. =============================================================================11 F R E Q U E N T L Y A S K E D Q U E S T I O N S =============================================================================Whats Belief?
+    Usually you see them around Perry Naval Base.5.5.2 KamekhKamekh is Kilrathi corvette, equivalent of Confed Paradigm, andhas very good armor and shields.
+    Select one of the three antidotes
