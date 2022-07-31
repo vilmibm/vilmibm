@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Jul 30 16:48:01 EDT 2022
+## Sun Jul 31 16:48:01 EDT 2022
 
-    ..Objective: Land at Romulus (mining base, Castor system).
-      Sample names:  Known as Hungry-Girl in her youth
-    Sure, its to show his belief in you
-    Retros and Pirates in the Troy systemusually come at you head-on, making perfect targets for yourtorpedoes.When you get those upgrades, you can think about accepting scoutand patrol missions
+    Then return.
+    down down 	L2: Changes to flightsim cursor mode up down
+    BIG KISS Okay, a real decision here
+    The temple is in 4 parts, and youcan only hold one part at a time.
     
-    Notall ships can use all levels.
-    Kline knows the mantra: SUMM (in the tavern)e.
-    Escort Hunter Toth (Drayman) to Oxford.
-    They primarily appear in Fariss andHumboldt quadrants.Pirates hate Confed, Militia, and Bounty Hunters see factions
+    Or want animals.You know the drill.
+    She communicates in the migration of birds
+    and often opted out when group tasks came up
+    Enter the contaminated zone F
     
-    all allies who can see you are +D8 extent
-    You now control the village.
-    F , and listen to the conversation
-    ..what are you waiting for?
+    >>Cyberia Complex Level 2<< RED LIGHT Red light
+    don't forget about these buttons
+    Start training him once you have foughtGuide.
+    You have to combine the scaffoldsso they become Village Centre-applicable.
     
-    Usually you see them around Perry Naval Base.5.5.2 KamekhKamekh is Kilrathi corvette, equivalent of Confed Paradigm, andhas very good armor and shields.
-    Select one of the three antidotes
+    You'll be paid 10000 credits.Go to Palan's nav 1 and you'll find 3 Demons followed by 4Centurions
+    Expect to see arival gang, Salman Kroiz.When you reach Rikel's jump point, you'll encounter Kroiz ?
