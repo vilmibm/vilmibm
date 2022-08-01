@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Jul 31 16:48:01 EDT 2022
+## Mon Aug  1 16:48:01 EDT 2022
 
-    Then return.
-    down down 	L2: Changes to flightsim cursor mode up down
-    BIG KISS Okay, a real decision here
-    The temple is in 4 parts, and youcan only hold one part at a time.
+    Just patrolt he points.14.7 LYNN MURPHY 2Run the blockade to Liverpool at New Castle.
+    .. And youneed to access the library.
+    so it's probably best just to skip it
+    When you talk to someone else on glimmer
     
-    Or want animals.You know the drill.
-    She communicates in the migration of birds
-    and often opted out when group tasks came up
-    Enter the contaminated zone F
+    ..
+    the smoke-stains on ceilings
+    * Two - Who's Up For Cheating The Big Bad Witch?
+    and can be ingested by humans
     
-    >>Cyberia Complex Level 2<< RED LIGHT Red light
-    don't forget about these buttons
-    Start training him once you have foughtGuide.
-    You have to combine the scaffoldsso they become Village Centre-applicable.
+    to throw it back.
+      Agent  When you act in service of The Crown
+    and the game does kind of suck you in over time
+    Your low-level scannercan't even tell friend from foe yet.
     
-    You'll be paid 10000 credits.Go to Palan's nav 1 and you'll find 3 Demons followed by 4Centurions
-    Expect to see arival gang, Salman Kroiz.When you reach Rikel's jump point, you'll encounter Kroiz ?
+    Retros and Pirates in the Troy systemusually come at you head-on, making perfect targets for yourtorpedoes.When you get those upgrades, you can think about accepting scoutand patrol missions
+    ---------In the middle village, there lives a man.
