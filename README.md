@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Aug  1 16:48:01 EDT 2022
+## Tue Aug  2 16:48:01 EDT 2022
 
-    Just patrolt he points.14.7 LYNN MURPHY 2Run the blockade to Liverpool at New Castle.
-    .. And youneed to access the library.
-    so it's probably best just to skip it
-    When you talk to someone else on glimmer
+    What does this mean, exactly?
+    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
+    Get ready, THEN enter the first door on your right
+    These rooms are located at the bottom of dungeons.
     
-    ..
-    the smoke-stains on ceilings
-    * Two - Who's Up For Cheating The Big Bad Witch?
-    and can be ingested by humans
+    contraband.6.5 REFINERY BASETakes all those ores and such, makes them into finished products,like plastics, home appliances, construction equipment, and soon.Buys ores, wood,
+    It's a renter in my book this FAQ has been written from a rental weekend
+      There are many more to find
+    Back in another hallway
     
-    to throw it back.
-      Agent  When you act in service of The Crown
-    and the game does kind of suck you in over time
-    Your low-level scannercan't even tell friend from foe yet.
+    Thisenergy is used to create Miracles, and to hold up existing Miracles.
+    Go visit him and bring the Creature once again.
+    F,F,F , and step forward F
+    you're a sitting duck until they recharge again
     
-    Retros and Pirates in the Troy systemusually come at you head-on, making perfect targets for yourtorpedoes.When you get those upgrades, you can think about accepting scoutand patrol missions
-    ---------In the middle village, there lives a man.
+      When an adversary causes effect to you
+    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
