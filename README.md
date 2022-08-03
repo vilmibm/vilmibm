@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Aug  2 16:48:01 EDT 2022
+## Wed Aug  3 16:48:01 EDT 2022
 
-    What does this mean, exactly?
-    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
-    Get ready, THEN enter the first door on your right
-    These rooms are located at the bottom of dungeons.
+    ---------In the middle village, there lives a man.
+    Or CoolThang for short.EVIL SOLUTION
+    You'll get a new set of each.You can get missions from several sources
+    perform an MRI scan to view the elevator pumps
     
-    contraband.6.5 REFINERY BASETakes all those ores and such, makes them into finished products,like plastics, home appliances, construction equipment, and soon.Buys ores, wood,
-    It's a renter in my book this FAQ has been written from a rental weekend
-      There are many more to find
-    Back in another hallway
+    Cannot repairdestroyed items.
+    three active switches
+    Continue down the hall F
+    ------------There are three songs a dude wants you to play some tunes on the stones, so,first of all, play the following.
     
-    Thisenergy is used to create Miracles, and to hold up existing Miracles.
-    Go visit him and bring the Creature once again.
-    F,F,F , and step forward F
-    you're a sitting duck until they recharge again
+    Yes, the button says Hanger
+    Tayla informed you that Sandoval isdead
+    Another one will make your Creature grow faster.
+    the detonators will explode in six seconds
     
-      When an adversary causes effect to you
-    You can also raisethe totem here to tell people to worship at your Worship Site, to give youMana for Miracles.
+    When you are learning about Gestures, you will try to impressthe nearby village into believing in you.
+      When you are in your home territory
