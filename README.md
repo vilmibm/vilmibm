@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Aug  3 16:48:01 EDT 2022
+## Thu Aug  4 16:48:01 EDT 2022
 
-    ---------In the middle village, there lives a man.
-    Or CoolThang for short.EVIL SOLUTION
-    You'll get a new set of each.You can get missions from several sources
-    perform an MRI scan to view the elevator pumps
+    Fire a shot at the sitting man to get his attention R
+    In Out ---------------- -------------- --------- Off Off Off Off Off Off Off On Off On Off Off On On On Off On Off Off On Off On On On On On On On PUZZLE LEVEL 1
+    Puzzle level, well, it's up to you
+    =D
     
-    Cannot repairdestroyed items.
-    three active switches
-    Continue down the hall F
-    ------------There are three songs a dude wants you to play some tunes on the stones, so,first of all, play the following.
+    Go to thebay near your temple, and pick up fish from there.
+    Climb the ladder F,F to get on the Catwalk
+    When you cause great effect on an evildoer
+    People live here.
     
-    Yes, the button says Hanger
-    Tayla informed you that Sandoval isdead
-    Another one will make your Creature grow faster.
-    the detonators will explode in six seconds
+    You aren't going to get paid any way.
+    .. Theycan see THROUGH that compartment now.
+    You'll get 30000credits if you succeed.On your way
+    Repeat this tactic, each time from the new influence, untilyou reach the third village.
     
-    When you are learning about Gestures, you will try to impressthe nearby village into believing in you.
-      When you are in your home territory
+    F , and wait for the guard to notice
+    It is a combination of genres
