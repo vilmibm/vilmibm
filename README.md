@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Aug  5 16:48:01 EDT 2022
+## Sat Aug  6 16:48:01 EDT 2022
 
-    Don't forget to browse through the V-mail for clues an extra set of keys is lying around somewhere
-    If you shoot TWO missiles at the same target, and bothhit, the target is toast.
-    You'll learn that the janitor has been fired
-    Chorister  Titles: the Joyful
+    There are also four "special" bases
+    Enter the room F , and look through the window F
+    Kline knows the mantra: SUMM (in the tavern)e.
+    you don't have to worry about energy
     
-    It is a combination of genres
-      Ranks: Corpus, Hollow
-    Tough, you'restuck here for a little while.
-    Anyway, Artifacts are used to increase influenceand belief.
+    When the message is delivered,return to NC.
+    The FMV shooting scenes aren't that bad
+    Hit him in-between shots R to move out
+    Well
     
-    Once per scene, give a nearby ally +D8 when you advise them as to a course of action
-    In "RighteousFire" you'll get access to better equipment and furtherengine/shield upgrades.4.1 TARSUSTechnically a scout, it has a cargo bay big enough to be used asa small freighter, and maneuverable enough to fight
-    and from the sea by magnetic mines green dots
-    He then attacks you andyou'll probably have to destroy him.Everybody else you encounter will be random.12.20 CROSS 3Taryn Cross want to know what drove Garrovick mad
+    R to move in, X to fire
+    When you talk to someone else on glimmer
+    PUZZLE LEVELS 1,2,3: The code is 2
+    so walk to the door, go through it F
     
-    >>Transfighter Missions<< Time for some action missions
-    However, don't do this on plot missions.
+    You'll get 30000credits if you succeed.On your way
+    Go to the right where the gardens are. THE GARDEN 1.
