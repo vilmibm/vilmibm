@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Aug  6 16:48:01 EDT 2022
+## Sun Aug  7 16:48:01 EDT 2022
 
-    There are also four "special" bases
-    Enter the room F , and look through the window F
-    Kline knows the mantra: SUMM (in the tavern)e.
-    you don't have to worry about energy
+    aceflying a Demon, and 2 more Demons
+    Look for the moon, andfly toward it
+    Fixermissions are always plot missions.
+    Until your next turn
     
-    When the message is delivered,return to NC.
-    The FMV shooting scenes aren't that bad
-    Hit him in-between shots R to move out
-    Well
-    
-    R to move in, X to fire
-    When you talk to someone else on glimmer
+    She communicates in the shine of gold
+    Travel up the mountain with Mr.
     PUZZLE LEVELS 1,2,3: The code is 2
-    so walk to the door, go through it F
+    F into Conference Room 	F
     
-    You'll get 30000credits if you succeed.On your way
-    Go to the right where the gardens are. THE GARDEN 1.
+    If you are playing with a digital control standard Sony pad
+    Get the Creature to throw them back onto the land, at the womanpreferrably.
+    Nav 4 has 3 Gothris, then Kamekhand Gothri.
+    These rooms are located at the bottom of dungeons.
+    
+    PUZZLE LEVEL 2: Okay
+    Run to the left and pick up the bee swatter.
