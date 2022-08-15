@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Aug 14 16:48:01 EDT 2022
+## Mon Aug 15 16:48:01 EDT 2022
 
-    SKEET SHOOT From the turret
-    Enter the elevator room F
-    but you think they would have invested a few dollars in a dictionary
-    ..
+    Pays 20K.Retros are ALL OVER the area, kill them all, and try to keep yourship intact.When you head back, a Pirate ship tell you that his "employer"wants to meet you at Drake, Capello system.
+    Immediately shoot the two standing ones R
+    write down how you claw yourself back from the brink
+    mostly Retros onthe way.When you get to Valhalla, fight your way through, and land at theRetro base called Gaea.
     
-    DOOR MAN Keep walking towards the complex F
-    there will be no damage
-    PUZZLE LEVELS 1,2,3: The code is 2
-    Go to the arrow pointing up.
+      Known as Newt-Boy in his youth on account of his weird eyes
+    And there just aren't many.
+    You move on to nav 1, more random.Keep moving to nav 6, and there is the patrol enemy
+    They're drowning and they need rescued, quickity quick.
     
-    You will also learn that the Green Stone of Justice is in Dungeon Wrong - Some chanting druids (by a fire and with Jaana) are chanting: BEHj.
-    You'll get 30000credits if you succeed.On your way
-    d.
-    and hitting one sends the entire tunnel up in flames
+    This Vortex will stay open until you gothrough.
+    Be careful,however, as attacks on the Temple, even when invunerable, will reflect on yourbelievers' villages.
+    ITTS.
+    Go to the right THE SWAMP 1.
     
-    You need to move to dodge the enemy shots.* If you have enough engine power, your afterburner fuel isvirtually infinite, so use those afterburners!* If you have level 3 shields or higher, consider ramminglight fighters like Talon.* Approach wide/flat ships
-    Ctrl + [number]at his Temple and at your worship site.
+    land on Basra, get 5000 credits.When you get near Basra, the Kilrathi shows up!
+    The Steltek boosted your Steltek gun so youcan take out that drone, and they took the derelict ship.When you got to Blockade Point Tango, you found the Confed fleet,with 2 Paradigms and 2 Broadswords.
