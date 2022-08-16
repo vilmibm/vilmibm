@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Aug 15 16:48:01 EDT 2022
+## Tue Aug 16 16:48:01 EDT 2022
 
-    Pays 20K.Retros are ALL OVER the area, kill them all, and try to keep yourship intact.When you head back, a Pirate ship tell you that his "employer"wants to meet you at Drake, Capello system.
-    Immediately shoot the two standing ones R
-    write down how you claw yourself back from the brink
-    mostly Retros onthe way.When you get to Valhalla, fight your way through, and land at theRetro base called Gaea.
+    Continue down the hall F
+    Climb the ladder F,F to get on the Catwalk
+    You can get scout missions through Mercenaries' Guild and MissionComputer.8.7 PATROLPatrol is basically Scout mission that involves multiple navpoints.
+    Blue Half-Circles My code do they change
     
-      Known as Newt-Boy in his youth on account of his weird eyes
-    And there just aren't many.
-    You move on to nav 1, more random.Keep moving to nav 6, and there is the patrol enemy
-    They're drowning and they need rescued, quickity quick.
+    key!
+    When you focus your mind to the works of the divine
+    or maybe a damning indictment of your shortcomings
+    Empath Abbey (DC BM)
     
-    This Vortex will stay open until you gothrough.
-    Be careful,however, as attacks on the Temple, even when invunerable, will reflect on yourbelievers' villages.
-    ITTS.
-    Go to the right THE SWAMP 1.
+    Click on the Gold Story Scroll to go through.
+    Nothing can be damaged here.
+    This time the bee has finally broken through.
+    Hit the first and 		third switches
     
-    land on Basra, get 5000 credits.When you get near Basra, the Kilrathi shows up!
-    The Steltek boosted your Steltek gun so youcan take out that drone, and they took the derelict ship.When you got to Blockade Point Tango, you found the Confed fleet,with 2 Paradigms and 2 Broadswords.
+    If the gun is damaged
+    How dare she ask you to, like, do,like, stuff!
