@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Aug 18 16:48:01 EDT 2022
+## Fri Aug 19 16:48:01 EDT 2022
 
-    Head for NC and lookup Roman Lynch, who's a "made man" in the mob.12.6 LYNCH 1You arrive in NC, and Roman Lynch, with his bodyguard Miggs, needsome work done.
-    Walkthrough with Passwords >>The Rig<< RIG DOCK Once you have arrived at The Rig
-    Then, well, because you're a goodsort of chap, it'll be nice to fill up their Village Store with food for them.By saving the people from a Black Plague II, you've just earned yourself theability to create Lightning when these villagers worship you.
-    Now that you're virus-free
+    Enemies may or maynot show up, but you'll get paid nonetheless.
+    .. You may get something, orperhaps nothing at all.
+    She communicates in the shine of gold
+    Why take achance?12.10 MASTERSON 1You arrive on Oxford, but Masterson refuses you entry.
     
-    You need a FULLY upgraded Tarsus toeven think about leaving the Troy system.
-    Walk around to the far side of the conference table and check out the boring reading material R
-    If a dice is untyped i
-    Warning, that won'tget you any rewards, besides the satasfaction of evilness.
+    Or CoolThang for short.EVIL SOLUTION
+    There is one non-evil creature that is regularly at one spot that you can fight and let escape.
+    in addition to your core three six-sided dice
+    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
     
-    Seems the only way you can complete this mission in any form is bykilling a child.
-    toward everybody except perhaps Kilrathi and Retrosby hacking Confed and Pirate databases.
-    ..Objective: Land at Romulus (mining base, Castor system).
-    Now it's time to do some SERIOUS back-tracking
+    Being the unfair and irrational guy he is, he will completely wipe outKhazar, and take the Creed piece from Khazar's Creature.
+    Once you're ready to do some killin'
+    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
+    The manual does a good job of introducing it
     
-    ..14.25 INFORMANT 2You guessed right, the "employer" was Monte's "informant", and heis actually a high-level Retro priest.
-    UNDERGROUND - Freight Tunnel This one is rough
+    Also use Pause tomake the whole thing easier.BAD SOLUTION
+    You will probably need a fully-decked Centurion to do theplot missions.12.1 SANDOVAL 1Objective: Take iron from ND to Liverpool (Refinery system,Newcastle system), 15000 credits promised.
