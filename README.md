@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Aug 19 16:48:01 EDT 2022
+## Sat Aug 20 16:48:01 EDT 2022
 
-    Enemies may or maynot show up, but you'll get paid nonetheless.
-    .. You may get something, orperhaps nothing at all.
-    She communicates in the shine of gold
-    Why take achance?12.10 MASTERSON 1You arrive on Oxford, but Masterson refuses you entry.
+    * Seven - And now for a Riddle-Me-Do!
+    Using the skull of Mondain Note
+    -------------------- "Name" - they'll tell you their name "Job" - they'll tell you their job, quest, etc. "Health" - they will tell you their health, if someone isn't well find out why and try to help them!
+    And where do they run?
     
-    Or CoolThang for short.EVIL SOLUTION
-    There is one non-evil creature that is regularly at one spot that you can fight and let escape.
-    in addition to your core three six-sided dice
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
+    Quickly shoot him before he throws it R
+    If you join ES, and let Monkhouse publishanything you find, Monkhouse will give you his piece and thetranslated map.12.18 CROSS 1You got to Rygannon, and you found Taryn Cross of ExploratoryServices.
+    Exit the room back to the main hallway R
+    =*
     
-    Being the unfair and irrational guy he is, he will completely wipe outKhazar, and take the Creed piece from Khazar's Creature.
-    Once you're ready to do some killin'
-    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
-    The manual does a good job of introducing it
+    .Expect to see Confed patrols all over the place, no matter whichroute you take.
+    F,F,F,F , and walk to the next room F
+    You can find Horses all over the island
+    The Demons areafter you, not the Drayman, so you can be thankful.12.13 MASTERSON 4Now comes the series finale
     
-    Also use Pause tomake the whole thing easier.BAD SOLUTION
-    You will probably need a fully-decked Centurion to do theplot missions.12.1 SANDOVAL 1Objective: Take iron from ND to Liverpool (Refinery system,Newcastle system), 15000 credits promised.
+    When you're there, jump.
+    You don'tnessessarily have to cast it into the Village Store, just make sure thereare lots of people near where you cast it.
