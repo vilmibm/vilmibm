@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Aug 20 16:48:01 EDT 2022
+## Sun Aug 21 16:48:01 EDT 2022
 
-    * Seven - And now for a Riddle-Me-Do!
-    Using the skull of Mondain Note
-    -------------------- "Name" - they'll tell you their name "Job" - they'll tell you their job, quest, etc. "Health" - they will tell you their health, if someone isn't well find out why and try to help them!
-    And where do they run?
+    shifting tattoos, exotic diseases
+    .Expect to see many Militia Talons in the Troy system and randomConfed/Militia patrols that will want your head for smuggling.The eject/retrieve trick won't work here.
+    Or feed them all to the Sheep Creature yougain.Behind the second (Aztec) village, near the coast, is a small hut in front ofa ring of marks in the ground.
+    He will go upthe mountain, and tell you to come too.
     
-    Quickly shoot him before he throws it R
-    If you join ES, and let Monkhouse publishanything you find, Monkhouse will give you his piece and thetranslated map.12.18 CROSS 1You got to Rygannon, and you found Taryn Cross of ExploratoryServices.
-    Exit the room back to the main hallway R
-    =*
+    The Miracles these people will give you by worshippingare also shown at the Village Centre.VILLAGE STORE
+    this woman is a Defender first and a Pilgrim second
+    all allies who can see you are +D8 extent
+      When you are in your home territory
     
-    .Expect to see Confed patrols all over the place, no matter whichroute you take.
-    F,F,F,F , and walk to the next room F
-    You can find Horses all over the island
-    The Demons areafter you, not the Drayman, so you can be thankful.12.13 MASTERSON 4Now comes the series finale
+    Now its yours to convert.
+    L,F,F , and push the crate out of the way R
+    Minoc
+    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
     
-    When you're there, jump.
-    You don'tnessessarily have to cast it into the Village Store, just make sure thereare lots of people near where you cast it.
+    Its in the mountain on a cliff.4) In the quarry where you found the stone that the sculptor could use to makea new Gate Stone.5) Next to the graveyard in the first village.For bringing the stones back and arranging them in scale order
+    Timing is important in catching the ball.
