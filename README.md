@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Aug 21 16:48:01 EDT 2022
+## Mon Aug 22 16:48:01 EDT 2022
 
-    shifting tattoos, exotic diseases
-    .Expect to see many Militia Talons in the Troy system and randomConfed/Militia patrols that will want your head for smuggling.The eject/retrieve trick won't work here.
-    Or feed them all to the Sheep Creature yougain.Behind the second (Aztec) village, near the coast, is a small hut in front ofa ring of marks in the ground.
-    He will go upthe mountain, and tell you to come too.
+    *-*BACKGROUND
+    Nothing else will go inthere.12.5 TAYLA 4Objective
+    Your Creature will be harmed in the process, and GodConscience will inform you that he needs to be healed.
+    Extremely large shield and enginepossible, but not that maneuverable, and only one missilelauncher possible makes it not that effective in heavy combat.Max engine
     
-    The Miracles these people will give you by worshippingare also shown at the Village Centre.VILLAGE STORE
-    this woman is a Defender first and a Pilgrim second
-    all allies who can see you are +D8 extent
-      When you are in your home territory
+    it is not attached to any way then you may allot it anywhere - otherwise
+    The more people who see it
+    Another crosshair arcade sequence-just kill ALL the creatures
+    Handy,but not totally nessesary.*-* THE CRAZY MAN *-*As well as the previously mentioned influence tactics, you can use an immortalman, who lives just by the Yogi's mountain, in a U-Shaped Valley.
     
-    Now its yours to convert.
-    L,F,F , and push the crate out of the way R
-    Minoc
-    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
+    He knows where the Retrosecret base is
+    ..Head to Troy, and explore the nearby nav points.
+    You caneven mine asteroids with a mining laser.
+    From
     
-    Its in the mountain on a cliff.4) In the quarry where you found the stone that the sculptor could use to makea new Gate Stone.5) Next to the graveyard in the first village.For bringing the stones back and arranging them in scale order
-    Timing is important in catching the ball.
+    <<Elevator Puzzle>> This one's tricky- first
+    you can enter two different passwords to get the Sony developer's credits
