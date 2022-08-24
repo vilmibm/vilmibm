@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Aug 23 16:48:01 EDT 2022
+## Wed Aug 24 16:48:01 EDT 2022
 
-      GLIMMER - A shimmering crystal dust that collects in the corners of temples to Demos
-    This is something that would be great to see in a horror movie. THE WOMAN WITH A BALL Note
-    Your Mana will soon hit a million.
-    Price
+    but using the IR scan triggers an explosive
+    Take them out
+    >>Cyberia Complex Level 1<< COLD FEET Once you're out of the plane
+    <<Grenade Puzzle>> Quickly enter the code to seal the elevator
     
-    Then follow thejump to the next system
-    There are three mirrors that you can enter right now.
-    Thesecret base is in Valhalla system.
-    fourth, 		fifth, and sixth switches
-    
-    -----------What have I taught you bad dudes?
+     Advances: Shipwright
+    These Upsearching are tokens of the goddesses
     Keep hitting the walking dicks and going right. This part of the game is extremely difficult and requires the most amount of timing.
-    * One - This is one Yogi that won't steal your picnic.
-    far from the Maiden’s Hand
+    You'llsee at least 3 at every navpoint, except the last, which has NINEships
     
-    F , and to the left-hand door R
-    Worshipping will give you mana,which can be spent on Miracles.
+     The Small Gods grant a general blessing
+    When you focus on appearing like a different person
+    Once per game, +D10 when you involve an NPC
+    a temple, an estate, a building or a whole city
+    
+      When an adversary causes effect to you
+    ---------In the middle village, there lives a man.
