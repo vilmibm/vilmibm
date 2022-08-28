@@ -9,22 +9,21 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Aug 27 16:48:01 EDT 2022
+## Sun Aug 28 16:48:01 EDT 2022
 
-    Inside, you'll locate a scanner, and then you'll get alink to Dr. Monkhouse.
-    so wait until he fires a stray shot and blast him R to move out
-      You have chosen to honour a deity with your life in exchange for blessings
-    The more belief you have, the bigger yourArea of Influence.Whats Influence?
+    You can either follow himnow, or get the final Lethys' village, and finalise any business you have inthis land.
+    regenerate shields 25 0.000000asterThruster Enhancer: improved turn rate by about 20    You would seethem more in the quieter quadrants, like Potter and Humboldt, butthey do show up everywhere.Merchants hate any one who shoot them
+    The first time you have access to a store of knowledge
     
-    or see something truly remarkable
-    Climb the ladder F,F to get on the Catwalk
-    Once you're through the blades
-    MEET GIA The lovely Gia will tell you to turn around nice and slowly L and you will disarm your weapon
+    Take Brilliance (contraband!)
+    Either way, you'll soon move onto Land 4, well done!
+    You'll learn that the janitor has been fired
+    Refire
     
-    One final arcade sequence--this time it's in space
-    Decision time, although it's kind of minor
-    any of them may be treated as though they were any type you have available - even untyped
-    Next scene, your security is D4
+      You joined a trade caravan under the Crown
+    Takeout their base ship, the Black Rhombus.
+    It's easy to take out
+    Your low-level scannercan't even tell friend from foe yet.
     
-    ---- -------- ------------1.
-    it is quite slow and make sure it jumps out beforeyou head back to Oxford and land.14.5 MASTERSON 5Transport "artwork" to Perry Naval Base.
+    In case you've never had to deal with this kind of logic
+    +D8 security when you evade conflict
