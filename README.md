@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Sep  3 16:48:01 EDT 2022
+## Sun Sep  4 16:48:01 EDT 2022
 
-    He'll investigate the artifact's hologram whileyou do the jobs for him.Objective
-    The buttons cycle 			through these symbols
-    ..you'll get nothing if everyone dies, though.
-    Not much going on here, apart from the crowding of people withnothing to do, or who are finished their tasks for the day.
+    Unless you want to play pirate.2.5 KILRATHIKilrathi are the sworn enemies of the Confederation
+    Enter that one by pushing up. THE PIANO 1.
+    8.4 BOUNTY HUNTING MISSIONHunt down pirate, Retro, or even a Kilrathi... pays better thanAttack.You can get bounty hunting missions through Mercenaries' Guild,Merchants' Guild, and Mission Computer.
+    This includes, but isn't limited to, using trees.
     
-    If you continue running down the hall
-    WAIT for the bee to pick up the cotton candy BEFORE you go to the left. 2.
-    Listen closely, you can hear the bee trying to break down the mirror. 2.
-    Walk over to the door R
+    the Yin andYang logo above his or her head.
+    The best method is to attack right the long thrust
+    ..Objective: explore the nav points of Gamma, return to RygannonWhen you get there, you found a LOT of Kilrathi.
+    ..NOTE: Sandra Goodin is at Perry Naval Base.NOTE: Tayla is at Oakham, Pentonville system...14.10 GOODIN 1Confed needs you to fly to Nitir (Nitir System) and defend itfrom Kilrathi raiders.
     
-    AtNew Detroit, two waves of Retros.
-    If you want firepower, this is the ship you want.
-    eras ago, this was a country of spires
-    The actual missions are discussed in the nextsection.
+    but you don't have a shield readout either
+    Problem solved.No more moaning villagers.*-* ULTIMATE POWER *-* Warning
+    <Back Door> To go in through the back door
+    MUWHAHAHAHA
     
-    R to move in, X to fire
-    Feel free to shoot him while he talks.
+    You should have enough shields toignore their fire.
+    magic or temptation, +D12 security
