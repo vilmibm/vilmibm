@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Sep  4 16:48:01 EDT 2022
+## Mon Sep  5 16:48:01 EDT 2022
 
-    Unless you want to play pirate.2.5 KILRATHIKilrathi are the sworn enemies of the Confederation
-    Enter that one by pushing up. THE PIANO 1.
-    8.4 BOUNTY HUNTING MISSIONHunt down pirate, Retro, or even a Kilrathi... pays better thanAttack.You can get bounty hunting missions through Mercenaries' Guild,Merchants' Guild, and Mission Computer.
-    This includes, but isn't limited to, using trees.
+    On top of a mountain surrounding the village.
+    Curiously smooth, irregularly-shaped glass
+    it is not attached to any way then you may allot it anywhere - otherwise
+      Ranks: Celebrant, Dervish
     
-    the Yin andYang logo above his or her head.
-    The best method is to attack right the long thrust
-    ..Objective: explore the nav points of Gamma, return to RygannonWhen you get there, you found a LOT of Kilrathi.
-    ..NOTE: Sandra Goodin is at Perry Naval Base.NOTE: Tayla is at Oakham, Pentonville system...14.10 GOODIN 1Confed needs you to fly to Nitir (Nitir System) and defend itfrom Kilrathi raiders.
+    Ctrl + [number]at his Temple and at your worship site.
+    Beware
+    .
+    You will be paid 10000 credits.When you get there, Seelig pro?
     
-    but you don't have a shield readout either
-    Problem solved.No more moaning villagers.*-* ULTIMATE POWER *-* Warning
-    <Back Door> To go in through the back door
-    MUWHAHAHAHA
+    digital joystick , I suggest Arcade level 1 just because it's so difficult to get that cursor where you want it with just eight directions
+    Ithas two turrets, but don't expect them to keep you safe.5.4.4 CenturionCenturion is primarily a fighter, but it can fit SMALL amount ofcargo.
+    Otherwise, press fire or another direction
+    allaces?.
     
-    You should have enough shields toignore their fire.
-    magic or temptation, +D12 security
+    with help from the original PC Cyberia walkthrough author unknown
+    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
