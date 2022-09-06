@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Sep  5 16:48:01 EDT 2022
+## Tue Sep  6 16:48:01 EDT 2022
 
-    On top of a mountain surrounding the village.
-    Curiously smooth, irregularly-shaped glass
-    it is not attached to any way then you may allot it anywhere - otherwise
-      Ranks: Celebrant, Dervish
+    covered in auspicious markings
+    Red Circle Broken Bottom 			2
+    Nemesis will showup and accuse Guide of being a traitor, and then, like, kill the dude for beinga naughty Creature.
+    This oneis quite faraway, so there are three ways you can convert it to your side.1
     
-    Ctrl + [number]at his Temple and at your worship site.
-    Beware
-    .
-    You will be paid 10000 credits.When you get there, Seelig pro?
+    This guy wrotesome nasty things about the Retros, so Retros are out to killhim.
+    so they gave her the name Compass
+    BE JP-------- - Julia, a tinker, will join you here.
+    .. You'll see a Gothri, 2 Dralthi, then 2Gothris at nav 4.You can bypass the Kilrathi if you do NOT take the direct routeto Basra.As you've killed a lot of Bounty Hunters, don't be surprised ifMilitia, Confed, or Bounty Hunters are after your hide.Monkhouse shows you the artifact fits together with the otherpiece he has.
     
-    digital joystick , I suggest Arcade level 1 just because it's so difficult to get that cursor where you want it with just eight directions
-    Ithas two turrets, but don't expect them to keep you safe.5.4.4 CenturionCenturion is primarily a fighter, but it can fit SMALL amount ofcargo.
-    Otherwise, press fire or another direction
-    allaces?.
+    Then follow thejump to the next system
+    Just fire and run, great indogfights.4.5.1.6 Torpedo LauncherNeeded to launch proton torpedoes, holds 10 torpedoes.4.5.1.7 Proton TorpedoLock
+    Thesecret base is in Valhalla system.
+    This time the bee has finally broken through.
     
-    with help from the original PC Cyberia walkthrough author unknown
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
+    b'You really should win this battle.
+    Select one of the three antidotes
