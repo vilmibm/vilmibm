@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Sep  7 16:48:01 EDT 2022
+## Thu Sep  8 16:48:01 EDT 2022
 
-    Celebrant 3: Corpus 4
-    +2D8 but GM determines placing
-    You have to combine the scaffoldsso they become Village Centre-applicable.
-    trading house and bank that has claims to be a statue of each of the three goddesses
+    and hull by the blue diagonal lines
+    This includes, but isn't limited to, using trees.
+      DEMOS, goddess of excess
+    The random pirates will probably consideryou to be friendly, and that's good for you.Only the scripted pirates
     
-    Their initial attitude toward you is hostile (like everybodyelse).You cannot align yourself with the Retros.2.7 PIRATESPirates make their living by trade in contraband goods androbbing Merchants.
-    There is another way out of the dark room
-    Hewants you to sacrifice his child.
-    You'll be using this a hell of a lot
+    On the next creature use one long jab and wait half a second for him to move up a little and then keep using the up and down swing
+    F,F,F,F , back to the dock R
+    Last Quarter Skara Brae Jhelom Yew Minoc8.
+      Ranks: Corpus, Hollow
     
-    Blast everything in sight
-    Inc, distributed by Interplay Productions
-    PIT STOP - Zubrovska Blue targets are friendly
-    you can shoot fast enough if you slow down,then full guns.
+    The goddesses are deep beneath the sand
+    Again, you should afterburner past them, ignoringtheir fire.
+    Tayla will pay you 20000 Credits upon delivery.
+    A city the size of a kingdom that scraped the sky
     
-    ..
-    She wants to throw the ball with you for sure
+    After you are subject to effect in a scene
+    digital joystick , I suggest Arcade level 1 just because it's so difficult to get that cursor where you want it with just eight directions
