@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Sep  8 16:48:01 EDT 2022
+## Fri Sep  9 16:48:01 EDT 2022
 
-    and hull by the blue diagonal lines
-    This includes, but isn't limited to, using trees.
-      DEMOS, goddess of excess
-    The random pirates will probably consideryou to be friendly, and that's good for you.Only the scripted pirates
+    When people are hungry, they will usually come to theVillage Store if there is no food lying about nearby, and if the trees are toofar away when a structure is being built, the Village Store will come to therescue once again.
+    When the people are set onfire, he'll help you, and he'll help you as well when the wolves attack.
+    ------------How dare they??
+    The first time you have access to a store of knowledge
     
-    On the next creature use one long jab and wait half a second for him to move up a little and then keep using the up and down swing
-    F,F,F,F , back to the dock R
-    Last Quarter Skara Brae Jhelom Yew Minoc8.
-      Ranks: Corpus, Hollow
+    Again, tell the group one thing that marks it out
+     Quill grants a blessing to precision
+    .Then just make it over to NC.When you return to Oakham, Tayla said she had no informationherself, but she had found someone who does.
+    Toggle the vibration sensor second from the right
     
-    The goddesses are deep beneath the sand
-    Again, you should afterburner past them, ignoringtheir fire.
-    Tayla will pay you 20000 Credits upon delivery.
-    A city the size of a kingdom that scraped the sky
+    Take out the escorts.
+    Run down the hall L,F to the next big door
+    Pays 10K.The place is full of Gothris.
+    Not a lot, but it's uncensored
     
-    After you are subject to effect in a scene
-    digital joystick , I suggest Arcade level 1 just because it's so difficult to get that cursor where you want it with just eight directions
+    See [4] forrecommended loadout for your ship.
+    Wait 30 seconds and you'll see that it's in your brain
