@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Sep  9 16:48:01 EDT 2022
+## Sat Sep 10 16:48:01 EDT 2022
 
-    When people are hungry, they will usually come to theVillage Store if there is no food lying about nearby, and if the trees are toofar away when a structure is being built, the Village Store will come to therescue once again.
-    When the people are set onfire, he'll help you, and he'll help you as well when the wolves attack.
-    ------------How dare they??
-    The first time you have access to a store of knowledge
+    care to guess who is this informant and what does hedo?Some more of those unknown fighters block your way.
+    and the effects range from drug-like stimulation or euphoria to outright magical oddness
+    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
+    it will start to shake and be very hard to control
     
-    Again, tell the group one thing that marks it out
-     Quill grants a blessing to precision
-    .Then just make it over to NC.When you return to Oakham, Tayla said she had no informationherself, but she had found someone who does.
-    Toggle the vibration sensor second from the right
+    you'll instantly die and have to restart
+    Continue down the hall F
+    Apparently, he's a bit jealous of the attention you'regetting from Tayla, and he wants you out of the way.
+    When you are learning about Gestures, you will try to impressthe nearby village into believing in you.
     
-    Take out the escorts.
-    Run down the hall L,F to the next big door
-    Pays 10K.The place is full of Gothris.
-    Not a lot, but it's uncensored
+    Next scene, your precision is D4
+    Note
+    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
+    or maybe a damning indictment of your shortcomings
     
-    See [4] forrecommended loadout for your ship.
-    Wait 30 seconds and you'll see that it's in your brain
+    Voila
+    Pirates can be found all over, and have theirown systems and bases.
