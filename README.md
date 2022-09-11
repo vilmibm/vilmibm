@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Sep 10 16:48:01 EDT 2022
+## Sun Sep 11 16:48:01 EDT 2022
 
-    care to guess who is this informant and what does hedo?Some more of those unknown fighters block your way.
-    and the effects range from drug-like stimulation or euphoria to outright magical oddness
-    It should be obvious that you should NOT accept mission thatyou cannot get to... for example, if you don't have a jump drive,you should NOT accept missions outside your own system!8.1 DELIVERY MISSIONTransport cargo from one base to another...
-    it will start to shake and be very hard to control
+    shields are shown by the green vertical bar
+    The only thing that has to be on the map is the Maiden’s Hand
+    Your gun ammo is the horizontal red bar
+    Like the boat, if you fail to destroy it
     
-    you'll instantly die and have to restart
-    Continue down the hall F
-    Apparently, he's a bit jealous of the attention you'regetting from Tayla, and he wants you out of the way.
-    When you are learning about Gestures, you will try to impressthe nearby village into believing in you.
+    You now control the village.
+    you want to return to the dark room just past the loud room
+    F,F,F,F , step away, and head towards the next room F
+    After the conversation
     
-    Next scene, your precision is D4
-    Note
-    Constantly take out the Food One-Shots it produces,ready to be put in the vortex for the next land.
-    or maybe a damning indictment of your shortcomings
+    Once its fully infused, yoursymbol will appear above it.
+    If you have only one character in the party you don't have to worry too much about poision.
+    Talk to the Seer to find out when you have mastered a certain virtue
+    Credit will be given.ARTIFACTS
     
-    Voila
-    Pirates can be found all over, and have theirown systems and bases.
+    ..Head to Troy, and explore the nearby nav points.
+    Revenge is sweet! 4.
