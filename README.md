@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Sep 11 16:48:01 EDT 2022
+## Mon Sep 12 16:48:01 EDT 2022
 
-    shields are shown by the green vertical bar
-    The only thing that has to be on the map is the Maiden’s Hand
-    Your gun ammo is the horizontal red bar
-    Like the boat, if you fail to destroy it
+    At nav 5, you found your target, takehim out.
+    Otherwise, press fire or another direction
+    SHOT MIRACLES - Tap them.
     
-    You now control the village.
-    you want to return to the dark room just past the loud room
-    F,F,F,F , step away, and head towards the next room F
-    After the conversation
     
-    Once its fully infused, yoursymbol will appear above it.
-    If you have only one character in the party you don't have to worry too much about poision.
-    Talk to the Seer to find out when you have mastered a certain virtue
-    Credit will be given.ARTIFACTS
+    Once its run outof power, a red X will appear over it, and you cannot use your Hand outside of Influence until you return it to your side of the Influence border.Whats Mana?
+    Do as they say.
+    in addition to your core three six-sided dice
+    and given that street name as his geographical tag
     
-    ..Head to Troy, and explore the nearby nav points.
-    Revenge is sweet! 4.
+    Evil factor is very, VERY high.
+    b'1 Game Information1.1 A LITTLE HISTORY LESSON
+    ..Use ALT + 1 to slow down time so you can follow him easier.
+    It's a basic logic diagram
+    
+    The latter is better.In Righteous Fire, you can also get "Isometal", which is 40 cmae, and cost 2000.4.6.4 ECM PackageECM, or electronic counter-measures, is basically signal jammingthat makes enemy missiles miss you.
+    Cannot repairdestroyed items.
