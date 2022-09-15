@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Sep 14 16:48:01 EDT 2022
+## Thu Sep 15 16:48:01 EDT 2022
 
-    All four pumps fall at different rates
-    Do the quest, then kill the hippy.Whatever floats your boat.
-    PUZZLE LEVEL 2: Hit the following switches
-    One final arcade sequence--this time it's in space
+    Basically, you discovera pile of rocks and a faraway rock on a pillar, and your consciences decide totorture you by making you try target practice.
+    see factions)Retros fly Talon (fighter) (see crafts)Retro pilots are fanatical rookies or pros.
+    Now all you do is alternate between thetwo areas, picking up a villager at him Temple, and sacrificing it at yourTemple.
+    you'll die, so be very fast and precise
     
-    and the noise will kill you if you take too much time
-    F,L,F,F,L,F,F , and enter the door on your left with the card key L
-      Ranks: Corpus, Hollow
-    You will alsonotice that I've numbered the poles.
+    The possibilities with chemical warfare are boundless!
+    ------------I get tired of typing these, I really do.
+    Then take on Jones himself in adecked-out Centurion.
+    shifting tattoos, exotic diseases
     
-      THE GODDESSES  The goddesses are real
-      When an adversary causes effect to you
-    When you cause great effect
-    ITTS.
+      ELSEWHERE  There are other places
+    Don't besurprised if you failed this a few times.12.11 MASTERSON 2Here's the second mission for Masterson.Objective
+    |+=============================================================================++=============================================================================+| A. Moongates |+=============================================================================+There are 8 locations of moongates, one for each town of virtue in the game.Based on the phase of the first moon, is when a moongate will open, and the 2ndmoon's phase tells you where it will take you.
+    You guessed it.
     
-    .....a beach ball and a Heal Increase Miracle Dispenser.EVIL SOLUTION-------------Fight him.
-    roll on this table four times
+    boththese things increase the size of your Influence.
+     If your extent beats your opponent’s resistance
