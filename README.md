@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Sep 17 16:48:01 EDT 2022
+## Sun Sep 18 16:48:01 EDT 2022
 
-    Place a skeleton in it, andthe person will be revived!BAD SOLUTION
-    Depending on your family pride and social standing
-    the dreams of addicts
-    You can't restockthose missiles until a LOT later.14.17 TAYLA 4Run Brilliance from Tuck's in Sherwood to Basque in Pyrennes.Pays 40K.Just do the same thing
+    Escort Hunter Toth (Drayman) to Oxford.
+    Then, well, because you're a goodsort of chap, it'll be nice to fill up their Village Store with food for them.By saving the people from a Black Plague II, you've just earned yourself theability to create Lightning when these villagers worship you.
+    Escort Vulcan's Forge (Drayman) to Oxford.
+    Is this game censored
     
-    F takes you further into the warehouse
-        YOUR HOME  You’re from somewhere
-    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
-    You now have access to the base's personnel files
+      THE OTHERS  When you make a character
+    Dumb Fire, Heatseeker, ImageRecognition, and Friend-or-Foe.You also get proton torpedoes, which are basically shorter-rangebut faster-firing Dumb Fire missiles.4.5.1.1 Missile LauncherHolds ten missiles (any type), costs 10000 credits.4.5.1.2 Dumbfire Missile (DF)Lock: None, Speed 1000, Damage 13cm, Price 20Torpedo is easier to use and does more damage, but requires adifferent launcher.4.5.1.3 Heatseeker Missile (HS)Lock: Engine heat, Speed 800, Damage 16cm, Price 35Heatseekers can be a bit hard to use in dogfights as you can'tget on the tail of enemies long enough for this to lock.4.5.1.4 Image Recognition Missile (IR)Lock: Enemy craft type/shape, Speed 850, Damage 17 cm, Price 75IR missiles goes after the general 'shape' of the enemy.
+    Serpent's Hold and surrounding Area (PB JC)
+    You would seethem more in the quieter quadrants, like Potter and Humboldt, butthey do show up everywhere.Merchants hate any one who shoot them
     
-    but only if you've got a lot of remaining ammo to hit it with
-    then you will defeat Nemesis, Guide's old God.
-    When you meet a strange culture for the first time
-    You must move the templeto the top pole, with the following rules
+    so I wrote my own for the Playstation
+    The possibilities with chemical warfare are boundless!
+    *hint* The witch, likemost humans, burns easily.
+    You will now be askeda series of questions, the answers are
     
-    VALLEY RUN - Norway Ahh
-    are earned when people start calling you them
+    Decision time, although it's kind of minor
+    And where do they run?
