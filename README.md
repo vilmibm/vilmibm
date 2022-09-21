@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Sep 20 16:48:01 EDT 2022
+## Wed Sep 21 16:48:01 EDT 2022
 
-    precision, extent, and security
-    Food is obtained from fields, schools of fish, certain mushrooms,animals, etc
-    If you didn't know about the "twilight zone" glitch,you really ought to check it out, even if it means running Ultima 4 on a C64emulator.
-    They willalso attack more.
+    The guard will then come walking towards you
+    This is the headquarters of the Crown and where your caravan will set off from
+    You can find thisStory Scroll on the actual beach of the bay, after you recieve your Creature.GOOD SOLUTION
+    Okay, hit the second
     
-    The random pirates will probably consideryou to be friendly, and that's good for you.Only the scripted pirates
-    down down 	L2: Changes to flightsim cursor mode up down
-    Pays 10KJust more random stuff, expect Kilrathi presence.NOTE
-    No-one can read them reliably
+    Patrol the place
+    GENIUS <<Password Puzzle>> Uh oh
+    You've been dumped out into a new world/island, and you've novillages, no Creatures, and only a few followers.
+    Revenge is sweet! 4.
     
-    It's very helpful in some of the dark rooms and arcade sequences
-    Your Creature lives here, in his penin front of the entrance.
-    If you don't aim while standing
-    you can shoot fast enough if you slow down,then full guns.
-    
-    Try to avoid a fight if it's possible.
+    ..what are you waiting for?
+    50,000Infinity: Target Lock.
+    SKEET SHOOT From the turret
     or see something truly remarkable
+    
+    On top of a mountain surrounding the village.
+    First Quarter Jhelom Skara Brae Magincia Moonglow4.
