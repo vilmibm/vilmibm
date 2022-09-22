@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Sep 21 16:48:01 EDT 2022
+## Thu Sep 22 16:48:02 EDT 2022
 
-    The guard will then come walking towards you
-    This is the headquarters of the Crown and where your caravan will set off from
-    You can find thisStory Scroll on the actual beach of the bay, after you recieve your Creature.GOOD SOLUTION
-    Okay, hit the second
+    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
+    F,L,F,F,L,F,F , and enter the door on your left with the card key L
+    When you’re travelling somewhere people haven't gone for at least a century
+    Conserve your shots, as once you've drained them
     
-    Patrol the place
-    GENIUS <<Password Puzzle>> Uh oh
-    You've been dumped out into a new world/island, and you've novillages, no Creatures, and only a few followers.
-    Revenge is sweet! 4.
+    If you can't outrun them... Eject the contraband and stop.They will eventually go away.
+    and enter the complex F
+    DOOR MAN Keep walking towards the complex F
+    At the end of the stage
     
-    ..what are you waiting for?
-    50,000Infinity: Target Lock.
-    SKEET SHOOT From the turret
-    or see something truly remarkable
+    and you're using passwords
+    Nice game, but why is everything so dark
+    Once the first man has left
+    try not to kill any Confed or Militia while smuggling.
     
-    On top of a mountain surrounding the village.
-    First Quarter Jhelom Skara Brae Magincia Moonglow4.
+    You can do this either by being really good or really evil toyour first village.
+    often separated by a hyphen
