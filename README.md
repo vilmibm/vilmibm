@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Sep 22 16:48:02 EDT 2022
+## Fri Sep 23 16:48:01 EDT 2022
 
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
-    F,L,F,F,L,F,F , and enter the door on your left with the card key L
-    When you’re travelling somewhere people haven't gone for at least a century
-    Conserve your shots, as once you've drained them
+    These objects are really useful in increasing your influence in theworld of Eden.
+    Thereasonably good solution is just to sacrifice another child, and you'll winanyway.
+    Run down the hall L,F to the next big door
+    Continue down the hall F
     
-    If you can't outrun them... Eject the contraband and stop.They will eventually go away.
-    and enter the complex F
-    DOOR MAN Keep walking towards the complex F
-    At the end of the stage
+      THE OTHERS  When you make a character
+    Check out the hologram on the desk F
+    So don't dawdle
+    The result is both a map and a translation aid
     
-    and you're using passwords
-    Nice game, but why is everything so dark
-    Once the first man has left
-    try not to kill any Confed or Militia while smuggling.
+    Note, you can only give the same animaltwice.
+    but only if you've got a lot of remaining ammo to hit it with
+    Theyneed someone to help them but they can't advertise
+    Once you've toasted the guard
     
-    You can do this either by being really good or really evil toyour first village.
-    often separated by a hyphen
+    F,F, then B,F,F to leave
+    F until you get to a door
