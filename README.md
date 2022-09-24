@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Sep 23 16:48:01 EDT 2022
+## Sat Sep 24 16:48:01 EDT 2022
 
-    These objects are really useful in increasing your influence in theworld of Eden.
-    Thereasonably good solution is just to sacrifice another child, and you'll winanyway.
-    Run down the hall L,F to the next big door
-    Continue down the hall F
+    Decreases cursor speed R1 and R2 are great for fine-tuning your cursor speed in the action sequences if you're using a standard game pad
+    Enter that one by pushing up. THE PIANO 1.
+    You'll get a new set of each.You can get missions from several sources
+    Three companies make scanners, each of 3levels, for nine different modelsHunter AW 6i is probably the best radar for the money, until youcan afford top-of-the-line model like B&S Omni.NOTE
     
-      THE OTHERS  When you make a character
-    Check out the hologram on the desk F
-    So don't dawdle
-    The result is both a map and a translation aid
+    Puzzle-me-do!
+    Only great effect can take you out - effect can’t
+    PUZZLE LEVELS 1,2,3: Type Einstein and press Enter
+    YOU WITH ME Move forward to join with the Cyberia weapon F
     
-    Note, you can only give the same animaltwice.
-    but only if you've got a lot of remaining ammo to hit it with
-    Theyneed someone to help them but they can't advertise
-    Once you've toasted the guard
+    So, heres how to do it
+    Sell it for 7500 credits, and replace it with a torpedolauncher and full reloads instead.
+      Ranks: Celebrant, Dervish
+    The admiral believe that green blob is a Kilrathi secretweapon that somehow thought you're its guide.
     
-    F,F, then B,F,F to leave
-    F until you get to a door
+    ------------I get tired of typing these, I really do.
+    Good boy/girl.
