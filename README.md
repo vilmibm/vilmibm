@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Sep 27 16:48:01 EDT 2022
+## Wed Sep 28 16:48:01 EDT 2022
 
-    ducking R to cover, standing L and R to aim
-    and enter the complex F
-    Yes, Virginia, there is a cheat code
-    +2D8 but GM determines placing
+    Can anyone help me outhere?
+    He isn't a great shot
+    4.2 ORIONOrion is an odd ship
+    * Eight - Bad Idol!
     
-    At nav 5, you found your target, takehim out.
-    , turn ship around so your rear turret isfacing the cargo.
-    WAIT for the bee to pick up the cotton candy BEFORE you go to the left. 2.
-    This doesn't seem to accomplish much of anything that I can tell
+    are earned when people start calling you them
+    Enter that one by pushing up. THE PIANO 1.
+    a vast thirty-storey chapel
+    Focus him(while you and the Creature are connected by the leash, click on something withthe RMB) on a drowning villager, he should pick it up.
     
-    shifting tattoos, exotic diseases
-    the ball eats you.
-    Hit him in-between shots R to move out
-    These rooms are located at the bottom of dungeons.
+    This scroll is useful however,in learning the fundamental skill of projectile throwing.GOOD SOLUTION
+    Moonglow
+    an additional six-sided dice that may be used on any way
+    As with most evil acts,you win nothing.*
     
-    the patterns of soil
-    How dare she ask you to, like, do,like, stuff!
+    and give them to especially bright children as an inheritance
+    Lions can be found nearby, and are also worth twoslaves, and the final animal, the turtle is found near your Temple, on someislands, but are only worth one slave.
