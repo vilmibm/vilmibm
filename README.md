@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Sep 28 16:48:01 EDT 2022
+## Thu Sep 29 16:48:01 EDT 2022
 
-    Can anyone help me outhere?
-    He isn't a great shot
-    4.2 ORIONOrion is an odd ship
-    * Eight - Bad Idol!
+    MEET GIA The lovely Gia will tell you to turn around nice and slowly L and you will disarm your weapon
+    up to level 5) andlarge engines (up to level 5).5.4.3 GalaxyGalaxy is the largest "transport" the player has access to, andcan move significant amount of cargo, but at a sedate pace.
+    You simply try and convert it, but all convertingtools must be thrown into the village, such as food, wood, etc.
+    All you have to do to becomean avatar is to go to each place and do good deeds
     
-    are earned when people start calling you them
-    Enter that one by pushing up. THE PIANO 1.
-    a vast thirty-storey chapel
-    Focus him(while you and the Creature are connected by the leash, click on something withthe RMB) on a drowning villager, he should pick it up.
+    I have no idea.
+    walk into the next room F
+    *-*BACKGROUND
+    Enter the contaminated zone F
     
-    This scroll is useful however,in learning the fundamental skill of projectile throwing.GOOD SOLUTION
-    Moonglow
-    an additional six-sided dice that may be used on any way
-    As with most evil acts,you win nothing.*
+    Not a lot, but it's uncensored
+    Hit the following switches
+    0: Blue Arrow 			1
+    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
     
-    and give them to especially bright children as an inheritance
-    Lions can be found nearby, and are also worth twoslaves, and the final animal, the turtle is found near your Temple, on someislands, but are only worth one slave.
+    He has a small area of influence around his person, so you can throw him into villages to get a quick burst of control within the village.Its hard, but its possible. =============================================================================9
+    He knows where the Retrosecret base is
