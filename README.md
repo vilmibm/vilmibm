@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Oct  1 16:48:01 EDT 2022
+## Sun Oct  2 16:48:01 EDT 2022
 
-    When you seek to uncover secrets
-    boththese things increase the size of your Influence.
-    Go back to the doorway where you killed the two guards F
-    but levels 2 or 3 don't make that big of a difference
+    You will recieve a pile of grain for your efforts.
+    To convert Lethys' villages, you should use the same tactics as you used for the neutral villages, but you will require a lot morebelief to overcome Lethys' belief.Once you capture all but one of Lethys' villages, Nemesis will show on thescene.
+    The possibilities with chemical warfare are boundless!
+      THE UPSEARCHING  Strange fruits and herbs grow from the sands
     
-    shifting tattoos, exotic diseases
-    but using the IR scan triggers an explosive
-    "Buylow, sell high", and "take on missions".
-    Bend down to catch the ball.
+    the Guided, the Mortifactor    Defender When you lend your strength to help the weak
+    ..NOTE: Sandra Goodin is at Perry Naval Base.NOTE: Tayla is at Oakham, Pentonville system...14.10 GOODIN 1Confed needs you to fly to Nitir (Nitir System) and defend itfrom Kilrathi raiders.
+    See Security Door Puzzle <Front Door> To go in through the front door
+    but there's not enough of it to give it a lot of replay value
     
-    Their initial attitude toward you is hostile (like everybodyelse).You cannot align yourself with the Retros.2.7 PIRATESPirates make their living by trade in contraband goods androbbing Merchants.
-    Guess you'll have to dothis "gratis".A couple unknowns block you at the jumpoint to ND, otherwise justrandom stuff.14.19 MONTE 2The Retros seem to be under this new leader called Modecai Jones.No one knows about him, but Monte's contact may know somethingmore.
-    and being vague or unimpressive can see you lose your name and go forgotten
-    ..fish.
+    and when you hit one move to the right one and attack again.
+    The measure of how much a Village believes in you, this will usuallyaffect the size of your influence.
+    Run down the hall L,F to the next big door
+    and you're using passwords
     
-    Apparently Smythe found some info in the Oxford library.Objective
-    Walk towards the Cyberia weapon F
+    It's kind of loud in here
+      THE GODDESSES  The goddesses are real
