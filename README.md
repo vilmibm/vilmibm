@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Oct  5 16:48:01 EDT 2022
+## Thu Oct  6 16:48:01 EDT 2022
 
-    DOOR MAN Keep walking towards the complex F
-      When you are in your home territory
-    Kline knows the mantra: SUMM (in the tavern)e.
-    d.
+    Confed flies Stiletto (fighter), Broadsword (bomber), Paradigm(corvette), and Gladius (fighter) (see crafts)Confed pilots are usually confident pros and aces (see morale andexperience)Their initial attitude toward you is neutral.To make Confed like you, you should:* not attack Confed, Militia, Bounty Hunters, or Merchants* not smuggle (carry contraband)* kill Pirates, Retros, and Kilrathis (i.e.
+    This is the place that'll build your village up, if you supply itwith wood.
+    Again, 10000credits and access to library really, after this mission
+    A guard is around that crate
     
-    Galaxy also has sideturrets.4.6.11 Tractor beamRequires turret to mount one, needed to salvage things.4.6.12 Jump driveRequired to travel to other star systems.
-    Exit the room L,F Head back down the hall L
-    You'll get 10000 credits.When you get to Beta's nav 3, you'll find Captain Garrovick in aCenturion, and he's completely wacko.
-    Go over to the other door and walk though it L
+    b'Ultima 4 is unlike every other RPG ever made.
+    WAIT for the bee to pick up the cotton candy BEFORE you go to the left. 2.
+    roll three six-sided dice and allot them to each
+    The torpedo launchers arebasically high-damage direct-fire rockets, which is what you needearly on.Next, dump the lasers and replace with meson blasters.Now you're respectably armed, but now you need money.
     
-    F takes you further into the warehouse
-      Known as Newt-Boy in his youth on account of his weird eyes
-    ..
-    Admiral Terrell is in charge of the whole sector from his HQ atPerry Naval Base.
+    Confeds quickly found to theirdismay that they can't destroy the drone either.
+    You've got a bomb in your brain
+    So ifyou have friendlies and enemies flying the same type of craftTalons, for example
+    Try the ultimateevil, find his sheep THEN kill him.
     
-    When you have the Orion nicelyequipped think level 5 shields
-    Part Two, Dungeon Hopping |+=============================================================================+This won't walk you through the dungeons, but merely give you clues that youwill need to get all 8 stones, the 3 part key, and conquer the Sygian Abyss.For this part you should have all 8 people in your party
+    Continue down the hall F
+    By flipping the switches
