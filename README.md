@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Oct  6 16:48:01 EDT 2022
+## Fri Oct  7 16:48:01 EDT 2022
 
-    Confed flies Stiletto (fighter), Broadsword (bomber), Paradigm(corvette), and Gladius (fighter) (see crafts)Confed pilots are usually confident pros and aces (see morale andexperience)Their initial attitude toward you is neutral.To make Confed like you, you should:* not attack Confed, Militia, Bounty Hunters, or Merchants* not smuggle (carry contraband)* kill Pirates, Retros, and Kilrathis (i.e.
-    This is the place that'll build your village up, if you supply itwith wood.
-    Again, 10000credits and access to library really, after this mission
-    A guard is around that crate
+    Cove
+    to Hector Mining base,Troy system
+    Well
+    Enter in the antidote
     
-    b'Ultima 4 is unlike every other RPG ever made.
-    WAIT for the bee to pick up the cotton candy BEFORE you go to the left. 2.
-    roll three six-sided dice and allot them to each
-    The torpedo launchers arebasically high-damage direct-fire rockets, which is what you needearly on.Next, dump the lasers and replace with meson blasters.Now you're respectably armed, but now you need money.
-    
+    and then move to the switches on the left
+    move, or help others do so
+    The Rune is found in the SE Tower.h.
     Confeds quickly found to theirdismay that they can't destroy the drone either.
-    You've got a bomb in your brain
-    So ifyou have friendlies and enemies flying the same type of craftTalons, for example
-    Try the ultimateevil, find his sheep THEN kill him.
     
-    Continue down the hall F
-    By flipping the switches
+    BIG KISS Okay, a real decision here
+    Plus, of course,get all the other quest items.The following can be done in any order you want.
+    , you can haveLynch reset the first time for free.
+    (See the Simple Walkthrough)Bring a piece of your Creatures
+    
+    ------------I get tired of typing these, I really do.
+    It's not entirely linear- there are two decision points where you can take two entirely different paths through the game
