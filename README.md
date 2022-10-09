@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Oct  8 16:48:01 EDT 2022
+## Sun Oct  9 16:48:01 EDT 2022
 
-    L,F , you find a particularly interesting box
-    and the game does kind of suck you in over time
-    You have heard the whispers of something greater than you in your sleep
-    I knew my mum was wrong when she said greens were good forme.
+    LISTEN IN Quietly listen to the conversation don't move
     
+    Again, tell the group one thing that marks it out
+    Getting it now?
+    
+    Back in another hallway
+    If you are escorting, make sure the ship being escorted has wavedyou off i.e.
+    Heat a rock,and sit it next to it.
+    This doesn't seem to accomplish much of anything that I can tell
+    
+    Then follow thejump to the next system
     When you struggle to survive
-    Exit the room L,F Head back down the hall L
-      Agent  When you act in service of The Crown
-    Go over to the other door and walk though it L
+    Thesecret base is in Valhalla system.
+    or maybe a damning indictment of your shortcomings
     
-    all allies who can see you are +D8 extent
-    Jump through, andJones will be there
-    perform an MRI scan to view the elevator pumps
-    I see the Freak Wave has been up to his old tricks.
-    
-    Too early
-    is flying a Talon.
+    You shouldmake your way to Perry Naval Base
+    This is the farthest point your caravan will reach before it is scheduled to return to the Hand
