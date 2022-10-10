@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Oct  9 16:48:01 EDT 2022
+## Mon Oct 10 16:48:01 EDT 2022
 
-    LISTEN IN Quietly listen to the conversation don't move
+    ..12.9 LYNCH 4When you come back to NC, Miggs is not there... Lynch wants youto pickup Mr. Smythe from Liverpool (Refinery base, Newcastlesystem).
+    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
+    High-ranking Official from your church    THE WAYS  There are three ways
+    It is also possible to decimate an enemy village bypoisoning the food supply in the village.
     
-    Again, tell the group one thing that marks it out
-    Getting it now?
-    
-    Back in another hallway
+    L1: Changes to arcade cursor mode up up
     If you are escorting, make sure the ship being escorted has wavedyou off i.e.
-    Heat a rock,and sit it next to it.
-    This doesn't seem to accomplish much of anything that I can tell
+    <<Elevator Puzzle>> This one's tricky- first
+     The same applies to you with regards to your opponent
     
-    Then follow thejump to the next system
-    When you struggle to survive
-    Thesecret base is in Valhalla system.
-    or maybe a damning indictment of your shortcomings
+    Select one of the three antidotes
+    Orange is on, yellow is off
+    but for the arcade sequences
+    MUWHAH-sorry.EVIL SOLUTION
     
-    You shouldmake your way to Perry Naval Base
-    This is the farthest point your caravan will reach before it is scheduled to return to the Hand
+    Forexample, if you are on a mission to locate a Retro, butconversation shows you found a Pirate, you can run away.* [Repeat] Don't like the missions being offered?
+    and then move to the switches on the left
