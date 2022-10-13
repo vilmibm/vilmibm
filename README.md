@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Oct 12 16:48:01 EDT 2022
+## Thu Oct 13 16:48:01 EDT 2022
 
-    Gothris are all aces, and Dralthis are all pros.You'll also see a lot of random Pirates and maybe Kilrathis onthe way to Gamma.
-    but levels 2 or 3 don't make that big of a difference
-    Nemesis's rage will extend onto your village, and it will be set on fire.
-    Once per scene, give a nearby ally +D8 when you advise them as to a course of action
+    or see something truly remarkable
+    then you will defeat Nemesis, Guide's old God.
+    none, Speed 1200, Damage 20 cm, price 15Easier to use than dumbfire and does more damage, but requires aseparate launcher.
+    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
     
-    If you have a "scoop", you canget free fuel from the local star, and salvage cargo.
-    You'll want to go all the way back to the second door you went through in the base Security Door Puzzle
-    ace?
-    Depending on your family pride and social standing
+    you are consideredone of the 8), be well equipped, have lots of reagants, and a good supply ofitems.Dungeon Locations: (from Stephanus Rudiyanto Natari)------------------ Deceit: EJ PA Despise: ED FL Destard: KI EI Wrong: BE HO Covetous: BL JM Shame: GG DK Hythloth: PA OP Hard to find dungeons: - Shame (Although you know the entrance location) To enter this dungeon, sail down the river from HF CA - Hythloth (Easy Entrance) 'Jimmy Lock' a locked door behind Castle Britannia, and climb down the  ladder.Stones:------- White: On top of serpent's spine, can only be reached via balloon (which can be found outside Hythloth) Black: Search the Moonglow Moongate during a double new moon Blue: Seventh Level of Deceit Yellow: Fifth Level of Despise Red: Seventh Level of Destard Green: Eighth Level of Wrong Orange: Seventh Level of Covetous Purple: Second Level of ShameOnce you have the stones you must use them in the 3 rooms of principles to getthe 3 part key.
+    L,F,R,F,L,F and check out the V-Mail
+    This Scroll is found above ahouse in your first village, once you gain your creature.GOOD SOLUTION
+    The only place I really 		noticed is at the Slice-O-Matic death scene
     
-    Seven of them, so be ready
-    Some unknownships will attack, but they should pose no challenge to you.Now you need to seek out another employer
-    Codes and Cheats Is there a cheat code for this game
-    b'Weird Dreams Solve THE COTTON CANDY MACHINE 1.
+    Drop a rock on him.
+      When an adversary causes effect to you
+    Escort this final Drayman back to Oxford.
+    The temple is in 4 parts, and youcan only hold one part at a time.
     
-    The more belief you have, the bigger yourArea of Influence.Whats Influence?
-    so follow Gia F, F to the guns
+    or see something truly remarkable
+    Wow
