@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Oct 14 16:48:01 EDT 2022
+## Sat Oct 15 16:48:01 EDT 2022
 
-    b'Ultima 4 is unlike every other RPG ever made.
-    ------------I get tired of typing these, I really do.
-    Use the soccer ball to eat a path through the sand. THE MIRROR ROOM 1.
-    Now that you have your Creature, all you need to do is capture Lethys'final village, and hes yours.
+    I just managed to get justice in about 15-30 minutes of doing  that and I just wanted to share the joy.Honor
+    >=D*
+    BOOM.
+    Standard killing here L to move out
     
-    <<Perimeter Lock Puzzle>> Use your MRI to scan the lock
-    boththese things increase the size of your Influence.
-    You will recieve a Strengthen CreatureMiracle Dispenser.EVIL SOLUTION
-    Admiral Terrell is in charge of the whole sector from his HQ atPerry Naval Base.
+      If your precision beats your opponent’s security
+    ---------In the middle village, there lives a man.
+    Many  of the treasure chests in this weird place
+    that emerge from spoiled harvests
     
-    Puzzle level, well, it's up to you
-    and you're using passwords
-    If people see spare woodor food lying about in the village, they will usually take it to the VillageStore for easy storage.
-    Of course, you use up yourmissiles twice as fast.*
+    Wait until he is on the other side
+    He has your Steltek gun.
+    Red Circle Broken Bottom 			2
+    see factions)Retros fly Talon (fighter) (see crafts)Retro pilots are fanatical rookies or pros.
     
-    However, you justneed them to NOT hate you
-    Great.EVIL SOLUTION
+    , you can haveLynch reset the first time for free.
+    Some collect these godlings and use them in parasitic
