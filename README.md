@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Oct 17 16:48:01 EDT 2022
+## Tue Oct 18 16:48:01 EDT 2022
 
-    Blast everything in sight
-    Instant Chimp Creature.EVIL SOLUTION
-    ..UNCONFIRMED: If you find Roman Lynch at New Constantinople, heasks you to kill Governor Menesch also (a lot of people wantsthat guy dead!).
-    Otherwise, press fire or another direction
+    You'll be using this a hell of a lot
+    (the Sheep) *-*Little Bo Peep
+    you don't have to worry about energy
+    Your low-level scannercan't even tell friend from foe yet.
     
-    Is this game censored
-    The only place I really 		noticed is at the Slice-O-Matic death scene
-    and you’ll have different names in different parts of your life
-    Toggle the vibration sensor second from the right
+    and we seek sanctuary inside them
+    He was last seen on Palan.So to Palan you go
+    You move on to nav 4, more random, then finally youreach nav 3, New Iberia and another random encounter.
+    Fly to Drake in Capello System and meet the contact therefor more info.Just random stuff, nothing too special.14.20 INFORMANT 1You found the informant in the bar.
     
-    When you talk to someone else on glimmer
-    Bounty hunters fly Orion (transport/fighter), Centurion(fighter), or Demon (fighter) (see crafts)Bounty hunter pilots are confident rookies, pros or aces (seemorale and experience)Their initial attitude toward you is neutral.To make Bounty Hunters like you, you should:* not attack bounty hunters* not attack merchants (and thus have a bounty placed on yourhead)* not align yourself with Pirates, Retros, or Kilrathi2.4 MERCHANTSMerchants are the ones moving freight everywhere.
-    Pays 10KWhen you launch, you'll likely see Retros closing in thetransport.
-    You will be paid 10000 credits.When you get there, Seelig pro?
+    Go through the door and along the wall next to the window F
+    There's only one active switch
+    .Note: the config below is based on "Privateer".
+      You have seen miracles in the streets
     
-    It's following that gun you found.
-    Once you have a good antidote
+    F , turn around and lock it behind you L
+    but you don't have a shield readout either
