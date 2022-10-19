@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Oct 18 16:48:01 EDT 2022
+## Wed Oct 19 16:48:01 EDT 2022
 
-    You'll be using this a hell of a lot
-    (the Sheep) *-*Little Bo Peep
-    you don't have to worry about energy
-    Your low-level scannercan't even tell friend from foe yet.
+    Take them all out and land.As you've killed a lot of Bounty Hunters, don't be surprised ifMilitia, Confed, or Bounty Hunters are after your hide.Upon landing, you found Dr. Monkhouse in the bar.
+    then you will defeat Nemesis, Guide's old God.
+    Revenge is sweet! 4.
+    Muwhahahahha.STONES
     
-    and we seek sanctuary inside them
-    He was last seen on Palan.So to Palan you go
-    You move on to nav 4, more random, then finally youreach nav 3, New Iberia and another random encounter.
-    Fly to Drake in Capello System and meet the contact therefor more info.Just random stuff, nothing too special.14.20 INFORMANT 1You found the informant in the bar.
+    General Strategies |+=============================================================================+The Fine Art of Talking to people
+    .. You may get something, orperhaps nothing at all.
+    You will now be askeda series of questions, the answers are
+    Get through this section as quickly as possible F
     
-    Go through the door and along the wall next to the window F
-    There's only one active switch
-    .Note: the config below is based on "Privateer".
-      You have seen miracles in the streets
+    Vesper
+    Grab one of the sticks and then attack the rose bush.
+    and enter the complex F
+    Hmmm
     
-    F , turn around and lock it behind you L
-    but you don't have a shield readout either
+    Then makeit back to Oakham yes, again
+    Findhim and destroy him.
