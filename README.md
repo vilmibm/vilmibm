@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Oct 19 16:48:01 EDT 2022
+## Thu Oct 20 16:48:01 EDT 2022
 
-    Take them all out and land.As you've killed a lot of Bounty Hunters, don't be surprised ifMilitia, Confed, or Bounty Hunters are after your hide.Upon landing, you found Dr. Monkhouse in the bar.
-    then you will defeat Nemesis, Guide's old God.
-    Revenge is sweet! 4.
-    Muwhahahahha.STONES
+    See [4] forrecommended loadout for your ship.
+    and where you’re from
+    You must move the templeto the top pole, with the following rules
+      Ranks: Constable, Blade
     
-    General Strategies |+=============================================================================+The Fine Art of Talking to people
-    .. You may get something, orperhaps nothing at all.
-    You will now be askeda series of questions, the answers are
-    Get through this section as quickly as possible F
+    Go visit him and bring the Creature once again.
+    Go find him near where you fought your battle with Guide.GOOD SOLUTION
+      You have seen miracles in the streets
+    After two"doses" of food, he'll fall asleep.
     
-    Vesper
-    Grab one of the sticks and then attack the rose bush.
-    and enter the complex F
-    Hmmm
+    Enlarge Creature Miracle Dispenser.
+    Stolen villagers.
+    Confed flies Stiletto (fighter), Broadsword (bomber), Paradigm(corvette), and Gladius (fighter) (see crafts)Confed pilots are usually confident pros and aces (see morale andexperience)Their initial attitude toward you is neutral.To make Confed like you, you should:* not attack Confed, Militia, Bounty Hunters, or Merchants* not smuggle (carry contraband)* kill Pirates, Retros, and Kilrathis (i.e.
+    F,F,F,F , and walk to the next room F
     
-    Then makeit back to Oakham yes, again
-    Findhim and destroy him.
+    continue down until you find the next room F
+     The same applies to you with regards to your opponent
