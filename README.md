@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Oct 20 16:48:01 EDT 2022
+## Fri Oct 21 16:48:01 EDT 2022
 
-    See [4] forrecommended loadout for your ship.
-    and where you’re from
-    You must move the templeto the top pole, with the following rules
-      Ranks: Constable, Blade
+    >>Cyberia Complex Level 1<< COLD FEET Once you're out of the plane
+    it's just that it's been done before
+    Use some of the tactics I've described above togain his village, if you wish, and once his village is yours, you can sparehim, or defeat him.
+    Khazar was quite generous in giving us the ability to "operate" in hisInfluence, so lets exploit it, shall we?
     
-    Go visit him and bring the Creature once again.
-    Go find him near where you fought your battle with Guide.GOOD SOLUTION
-      You have seen miracles in the streets
-    After two"doses" of food, he'll fall asleep.
+    KILL THEM ALL.
+    Remember to turn it off when you get there.
+    You are able to move out ofyour Influence for short periods of time, if something is just beyond yourreach.
+    and then move to the switches on the left
     
-    Enlarge Creature Miracle Dispenser.
-    Stolen villagers.
-    Confed flies Stiletto (fighter), Broadsword (bomber), Paradigm(corvette), and Gladius (fighter) (see crafts)Confed pilots are usually confident pros and aces (see morale andexperience)Their initial attitude toward you is neutral.To make Confed like you, you should:* not attack Confed, Militia, Bounty Hunters, or Merchants* not smuggle (carry contraband)* kill Pirates, Retros, and Kilrathis (i.e.
-    F,F,F,F , and walk to the next room F
+    F,F,F through Security Door Turn left
+    Inc, distributed by Interplay Productions
+    ?
+    Check other mission sources first.Offered
     
-    continue down until you find the next room F
-     The same applies to you with regards to your opponent
+    ---------Across the dry plain next to your first village, is a hill with a 'helter-skelter' pattern cut out of it.
+    After you are subject to effect in a scene
