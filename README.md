@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Oct 21 16:48:01 EDT 2022
+## Sat Oct 22 16:48:01 EDT 2022
 
-    >>Cyberia Complex Level 1<< COLD FEET Once you're out of the plane
-    it's just that it's been done before
-    Use some of the tactics I've described above togain his village, if you wish, and once his village is yours, you can sparehim, or defeat him.
-    Khazar was quite generous in giving us the ability to "operate" in hisInfluence, so lets exploit it, shall we?
+    BIG KISS Okay, a real decision here
+    Focus him(while you and the Creature are connected by the leash, click on something withthe RMB) on a drowning villager, he should pick it up.
+    eras ago, this was a country of spires
+    .. You may get something, orperhaps nothing at all.
     
-    KILL THEM ALL.
-    Remember to turn it off when you get there.
-    You are able to move out ofyour Influence for short periods of time, if something is just beyond yourreach.
-    and then move to the switches on the left
+    Go find the guard in the windowed room L
+    but using the IR scan triggers an explosive
+    F , turn around and lock it behind you L
+    and may be freely distributed in whole or part as long as proper credit is given to the author
     
-    F,F,F through Security Door Turn left
-    Inc, distributed by Interplay Productions
-    ?
-    Check other mission sources first.Offered
+    Startto take all the wood and food out of your village center and place it near thebeach where the fishers
+    Decision time, although it's kind of minor
+    see the v. virtues sectionabove.
+    Cyberia, released by Interplay
     
-    ---------Across the dry plain next to your first village, is a hill with a 'helter-skelter' pattern cut out of it.
-    After you are subject to effect in a scene
+    When you’re struggling to survive
+    It is a combination of genres
