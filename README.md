@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Oct 22 16:48:01 EDT 2022
+## Sun Oct 23 16:48:01 EDT 2022
 
-    BIG KISS Okay, a real decision here
-    Focus him(while you and the Creature are connected by the leash, click on something withthe RMB) on a drowning villager, he should pick it up.
-    eras ago, this was a country of spires
-    .. You may get something, orperhaps nothing at all.
+    This structure is your final line of defense in thegame, as if it is destroyed, you die.
+    Unfortunately, Lethys isn't too pleased about you removing one of hispillars, and so, random people will be placed at the nearby beach, positionedhandily so Lethys can set them all on fire.
+    You'll be paid 10000 credits, and if you do all fourmissions you'll be allowed access to the library.Toth will be at Nav 3 at Oxford.
+    You will recieve a pile of grain for your efforts.
     
-    Go find the guard in the windowed room L
-    but using the IR scan triggers an explosive
-    F , turn around and lock it behind you L
-    and may be freely distributed in whole or part as long as proper credit is given to the author
+    ----------------------- - Make sure to talk to Lord British and accept the Quest of the Avatar  otherwise this will be a very short game!
+    He'll jump out,so jump after him.
+    somesinging stones you encounter will be broken, and just make a really crappynoise of some description.GOOD SOLUTION-------------Go find the stones and make the scale, what else?
+    it will start to shake and be very hard to control
     
-    Startto take all the wood and food out of your village center and place it near thebeach where the fishers
-    Decision time, although it's kind of minor
-    see the v. virtues sectionabove.
-    Cyberia, released by Interplay
+    You'll find 2 Retro Talonsattacking him immediately, followed by 3 more Retro Talons.Make sure the Drayman reaches the planet and radios you "thanks"before you land, or you'll fail the mission.
+    Warm to the touch until used
+    Another crosshair-type arcade sequence
+    Yew
     
-    When you’re struggling to survive
-    It is a combination of genres
+    If you want firepower, this is the ship you want.
+    ------ - In the south part of town are some mountains, in a nook find the Rune of Humility. - Find the Magic Shop (secret wall in Armory East) and buy reagants, pay the right amount to increase virtue.
