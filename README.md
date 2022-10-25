@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Oct 24 16:48:01 EDT 2022
+## Tue Oct 25 16:48:01 EDT 2022
 
-    .Kill them all.12.15 LYNN MURPHY 2Destroy more enemy patrols.Objective
-    Warm to the touch until used
-    - for instance, you can end up with monsters stuck in water, or with a boat on land (and you can still fire that boat's cannons).
-    was Top: 2, Middle: 3
+    Comes in small and large sizes, governed by whetheryou use one Scaffold or two Scaffolds to build it.CRECHE
+    Your objective is totravel the known universe
+    So, heres how to do it
+    the Inexorable, the Anointed  Pilgrim When you travel
     
-    Like the boat, if you fail to destroy it
-    Hit the first and 		third switches
-    ------------Um.
-    ..
+    No-one can read them reliably
+    called Partial Avatarhood, then go to that shrine and meditate for 3 cycles.Master all 8 to become the Avatar.
+    You've got a bomb in your brain
+    Your low-level scannercan't even tell friend from foe yet.
     
-    As with most evil acts,you win nothing.*
-      When an adversary causes effect to you
-    When you try to outpace someone or something
-    Godsvessel Titles: the Vessel
+    Timing again, is the key here.
+    Lucky.BAD SOLUTION
+    Can anyone help me outhere?
+    Wait until he is on the other side
     
-    storms, stars and prediction
-    Some families jealously guard old names
+    L,F , you find a particularly interesting box
+    It'll behelpful, believe me.BACKGROUND
