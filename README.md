@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Oct 25 16:48:01 EDT 2022
+## Wed Oct 26 16:48:01 EDT 2022
 
-    Comes in small and large sizes, governed by whetheryou use one Scaffold or two Scaffolds to build it.CRECHE
-    Your objective is totravel the known universe
-    So, heres how to do it
-    the Inexorable, the Anointed  Pilgrim When you travel
+    Once per scene, a nearby ally gains +D10 security
+    the ball rolls past you and the woman sticks you in the throat. 3.
+    Your Creature will be harmed in the process, and GodConscience will inform you that he needs to be healed.
+    Think of the drone as a huge Demonwith tremendous frontal firepower.
     
-    No-one can read them reliably
-    called Partial Avatarhood, then go to that shrine and meditate for 3 cycles.Master all 8 to become the Avatar.
-    You've got a bomb in your brain
-    Your low-level scannercan't even tell friend from foe yet.
+    you are subject to effect
+    Well, it's easy to miss in the manual
+    Dumb Fire, Heatseeker, ImageRecognition, and Friend-or-Foe.You also get proton torpedoes, which are basically shorter-rangebut faster-firing Dumb Fire missiles.4.5.1.1 Missile LauncherHolds ten missiles (any type), costs 10000 credits.4.5.1.2 Dumbfire Missile (DF)Lock: None, Speed 1000, Damage 13cm, Price 20Torpedo is easier to use and does more damage, but requires adifferent launcher.4.5.1.3 Heatseeker Missile (HS)Lock: Engine heat, Speed 800, Damage 16cm, Price 35Heatseekers can be a bit hard to use in dogfights as you can'tget on the tail of enemies long enough for this to lock.4.5.1.4 Image Recognition Missile (IR)Lock: Enemy craft type/shape, Speed 850, Damage 17 cm, Price 75IR missiles goes after the general 'shape' of the enemy.
+    You will be paid 10000 credits.When you get there, Seelig pro?
     
-    Timing again, is the key here.
-    Lucky.BAD SOLUTION
-    Can anyone help me outhere?
-    Wait until he is on the other side
+    Get 15000 credits also.When you get near Palan, you'll encounter 3+2+2+2 Demons
+    TNRUB SDC NOILLIB A space bar 	 REEB OROPPAS KNIRD that's a space at the front Well
+    jutting out of the shifting sands
+    Walk over to the terminal
     
-    L,F , you find a particularly interesting box
-    It'll behelpful, believe me.BACKGROUND
+    Inc, distributed by Interplay Productions
+    Tayla will give you a secret compartment, whichcannot be scanned.
