@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Oct 27 16:48:01 EDT 2022
+## Fri Oct 28 16:48:01 EDT 2022
 
-    Pays 10K.Random encounters until you get to Perry system.
-    Thenthe moongate will close. Phase Location Destinations
-    ..you'll get nothing if everyone dies, though.
-    Khazar will teach you how to cast Miracles using Gestures and how to attackwith fireballs, and also how to defend your own villages.
+    For an interesting part of the game, notice that the soccer ball is eagerly hopping up and down at the sight of the ballerina.
+    You pick the first, the group picks the second
+    travelling on sand-skimmers and light gliders
+    You should have enough shields toignore their fire.
     
-    Walk over to the door R
-    When you focus your mind to the works of the divine
-    Tough, you'restuck here for a little while.
-    When you’re struggling to survive
+      Ranks: Agent, Crownsman
+    However, you justneed them to NOT hate you
+    Think of the drone as a huge Demonwith tremendous frontal firepower.
+    Bewarethat you have limited jump fuel, and the only way to refuel is toland somewhere.
     
-    In return, he'll "reset" your reputation to"neutral"
-    Sacrifice, Orange 6.
-    PUZZLE LEVEL 3: Hit the following switches
-    These Upsearching are tokens of the goddesses
+    crystals form in hidden rooms
+    Push down to drop one cotton candy for the huge bee.
+    hovercraft, and fighters black dots on your radar
+    Findhim and destroy him.
     
-    you can shoot fast enough if you slow down,then full guns.
-    Once per game, when you inflict great effect on an evildoer
+      WEB, or COBWEB - Woven by spiders in the houses of the dying
+    Now, only the tallest buildings survive
