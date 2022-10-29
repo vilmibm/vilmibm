@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Oct 28 16:48:01 EDT 2022
+## Sat Oct 29 16:48:01 EDT 2022
 
-    For an interesting part of the game, notice that the soccer ball is eagerly hopping up and down at the sight of the ballerina.
-    You pick the first, the group picks the second
-    travelling on sand-skimmers and light gliders
-    You should have enough shields toignore their fire.
+    .Kill them all.12.15 LYNN MURPHY 2Destroy more enemy patrols.Objective
+    If you are playing with a digital control standard Sony pad
     
-      Ranks: Agent, Crownsman
-    However, you justneed them to NOT hate you
-    Think of the drone as a huge Demonwith tremendous frontal firepower.
-    Bewarethat you have limited jump fuel, and the only way to refuel is toland somewhere.
+    ------------Just the general fun.
     
-    crystals form in hidden rooms
-    Push down to drop one cotton candy for the huge bee.
-    hovercraft, and fighters black dots on your radar
-    Findhim and destroy him.
+    kill all opposition and land on Palan.
+    .If you don't kill Kroiz in the first encounter, he'll show upagain with FIVE Demons as escort when you almost reach yourdestination.12.8 LYNCH 3Lynch confirmed that the artifact is alien
+    Get ready, THEN enter the first door on your right
+    ------------How dare they??
     
-      WEB, or COBWEB - Woven by spiders in the houses of the dying
-    Now, only the tallest buildings survive
+    that emerge from spoiled harvests
+    On the fifth pass, you will see a blue target on the carrier
+    When people are hungry, they will usually come to theVillage Store if there is no food lying about nearby, and if the trees are toofar away when a structure is being built, the Village Store will come to therescue once again.
+    and given that street name as his geographical tag
+    
+      When an adversary causes effect to you
+    4.4 CENTURIONCenturion is technically a heavy fighter that was relegated tocivilian duty and fitted with a small cargo bay.Max engine
