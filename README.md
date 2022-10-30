@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Oct 29 16:48:01 EDT 2022
+## Sun Oct 30 16:48:01 EDT 2022
 
-    .Kill them all.12.15 LYNN MURPHY 2Destroy more enemy patrols.Objective
-    If you are playing with a digital control standard Sony pad
+    and half same-old FMV shooter
+    as all the passwords are in place 		for you
+    third, fourth, eighth
+    You have a good ideawho this "employer" is
     
-    ------------Just the general fun.
+    repeated mantras or arcane sigils
+    Startto take all the wood and food out of your village center and place it near thebeach where the fishers
+    You can find Horses all over the island
+    This will allow you to destroy Lethys' temple, and use theVortex to get through to level three.
     
-    kill all opposition and land on Palan.
-    .If you don't kill Kroiz in the first encounter, he'll show upagain with FIVE Demons as escort when you almost reach yourdestination.12.8 LYNCH 3Lynch confirmed that the artifact is alien
-    Get ready, THEN enter the first door on your right
-    ------------How dare they??
+    as all the passwords are in place 		for you
+    If not, a "random" encounter is generated.The "random" enemies are randomly chosen based on a series ofprobability tables.
+    PUZZLE LEVEL 2: Hit the following switches
+    * Two - Who's Up For Cheating The Big Bad Witch?
     
-    that emerge from spoiled harvests
-    On the fifth pass, you will see a blue target on the carrier
-    When people are hungry, they will usually come to theVillage Store if there is no food lying about nearby, and if the trees are toofar away when a structure is being built, the Village Store will come to therescue once again.
-    and given that street name as his geographical tag
-    
-      When an adversary causes effect to you
-    4.4 CENTURIONCenturion is technically a heavy fighter that was relegated tocivilian duty and fitted with a small cargo bay.Max engine
+    On top of a mountain surrounding the village.
+    Repeat this at much as you can, and your humility virtue will increase. The hard thing, is to find those people.
