@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Oct 31 16:48:01 EDT 2022
+## Tue Nov  1 16:48:01 EDT 2022
 
-    * Six - Yay!
-    Immediately shoot the two standing ones R
-    Make sure you miss thehouses though, and by the time Khazar gives up on teaching you, you will havea fully-fireball-trained Creature. =============================================================================6i
-    and some armed strangers besides you are running around the complex
+    Upgrade engines BEFORE you upgrade shields.
+    Place all your piles of food and wood in it.
+    Their initial attitude toward you is hostile.To make Kilrathi like you, you should:* attack/destroy Confederation and/or Militia shipsOf course, why would you want to do so is the great mystery...2.6 RETROSRetros refers to a fanatical offshoot group from Church of Man.While Church of Man advocates a quiet agrarian lifestyle awayfrom technology, Retros are willing to use technology to destroyall technology.
+    Want to make slaves out of them.
     
-    BE JP-------- - Julia, a tinker, will join you here.
-    Of course, you use up yourmissiles twice as fast.*
-    9 More Tips* [Repeat] If you can't leave the system (no jump drive),don't accept missions that occur outside the system!* [Repeat] You cannot stop at ANY other base while a deliverymission is in progress!
-    You land on Basra instead, and found LynnMurphy in the bar.
+    His community saw that he was quite slow
+    Use the eel by pressing the
+      BANQUET WORM - Crimson grubs
+    You will recieve a pile of grain for your efforts.
     
-    He'll take a look atyour artifact, and pay a little money too.Objective
-    .. And youneed to access the library.
-    I may place one of the D8s anywhere
-    >
+    you'll instantly die and have to restart
+    It islightly armed and lightly shielded.
+    Enter in the antidote
+    that flit beneath the sand like fish
     
-    Hmmm
-    The Demons areafter you, not the Drayman, so you can be thankful.12.13 MASTERSON 4Now comes the series finale
+    The only thing that has to be on the map is the Maiden’s Hand
+    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
