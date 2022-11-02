@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Nov  1 16:48:01 EDT 2022
+## Wed Nov  2 16:48:01 EDT 2022
 
-    Upgrade engines BEFORE you upgrade shields.
-    Place all your piles of food and wood in it.
-    Their initial attitude toward you is hostile.To make Kilrathi like you, you should:* attack/destroy Confederation and/or Militia shipsOf course, why would you want to do so is the great mystery...2.6 RETROSRetros refers to a fanatical offshoot group from Church of Man.While Church of Man advocates a quiet agrarian lifestyle awayfrom technology, Retros are willing to use technology to destroyall technology.
-    Want to make slaves out of them.
+    You pick the first, the group picks the second
+    The only place I really 		noticed is at the Slice-O-Matic death scene
+    You can find Horses all over the island
+    Switch to tractor beam, aim at the cargo, andhit the trigger.
     
-    His community saw that he was quite slow
-    Use the eel by pressing the
-      BANQUET WORM - Crimson grubs
-    You will recieve a pile of grain for your efforts.
+    But the Confed and theMilitia will come after you as long as you have contrabandonboard.
+    MUWHAH-sorry.EVIL SOLUTION
+    F,F,F,F , and walk to the next room F
+    A winner is you!Running low on food in the village, and the fields are running dry?
     
-    you'll instantly die and have to restart
-    It islightly armed and lightly shielded.
-    Enter in the antidote
-    that flit beneath the sand like fish
+    Press the
+    L1: Changes to arcade cursor mode up up
+    Well
+    Good boy/girl.
     
-    The only thing that has to be on the map is the Maiden’s Hand
-    It also has a "hidden" point between thejump point and the planet.When you arrive at a nav point or a hidden point, an encounterhappens.
+    jutting out of the shifting sands
+    This will allow you to destroy Lethys' temple, and use theVortex to get through to level three.
