@@ -9,22 +9,21 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Nov  4 16:48:01 EDT 2022
+## Sat Nov  5 16:48:01 EDT 2022
 
-    Too late
-    I found that if you go when the blade in front of you is directly horizontal
-    Enter that one by pushing up. THE PIANO 1.
-    MUWHAH-sorry.EVIL SOLUTION
+    swarms of birds, patterns and sigils in clouds
+    The Miracles these people will give you by worshippingare also shown at the Village Centre.VILLAGE STORE
+    write down how you claw yourself back from the brink
+    you've gone too far- go back to the door near the doorway you were fighting at
     
-    You can't hurtit though, even with that Steltek gun.
-    Then makeit back to Oakham yes, again
-    Tough, you'restuck here for a little while.
-    you're a sitting duck until they recharge again
+      Your rank and your title
+    regenerate shields 25 0.000000asterThruster Enhancer: improved turn rate by about 20    When you walk far enough, the game loads in the next  region
+    New Moon Moonglow Moonglow Britain Jhelom2.
     
-    magic or temptation, +D12 security
-      YOUR NAME  Your name is chosen for you by your community when you come of age - before then
-      COMMERCIA, goddess of security
-    activate the middle one to start Charlie up to decontaminate the sealed area
+    * Two - Who's Up For Cheating The Big Bad Witch?
+    you've gone too far- go back to the door near the doorway you were fighting at
+    so get up close to it to look around L
+    F,F,F through Security Door Turn left
     
-    F,R,F and head back to the window room F
-    KJ LL----------- - Katrina, a shepherd, will join you here.
+    Pays30K.Again, militia doesn't like you smuggling.
+    You caneven mine asteroids with a mining laser.
