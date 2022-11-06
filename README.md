@@ -9,21 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Nov  5 16:48:01 EDT 2022
+## Sun Nov  6 16:48:01 EST 2022
 
-    swarms of birds, patterns and sigils in clouds
-    The Miracles these people will give you by worshippingare also shown at the Village Centre.VILLAGE STORE
+    It'll soon catch fire and burn!
+    Once you're through the blades
+    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
+      You have seen miracles in the streets
+    
+    The area in which you can interact with the environment.
+    Grab one of the sticks and then attack the rose bush.
+    Guide will inform youof the Creeds.
+    When you stay awake and vigilant
+    
+    Cyberia, released by Interplay
+    Khazar is allied with you, so you areable to interact with the environment within his influence.First of all, Khazar will place Scaffolds down to build your new village andTemple.
     write down how you claw yourself back from the brink
-    you've gone too far- go back to the door near the doorway you were fighting at
+    If you wait, the Vortex will disappear, and you will have to claimthe last village.
     
-      Your rank and your title
-    regenerate shields 25 0.000000asterThruster Enhancer: improved turn rate by about 20    When you walk far enough, the game loads in the next  region
-    New Moon Moonglow Moonglow Britain Jhelom2.
-    
-    * Two - Who's Up For Cheating The Big Bad Witch?
-    you've gone too far- go back to the door near the doorway you were fighting at
-    so get up close to it to look around L
-    F,F,F through Security Door Turn left
-    
-    Pays30K.Again, militia doesn't like you smuggling.
-    You caneven mine asteroids with a mining laser.
+    If you want to kiss Gia
+    you'll instantly die and have to restart
