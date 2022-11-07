@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Nov  6 16:48:01 EST 2022
+## Mon Nov  7 16:48:01 EST 2022
 
-    It'll soon catch fire and burn!
-    Once you're through the blades
-    PUZZLE LEVELS 1,2,3: Press the buttons to match your code
-      You have seen miracles in the streets
+    Well done, soldier.
+    Pays30K.Again, militia doesn't like you smuggling.
+    F,F,F,F , back to the dock R
+    Take them out
     
-    The area in which you can interact with the environment.
-    Grab one of the sticks and then attack the rose bush.
-    Guide will inform youof the Creeds.
-    When you stay awake and vigilant
+    repeated mantras or arcane sigils
+      COMMERCIA, goddess of security
+    ..you'll get nothing if everyone dies, though.
+    You'll come to a back door
     
-    Cyberia, released by Interplay
-    Khazar is allied with you, so you areable to interact with the environment within his influence.First of all, Khazar will place Scaffolds down to build your new village andTemple.
-    write down how you claw yourself back from the brink
-    If you wait, the Vortex will disappear, and you will have to claimthe last village.
+    ducking R to cover, standing L and R to aim
+    Be careful,however, as attacks on the Temple, even when invunerable, will reflect on yourbelievers' villages.
+    A smaller part cannot go underneath a larger part.
+    That explainsthose "unknown" ships flying about
     
-    If you want to kiss Gia
-    you'll instantly die and have to restart
+    ------------- Another upgrade is one to add music to U4: http://weber.u.washington.edu/~draug/u4music.zip Unzip it into your Ultima 4 directory and run "setup.bat", and then from then on to play Ultima 4 with sound you have to use the u4.batBoth of these upgrades include Mo'Slo and the sound updates u4.bat includes amoslo line in it already (at 25peed).-------------------------------------------------------------------------------D.
+    Apparently, when all three parts of the Creed are aligned ie, in your hands
