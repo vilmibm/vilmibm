@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Nov  7 16:48:01 EST 2022
+## Tue Nov  8 16:48:01 EST 2022
 
-    Well done, soldier.
-    Pays30K.Again, militia doesn't like you smuggling.
-    F,F,F,F , back to the dock R
-    Take them out
+    Sometimes,you may get NOTHING.Think of this as the classified ads
+    Either way, you'll soon move onto Land 4, well done!
+    F,R,F,F,L,F,F,F,F into Hallway 	F
+    The man's lost his sheep, and now you've gotto find them.
     
-    repeated mantras or arcane sigils
-      COMMERCIA, goddess of security
-    ..you'll get nothing if everyone dies, though.
-    You'll come to a back door
+    The Rich, The Fair-handed  Oracle  When you describe benevolent augury that you can see
+      Ranks: Defender, Paladin
+    ARCADE LEVEL 1: Destroy 500f the virus
+    In the meanwhile, you're chasedeverywhere by that green thing
     
-    ducking R to cover, standing L and R to aim
-    Be careful,however, as attacks on the Temple, even when invunerable, will reflect on yourbelievers' villages.
-    A smaller part cannot go underneath a larger part.
-    That explainsthose "unknown" ships flying about
+    Militia have somehow gotten past it
+    Deliver a message to Seelig, who will be at Nav 2 inPentonville (Pirate) System.
+    so it's probably best just to skip it
+    These Upsearching are tokens of the goddesses
     
-    ------------- Another upgrade is one to add music to U4: http://weber.u.washington.edu/~draug/u4music.zip Unzip it into your Ultima 4 directory and run "setup.bat", and then from then on to play Ultima 4 with sound you have to use the u4.batBoth of these upgrades include Mo'Slo and the sound updates u4.bat includes amoslo line in it already (at 25peed).-------------------------------------------------------------------------------D.
-    Apparently, when all three parts of the Creed are aligned ie, in your hands
+    Avoid the pit by jumping over it.
+     The Small Gods grant a general blessing
