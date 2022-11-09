@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Nov  8 16:48:01 EST 2022
+## Wed Nov  9 16:48:01 EST 2022
 
-    Sometimes,you may get NOTHING.Think of this as the classified ads
-    Either way, you'll soon move onto Land 4, well done!
-    F,R,F,F,L,F,F,F,F into Hallway 	F
-    The man's lost his sheep, and now you've gotto find them.
+    BIG KISS Okay, a real decision here
+    walk towards the weapon
+    If your hand goes out of the Area of Influence, it will start to loseits power.
+    three active switches
     
-    The Rich, The Fair-handed  Oracle  When you describe benevolent augury that you can see
-      Ranks: Defender, Paladin
-    ARCADE LEVEL 1: Destroy 500f the virus
-    In the meanwhile, you're chasedeverywhere by that green thing
+    Upgrade engines BEFORE you upgrade shields.
+    you can enter two different passwords to get the Sony developer's credits
+    travelling on sand-skimmers and light gliders
+    owned as they were by ancestors
     
-    Militia have somehow gotten past it
-    Deliver a message to Seelig, who will be at Nav 2 inPentonville (Pirate) System.
-    so it's probably best just to skip it
-    These Upsearching are tokens of the goddesses
+      Ranks: Guilder, Silverhand
+    If you'relooking for a specific contact and you don't see him, but youfound something else hostile instead, consider turn and run.
+    Throw the commentator dude at the pillar to try and knock the rock off.Make the path of a rock you throw go through his house or even him.
+    In return, he'll "reset" your reputation to"neutral"
     
-    Avoid the pit by jumping over it.
-     The Small Gods grant a general blessing
+    ..Head to Troy, and explore the nearby nav points.
+    If you have a very fast ship or you're willing to angerthe militia/Confed you can give this a try.Sometimes a fixer will ask you to smuggle something.
