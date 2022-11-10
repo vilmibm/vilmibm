@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Nov  9 16:48:01 EST 2022
+## Thu Nov 10 16:48:01 EST 2022
 
-    BIG KISS Okay, a real decision here
-    walk towards the weapon
-    If your hand goes out of the Area of Influence, it will start to loseits power.
-    three active switches
+    Evil factor is very, VERY high.
+    Great.EVIL SOLUTION
+    Warning, that won'tget you any rewards, besides the satasfaction of evilness.
+    Now it's time to do some SERIOUS back-tracking
     
-    Upgrade engines BEFORE you upgrade shields.
-    you can enter two different passwords to get the Sony developer's credits
-    travelling on sand-skimmers and light gliders
-    owned as they were by ancestors
+    As with most evil acts,you win nothing.*
+    Decreases cursor speed R1 and R2 are great for fine-tuning your cursor speed in the action sequences if you're using a standard game pad
+    The buttons cycle 			through these symbols
+    The goal here is to turn on the top right circuit without setting off the trap
     
-      Ranks: Guilder, Silverhand
-    If you'relooking for a specific contact and you don't see him, but youfound something else hostile instead, consider turn and run.
-    Throw the commentator dude at the pillar to try and knock the rock off.Make the path of a rock you throw go through his house or even him.
-    In return, he'll "reset" your reputation to"neutral"
+    Her full name is Paladin Compass Quill of the Horizon
+    roll three six-sided dice and allot them to each
+    Or CoolThang for short.EVIL SOLUTION
+    Hmmm
     
-    ..Head to Troy, and explore the nearby nav points.
-    If you have a very fast ship or you're willing to angerthe militia/Confed you can give this a try.Sometimes a fixer will ask you to smuggle something.
+    Lots of air and ground targets
+    ..Objective: Land at Romulus (mining base, Castor system).
