@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Nov 12 16:48:01 EST 2022
+## Sun Nov 13 16:48:01 EST 2022
 
-    ..5 Other Crafts and Pilots5.1 MORALE AND EXPERIENCEThe AI pilots in Privateer are rated in two areas: experience andmorale.Experience can range from rookie, pro, to ace.Pilots with more experience evade more attacks, and have betteraccuracy.Morale can range from timid, confident, to fanatical.Pilots with higher morale are less likely to retreat.
-    Thereasonably good solution is just to sacrifice another child, and you'll winanyway.
-    Pays 10K.No scripted enemies, just random stuff.14.2 MASTERSON 2Patrol Oxford's nav points for enemies.
-    The Village Store containsall the wood and food that belongs to that village.
+    Or want animals.You know the drill.
+    Scanning it with the MRI and Bio-Scan shows something interesting
+    Feel free to fly past them.14.9 LYNN MURPHY 4Go to Metsor, clear Nav Points, for 50K.
+    Take them out(preferred) or run away.If you make it to the jump point without taking out Riodian,he'll be there again with 5 Pirate Talons (pros?
     
-    .. And in my opinion, this is thesecond hardest mission in the game.
-    Either way, welcome to the
-    Repeat until you kill it.Return to Terrell's office at Perry Naval Base for the thanks ofthe Confederation
-    Once you've killed theBlack Rhombus, you can go home.12.12 MASTERSON 3Masterson need some books shipped in, but someone else want thebooks, and they contracted bounty hunters to divert the shipment.Objective
+    Each of the sixty-nine systems can have severalplanets with bases that you can visit.There are four different ships you can own, plenty of differentequipment to create your own customized ship, over a dozendifferent commodities you can trade between systems, specialmissions that will pay you even MORE than standard fees, andmore.You will encounter friendly, neutral, and hostile traffic in yourtravel.
+    D10 extent when you heal an injury in a dangerous situation
+    When you try to outpace someone or something
+    Swat the brain cells with the fish when the eye is open.
     
-    F takes you further into the warehouse
-    Sacrifice, Orange 6.
-    continue running R,F and enter the next room R
-    They're drowning and they need rescued, quickity quick.
+    Go back to the doorway where you killed the two guards F
+    DMIRACLE DISPENSER - There are two kinds of Miracle Dispensers; there are onesthat give you One-Shot Miracles, and refresh a new One-Shot a few seconds(or minutes, it all depends on how much Mana the Miracle usually is) after youtake the One-Shot Miracle off the Dispenser.
+    Reissman informed you of hisplans before the drone showed up.
+    Friends and acquaintances will use your given name
     
-    ------------The sheep can be found at the following places...pick them up and return themto the farmer's pen.1) Its nearby the house where you got the third Gate Stone, AKA, the Sculptor'shouse.2) Its behind the Gate that you had to open.3) Its where you found the sick man for the second Gate Stone quest.4) Its next to the hut where you practiced stone throwing.5) Its on the edge of the village, in a pen with some pigs.6) Remember the path that you came along when you first started?
-    ..Objective: Land at Romulus (mining base, Castor system).
+    Try not to kill any Militia orConfed ships while you're at it.
+    She communicates in the shine of gold
