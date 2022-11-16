@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Nov 15 16:48:01 EST 2022
+## Wed Nov 16 16:48:01 EST 2022
 
-    BIG SHOCK Walk over to Santos's body
-    Pays30K.Again, militia doesn't like you smuggling.
-    L to move back, X to shoot
-    You'll be paid 15000 credits.
+    b'You really should win this battle.
+    Go to thebay near your temple, and pick up fish from there.
+    If you've been paying attention so far
+    You need color-coded scannerbefore you take on combat missions.Now just go through Merchant's Guild computer and the MissionComputer for more missions and do them.
     
-    After the conversation
-    Each of the sixty-nine systems can have severalplanets with bases that you can visit.There are four different ships you can own, plenty of differentequipment to create your own customized ship, over a dozendifferent commodities you can trade between systems, specialmissions that will pay you even MORE than standard fees, andmore.You will encounter friendly, neutral, and hostile traffic in yourtravel.
-    When all three have been replaced by the donuts then the game is over! Congratulations on actually being able to solve this game! '
-    If you join ES, and let Monkhouse publishanything you find, Monkhouse will give you his piece and thetranslated map.12.18 CROSS 1You got to Rygannon, and you found Taryn Cross of ExploratoryServices.
+    You need ECM to counter enemy missiles.You can probably run away from any early enemies that youencounter, or you can test your combat prowess with your mesonblasters and torpedoes.
+    CATWALK Santos's guards will be after you now
+    Bounty hunters can be found all over.Bounty hunters hate Pirates, Kilrathis, and Retros see factions
+    She wants to throw the ball with you for sure
     
-    Upgrade engines BEFORE you upgrade shields.
-    as all the passwords are in place 		for you
-    You will now be askeda series of questions, the answers are
-    Now you have to place the scaffoldin between your influence and the village
+      THE UPSEARCHING  Strange fruits and herbs grow from the sands
+    a few tons) andcan be handled by any ship.Expect to fight through some opposition like Pirates and Retroson the delivery missions.Usually, the further the contract needs to go, the better thecontract pays.You can find delivery missions from fixers, Merchant's Guild, ormission computer (see mission sources).3.3 MERCENARYYou can make money by taking contracts to hunt, patrol, escort,defend, or whatever the employer needs.This is obviously a dangerous job but the rewards are great aswell.You can find mercenary missions from Mercenary Guild, Merchant'sGuild, Mission Computer, or one of the fixers in a bar (seemission sources).The further out the mission, the more the mission pays.Mercenary missions usually require heavy combat and should onlybe handled by a hefty ship like Centurion or maybe Orion.
+    Get ready, THEN enter the first door on your right
+    Lord British's Castle (GL FG)
     
-    Avoid the pit by jumping over it.
-    Militia have somehow gotten past it
+    1.
+    4.2 ORIONOrion is an odd ship
