@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Nov 17 16:48:01 EST 2022
+## Fri Nov 18 16:48:01 EST 2022
 
-    You'll be paid 10000 credits, and if you do all fourmissions you'll be allowed access to the library.Toth will be at Nav 3 at Oxford.
-    F,F , and approach the plane F
-    -----------What have I taught you bad dudes?
-    They pay less than the Merc Guild, but they are alsoeasier.Offered
+    Sacrifice, Orange 6.
+     Advances: Executioner
+    You aren't going to get paid any way.
+    Findhim and destroy him.
     
-    trading house and bank that has claims to be a statue of each of the three goddesses
-    Walk into the room F DRUG STORE Have a seat L
-    Forexample, if you are on a mission to locate a Retro, butconversation shows you found a Pirate, you can run away.* [Repeat] Don't like the missions being offered?
-    Go over to the other door and walk though it L
+    Use five consecutive long jab to kill the first one.
+    http://www.moongates.com/u4/ It's not that great of an improvement, but any improvement is a good one, so it is a recommended download.
+    pros?
+    hit the submarine with everything you've got left
     
-    PRICE
-    Press the
-    When the message is delivered,return to NC.
-    You land on Basra instead, and found LynnMurphy in the bar.
+    When you struggle to survive
+    Exit the room L,F Head back down the hall L
+    Your gun ammo is the horizontal red bar
+    ..
     
-    Just patrolt he points.14.7 LYNN MURPHY 2Run the blockade to Liverpool at New Castle.
-    Once per scene, your Extent is equal to your Security Martyr
+    >
+    all allies who can see you are +D8 extent
