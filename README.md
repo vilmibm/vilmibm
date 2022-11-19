@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Nov 18 16:48:01 EST 2022
+## Sat Nov 19 16:48:01 EST 2022
 
-    Sacrifice, Orange 6.
-     Advances: Executioner
-    You aren't going to get paid any way.
-    Findhim and destroy him.
+    (the Sheep) *-*Little Bo Peep
+    It's a deal.Objective
+    F,F,F , and step forward F
+    perform an MRI scan to view the elevator pumps
     
-    Use five consecutive long jab to kill the first one.
-    http://www.moongates.com/u4/ It's not that great of an improvement, but any improvement is a good one, so it is a recommended download.
-    pros?
-    hit the submarine with everything you've got left
+    the smoke-stains on ceilings
+      Ranks: Corpus, Hollow
+    and I thought of something and just finished testing it successfully.
+    This isgreat for smuggling, esp.
     
-    When you struggle to survive
-    Exit the room L,F Head back down the hall L
-    Your gun ammo is the horizontal red bar
-    ..
+    Keep running
+    On top of a mountain surrounding the village.
+    Run down the hall L,F and
+    He was last seen on Palan.So to Palan you go
     
-    >
-    all allies who can see you are +D8 extent
+    Lethys' will thensteal your Creature and run away through a Vortex.
+    No pay.It's a long flight to Valhalla, and big battle is ahead, so saveyour missiles.
