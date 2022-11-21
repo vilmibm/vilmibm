@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sun Nov 20 16:48:01 EST 2022
+## Mon Nov 21 16:48:01 EST 2022
 
-    If you continue running down the hall
-    Monkhouse want to get over to Basra.
-    take the right path R
-    Swat the brain cells with the fish when the eye is open.
+    =P Guide will healyour Creature, and then go to sleep again.Guide woken up?
+    On top of a mountain surrounding the village.
+    I found that if you go when the blade in front of you is directly horizontal
+    in general, those missions are easy and paydecent money.
     
-    You can now enter the Unsafe Door F
-    Once per scene, your precision is equal to your extent
-    Lucky.BAD SOLUTION
-    A city the size of a kingdom that scraped the sky
+    Or want animals.You know the drill.
+    and enter the vents F
+    =D
+    Browse through them, and note the new janitor's key code
     
-    At the very beginning of the game you will be asked 7 questions by a gypsywoman.
-    Protector 9: Witness 10
-    It is possible, before you leave the island, for your Creature to knowthe following Miracles at least
-    Theyreluctantly agreed.
+    that you play in.'
+    After you take care of them, you can headfor Oxford.You can actually go directly to Oxford and ignore Miggsaltogether.
+    Nemesis's rage will extend onto your village, and it will be set on fire.
+    The focus of all your influence.
     
-    Repeat If you have problems surviving your way to anotherbase (except the plot missions), consider turning oninvulnerability.
-    Take anything else you want through with you.
+    Curiously smooth, irregularly-shaped glass
+    Just do the usualtactics, depending on how you play the game, and soon the Village will beyours.
