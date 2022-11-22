@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Nov 21 16:48:01 EST 2022
+## Tue Nov 22 16:48:01 EST 2022
 
-    =P Guide will healyour Creature, and then go to sleep again.Guide woken up?
-    On top of a mountain surrounding the village.
-    I found that if you go when the blade in front of you is directly horizontal
-    in general, those missions are easy and paydecent money.
+    Not much going on here, apart from the crowding of people withnothing to do, or who are finished their tasks for the day.
+    For example, when the first moon first turns to the New Moon, a moongate will open at Moonglow and itsdestination will be Moonglow, when the 2nd moon changes phase it will take youto Britain, another 2nd moon phase change and it will take you to Jhelom.
+    BIG SHOCK Walk over to Santos's body
+    the patterns of soil
     
-    Or want animals.You know the drill.
-    and enter the vents F
-    =D
-    Browse through them, and note the new janitor's key code
+    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
+    With dual missile launchers it may even get quickkills.Max engine
+    Tons of targets, and tons of fuel trucks
+    You will be paid 10000 credits.When you get there, Seelig pro?
     
-    that you play in.'
-    After you take care of them, you can headfor Oxford.You can actually go directly to Oxford and ignore Miggsaltogether.
-    Nemesis's rage will extend onto your village, and it will be set on fire.
-    The focus of all your influence.
+    Walk through the vent F
+    to throw it back.
+    You will encounter a lot of otherships, form friendly to hostile.
+    Try the ultimateevil, find his sheep THEN kill him.
     
-    Curiously smooth, irregularly-shaped glass
-    Just do the usualtactics, depending on how you play the game, and soon the Village will beyours.
+    You can find them just about everywhere, but esp.around Perry Naval Base.Confed hates Pirates, Kilrathis, and Retros see factions
+    You'll be using this a hell of a lot
