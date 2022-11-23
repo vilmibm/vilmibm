@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Nov 22 16:48:01 EST 2022
+## Wed Nov 23 16:48:01 EST 2022
 
-    Not much going on here, apart from the crowding of people withnothing to do, or who are finished their tasks for the day.
-    For example, when the first moon first turns to the New Moon, a moongate will open at Moonglow and itsdestination will be Moonglow, when the 2nd moon changes phase it will take youto Britain, another 2nd moon phase change and it will take you to Jhelom.
-    BIG SHOCK Walk over to Santos's body
-    the patterns of soil
+    People live here.
+    Lions can be found nearby, and are also worth twoslaves, and the final animal, the turtle is found near your Temple, on someislands, but are only worth one slave.
+    Get your Creatureto wade out and rescue the pesky beggars.
+    Wait nomore!
     
-    Simply Blink East from the hilly passage leading south toward the Shrine of Compassion.
-    With dual missile launchers it may even get quickkills.Max engine
-    Tons of targets, and tons of fuel trucks
-    You will be paid 10000 credits.When you get there, Seelig pro?
+    swarms of birds, patterns and sigils in clouds
+    -----------Get your influence over his hill eventually.
+    Anyway,its time to move onto the final village, and reclaim your village.
+    or maybe a damning indictment of your shortcomings
     
-    Walk through the vent F
-    to throw it back.
-    You will encounter a lot of otherships, form friendly to hostile.
-    Try the ultimateevil, find his sheep THEN kill him.
+    Enter in the antidote
+    .. there's acatch, right?
+    like Dralthi, Gothri, etc.
+    When you threaten an enemy with their ill destiny
     
-    You can find them just about everywhere, but esp.around Perry Naval Base.Confed hates Pirates, Kilrathis, and Retros see factions
-    You'll be using this a hell of a lot
+    X and run to the elevator control F
+    Once you've toasted the guard
