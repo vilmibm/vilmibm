@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Nov 23 16:48:01 EST 2022
+## Thu Nov 24 16:48:01 EST 2022
 
-    People live here.
-    Lions can be found nearby, and are also worth twoslaves, and the final animal, the turtle is found near your Temple, on someislands, but are only worth one slave.
-    Get your Creatureto wade out and rescue the pesky beggars.
-    Wait nomore!
+    so be sure and save some ammo for them
+    Jump onto one of the light fixtures.
+    Go through the door R
+    perform an MRI scan to view the elevator pumps
     
-    swarms of birds, patterns and sigils in clouds
-    -----------Get your influence over his hill eventually.
-    Anyway,its time to move onto the final village, and reclaim your village.
-    or maybe a damning indictment of your shortcomings
+    Approach it from the rear, slow down, pump HALF thetorpedoes into it
+    PRICE
+    So ifyou have friendlies and enemies flying the same type of craftTalons, for example
+    40,000E.Y.E.
     
-    Enter in the antidote
-    .. there's acatch, right?
-    like Dralthi, Gothri, etc.
-    When you threaten an enemy with their ill destiny
+    the Yin andYang logo above his or her head.
+    Board the plane F,R,F
+    Pays 10K.
+    But the Confed and theMilitia will come after you as long as you have contrabandonboard.
     
-    X and run to the elevator control F
-    Once you've toasted the guard
+    so be sure and take it out to continue
+    You actually get to see thisone when the man is talking to you about this quest.8
