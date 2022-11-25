@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Thu Nov 24 16:48:01 EST 2022
+## Fri Nov 25 16:48:01 EST 2022
 
-    so be sure and save some ammo for them
-    Jump onto one of the light fixtures.
-    Go through the door R
-    perform an MRI scan to view the elevator pumps
+    Timing is crucial here
+    They're scattered around the map
+    Step on the elevator F
+      YOUR NAME  Your name is chosen for you by your community when you come of age - before then
     
-    Approach it from the rear, slow down, pump HALF thetorpedoes into it
-    PRICE
-    So ifyou have friendlies and enemies flying the same type of craftTalons, for example
-    40,000E.Y.E.
+    the detonators will explode in six seconds
+    On top of a mountain surrounding the village.
+    beasts, growth and chaos
+    try and get it as far as you can.Now build the village centre with your villagers, and you'll have a miniarea of influence.
     
-    the Yin andYang logo above his or her head.
-    Board the plane F,R,F
-    Pays 10K.
-    But the Confed and theMilitia will come after you as long as you have contrabandonboard.
+    Hewants you to sacrifice his child.
+    Return to ND forpayment.
+    There is another way out of the dark room
+    When you threaten an enemy with their ill destiny
     
-    so be sure and take it out to continue
-    You actually get to see thisone when the man is talking to you about this quest.8
+    You'll then need to use Heal Miraclesto cure all the poisoned people.
+    Blue Circle 			3: Red Square 			4
