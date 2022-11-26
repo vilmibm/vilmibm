@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Fri Nov 25 16:48:01 EST 2022
+## Sat Nov 26 16:48:01 EST 2022
 
-    Timing is crucial here
-    They're scattered around the map
-    Step on the elevator F
-      YOUR NAME  Your name is chosen for you by your community when you come of age - before then
+    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
+    When you seek to uncover secrets
+    Non-evil creatures are: spiders, insects, rats, bats, snakes and seahorses.+=============================================================================+| vi.
+    A vortex will soon open up in the village.
     
-    the detonators will explode in six seconds
-    On top of a mountain surrounding the village.
-    beasts, growth and chaos
-    try and get it as far as you can.Now build the village centre with your villagers, and you'll have a miniarea of influence.
+    You can find Horses all over the island
+    You'llsee at least 3 at every navpoint, except the last, which has NINEships
+    Upgrade engines BEFORE you upgrade shields.
+    You land on Basra instead, and found LynnMurphy in the bar.
     
-    Hewants you to sacrifice his child.
-    Return to ND forpayment.
-    There is another way out of the dark room
-    When you threaten an enemy with their ill destiny
+    R,F,R,F GOING UP To activate the elevator
+    Your reward is a nice shiny beach ball.
+    Exit the room back to the main hallway R
+    When you’re safe again
     
-    You'll then need to use Heal Miraclesto cure all the poisoned people.
-    Blue Circle 			3: Red Square 			4
+    ---- -------- ------------1.
+    10 cm ae) costing 1000, or tungsten (20 cm ae)costing 1500.
