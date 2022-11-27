@@ -9,22 +9,21 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Sat Nov 26 16:48:01 EST 2022
+## Sun Nov 27 16:48:01 EST 2022
 
-    Tarsus, Orion,Galaxy, and CenturionTIP: All ships can use all guns, but recommended guns are mesonblaster for early work, then when you can afford them, tachyoncannon or ion cannon.TIP: In general, Image Recognition (IR) missiles are the mostcost-effective.
-    When you seek to uncover secrets
-    Non-evil creatures are: spiders, insects, rats, bats, snakes and seahorses.+=============================================================================+| vi.
-    A vortex will soon open up in the village.
+    They will kill ANY humans they find.Kilrathi fly Dralthi
+    The Demons areafter you, not the Drayman, so you can be thankful.12.13 MASTERSON 4Now comes the series finale
+    Again, 10000credits and access to library really, after this mission
+    .. Stay in his office to watch some funnydialog.13 Righteous Fire Changes Righteous Fire introduced many changes, most of them are listedas below.13.1 NEW EQUIPMENTIsometal Armor is now the best armor, twice as good as tungsten,twice as expensive.Advanced Repair Droid is now available, twice as expensive, twiceas fast.Gun cooler is now available, decreases refire delay by 25    
+    Rooms:------ Truth: Blue Green Purple White Courage: Red Orange Purple White Love: Yellow Orange Green WhiteStygian Abyss:--------------You should now have all 8 stones, the 3 part key, the Skull of Mondain, and the3 artifacts of Principle (Bell of Courage, Candle of Love, Book of Truth).
+    Decision time, although it's kind of minor
+    GL NK)---------- - Search the library (in the 't' section, for truth) for the Book of Truth. - Frasier tells you that part of the WORD is VERm.
+    hit the submarine with everything you've got left
     
-    You can find Horses all over the island
-    You'llsee at least 3 at every navpoint, except the last, which has NINEships
-    Upgrade engines BEFORE you upgrade shields.
-    You land on Basra instead, and found LynnMurphy in the bar.
+    I may place one of the D8s anywhere
+    At nav 5, you found your target, takehim out.
+    11] for the plot missionwalkthru)Offered: everything (see [8] for mission types)Fixers can pay from nothing (yes, a rip-off) to 30000 permission.If you fail a fixer mission, head back to the bar and meet thefixer again.
+    Run to the plane F,F
     
-    R,F,R,F GOING UP To activate the elevator
-    Your reward is a nice shiny beach ball.
-    Exit the room back to the main hallway R
-    When you’re safe again
-    
-    ---- -------- ------------1.
-    10 cm ae) costing 1000, or tungsten (20 cm ae)costing 1500.
+    >>Transfighter Missions<< Time for some action missions
+    aceflying a Demon, and 2 more Demons
