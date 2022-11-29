@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Mon Nov 28 16:48:01 EST 2022
+## Tue Nov 29 16:48:01 EST 2022
 
-    You can do this either by being really good or really evil toyour first village.
-    ---------In the bay near the circular village, there is a temple on the beach, with twopoles sticking out the ground further up the sands.
-    Seems the only way you can complete this mission in any form is bykilling a child.
-    and enter the vents F
+    The beam will reach out and drag it in.
+    30,000MK III: Target Lock.
+      Ranks: Guilder, Silverhand
+    Walk towards the Cyberia weapon F
     
-    But he needsanother mission done.
-    Your Creature lives here, in his penin front of the entrance.
-    Either way, you'll soon move onto Land 4, well done!
-    Grab the donut looking thing by pushing down and then run the hell outta there. THE MIRROR ROOMS 1.
+    -------------- - Lord Robert will tell you a word: AMOk.
+    Defender 5: Guilder 6
+    although this may just be my imagination
+    Making newVillages believe in you, increasing the Belief that a Village has in you
     
-    then move around it F
-    Blue Triangle 			5: Red Filled Circle 			6
-    F into Conference Room 	F
-    It uses players, a GM
+    11] for the plot missionwalkthru)Offered: everything (see [8] for mission types)Fixers can pay from nothing (yes, a rip-off) to 30000 permission.If you fail a fixer mission, head back to the bar and meet thefixer again.
+    Your objective is totravel the known universe
+    BIG SHOCK Walk over to Santos's body
+    When it turns toward you, turnaway.
     
-    in the poorhouse
-    Jones is there or nearby.
+    Again, you should afterburner past them, ignoringtheir fire.
+    AtNew Detroit, two waves of Retros.
