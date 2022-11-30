@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Tue Nov 29 16:48:01 EST 2022
+## Wed Nov 30 16:48:01 EST 2022
 
-    The beam will reach out and drag it in.
-    30,000MK III: Target Lock.
-      Ranks: Guilder, Silverhand
-    Walk towards the Cyberia weapon F
+    Once you're ready to do some killin'
+    You get the picture.Woo!
+    you've gone too far- go back to the door near the doorway you were fighting at
+    in which case the blink will simply not move you at all).3) I have been able to get the White Stone by Blinking West from coordinates Lat.
     
-    -------------- - Lord Robert will tell you a word: AMOk.
-    Defender 5: Guilder 6
-    although this may just be my imagination
-    Making newVillages believe in you, increasing the Belief that a Village has in you
+    Combine it with throwing/flaming/etc for even greater belief boosts.ONE
+    Enter that one by pushing up. THE PIANO 1.
+    was Top: 2, Middle: 3
+    several fighters will be coming at you that can destroy you in a heartbeat
     
-    11] for the plot missionwalkthru)Offered: everything (see [8] for mission types)Fixers can pay from nothing (yes, a rip-off) to 30000 permission.If you fail a fixer mission, head back to the bar and meet thefixer again.
-    Your objective is totravel the known universe
-    BIG SHOCK Walk over to Santos's body
-    When it turns toward you, turnaway.
+    it's not a billion-seller
+    next to the VillageCentre.
+    You now control the village.
+    BIG KISS Okay, a real decision here
     
-    Again, you should afterburner past them, ignoringtheir fire.
-    AtNew Detroit, two waves of Retros.
+    Pack of Wolves Miracle Dispenser is now in your possession.EVIL SOLUTION
+    How dare she ask you to, like, do,like, stuff!
