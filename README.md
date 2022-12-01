@@ -9,22 +9,22 @@ my favorite food is mapo tofu
 this readme regenerates once a day with a new randomized sonnet cut up from a bunch of video game FAQs.
 _please do let me know if it produces anything objectionable_
 
-## Wed Nov 30 16:48:01 EST 2022
+## Thu Dec  1 16:48:01 EST 2022
 
-    Once you're ready to do some killin'
-    You get the picture.Woo!
-    you've gone too far- go back to the door near the doorway you were fighting at
-    in which case the blink will simply not move you at all).3) I have been able to get the White Stone by Blinking West from coordinates Lat.
+    Some families jealously guard old names
     
-    Combine it with throwing/flaming/etc for even greater belief boosts.ONE
-    Enter that one by pushing up. THE PIANO 1.
-    was Top: 2, Middle: 3
-    several fighters will be coming at you that can destroy you in a heartbeat
+    On the first floor, go into the room with all the guards, and in the NE corner of the room on the east wall is a secret wall, go in and search for the Rune of Spirituality (don't take the treasure). - Give blood here to improve your virtues. - Also any time you find yourself back at the castle, talk to Hawkwind, the Seer who will not only tell you how close you are to Partial Avatarhoods, but will also increase your spirtuality.b.
+    Jump onto one of the light fixtures.
     
-    it's not a billion-seller
-    next to the VillageCentre.
-    You now control the village.
-    BIG KISS Okay, a real decision here
+    yes, that'srandomly generated also.
+    Formal dealings are generally carried out under your rank
+    Throw the commentator dude at the pillar to try and knock the rock off.Make the path of a rock you throw go through his house or even him.
+    Seven active switches
     
-    Pack of Wolves Miracle Dispenser is now in your possession.EVIL SOLUTION
-    How dare she ask you to, like, do,like, stuff!
+    Go sacrifice a few children ascompensation.
+    the lovely green valleys of Norway
+    Its in amongstsome trees near the end of that path.7
+    The manual does a good job of introducing it
+    
+    ..
+    ------------Yes.
