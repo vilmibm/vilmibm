@@ -4,7 +4,9 @@
 
 in the flesh world i play an avatar called nate smith
 
-i co-authored the [GitHub CLI](https://github.com/cli/cli) but have since quit GitHub.
+i work for the Internet Archive
+
+i co-authored the [GitHub CLI](https://github.com/cli/cli) but have since quit GitHub
 
 i make noise music https://graveyardtheory.net
 
