@@ -12,6 +12,6 @@ i co-authored the [gitHub cli](https://github.com/cli/cli)
 
 i make [noise](https://graveyardtheory.net)
 
-i run an art squat on a linux server: https://tilde.town
+i run an [art squat](https://tilde.town) on a linux server
 
 i like to eat mapo tofu
