@@ -8,7 +8,7 @@ i work for the internet archive sorting [papers](https://scholar.archive.org)
 
 i run an [art squat](https://tilde.town) on a linux server
 
-i co-authored the [gitHub cli](https://github.com/cli/cli)
+i co-authored the [github cli](https://github.com/cli/cli)
 
 i like to eat [mapo tofu](http://tilde.town/~vilmibm/thoughts/mapo.html)
 
